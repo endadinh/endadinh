@@ -42,7 +42,7 @@
 
 <img src="https://github-readme-stats.vercel.app/api?username=endadinh&show_icons=true&hide_border=true&count_private=true&theme=shades-of-purple&icon_color=fad000" alt="Enda's GitHub Stats">
 <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=endadinh&count_private=true&theme=radical" alt="Enda" />
-<img align="center" width=500 src="https://github-readme-stats.vercel.app/api/top-langs/count_private=true&theme=radical" alt="Enda" />
+<img align="center" width=500 src="https://github-readme-stats.vercel.app/api/top-langs/?user=endadinh&count_private=true&theme=radical" alt="Enda" />
 
 -----
 Credits: [Enda Dinh](https://github.com/endadinh)
