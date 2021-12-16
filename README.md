@@ -1,12 +1,12 @@
 <h2 title="hehehe"> Hey 👋, I'm Enda!</h2>
 
-<a href="https://www.linkedin.com/in/Enda-jaiswal-102b661a3/">
+<a href="https://www.linkedin.com/in/an-dai-dinh-36180a219/">
   <img align="left" alt="Enda's LinkedIn" width="24px" src="https://img.icons8.com/nolan/96/linkedin.png" />
 </a>
-<a href="https://www.instagram.com/j.Endar/">
+<a href="https://www.instagram.com/d41dev_/">
   <img align="left" alt="Enda's Instagram" width="24px" src="https://img.icons8.com/nolan/96/instagram-new.png" />
 </a>
-<a href="https://twitter.com/TitanWithKagune">
+<a href="https://twitter.com/Enda18108282">
   <img align="left" alt="Enda's Twitter" width="24px" src="https://img.icons8.com/nolan/96/twitter.png" />
 </a>
 
@@ -23,8 +23,8 @@
 
 **About Me!**
 
-- 👨🏽‍💻 I’m currently a ISE Undergrad student at RNS Institute of Technology, Bangalore
-- 🌱 I’m currently exploring Blockchain with a big interest in Smart Contracts. 
+- 👨🏽‍💻 I’m Blockchain Developer,
+- 🌱 Experience with Web development, ready to learn more about Blockchain.
 - 💬 Ask me about anything, I love to answer!
 - 📫 Email me at [endadinh@gmail.com](mailto:endadinh@gmail.com).
 
@@ -33,12 +33,11 @@
 **Languages and Tools:**  
 
 
-<code><img height="20" src="https://img.icons8.com/nolan/96/python.png"></code> Python
+<code><img height="20" src="https://img.icons8.com/color/48/000000/javascript--v1.png"/></code> Javascript
 <code><img height="20" src="https://img.icons8.com/nolan/96/ethereum.png"></code> Solidity
-
-<code><img height="20" src="https://img.icons8.com/nolan/96/c-plus-plus.png"></code> C++
+<code><img height="20" src="https://img.icons8.com/dusk/64/000000/php-logo.png"/></code> PHP
+<code><img height="20" src="https://img.icons8.com/color/48/000000/vue-js.png"/></code> Vue
 <code><img height="20" src="https://img.icons8.com/nolan/96/sql.png"></code> MySQL
-
 <code><img height="20" src="https://img.icons8.com/nolan/96/git.png"></code> GIT
 
 <img src="https://github-readme-stats.vercel.app/api?username=endadinh&show_icons=true&hide_border=true&count_private=true&theme=shades-of-purple&icon_color=fad000" alt="Enda's GitHub Stats">
