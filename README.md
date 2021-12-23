@@ -1,4 +1,3 @@
-<script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
 <h2 title="hehehe"> Hey 👋, I'm Enda!</h2>
 
 <a href="https://www.linkedin.com/in/an-dai-dinh-36180a219/">
@@ -44,9 +43,6 @@
 <img src="https://github-readme-stats.vercel.app/api?username=endadinh&show_icons=true&hide_border=true&count_private=true&theme=shades-of-purple&icon_color=fad000" alt="Enda's GitHub Stats">
 <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=endadinh&count_private=true&theme=radical" alt="Enda" />
 <img align="center" width=500 src="https://github-readme-stats.vercel.app/api/top-langs/?username=endadinh&count_private=true&theme=radical" alt="Enda" />
------
-<h2> Linkedln Profile </h2>
-<div class="badge-base LI-profile-badge" data-locale="en_US" data-size="medium" data-theme="dark" data-type="VERTICAL" data-vanity="endadinh" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://vn.linkedin.com/in/endadinh?trk=profile-badge">An Dai Dinh</a></div>
 
 -----
 
