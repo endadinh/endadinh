@@ -46,6 +46,6 @@
 
 -----
 Credits: [Enda Dinh](https://github.com/endadinh)
-<div class="badge-base LI-profile-badge" data-locale="en_US" data-size="medium" data-theme="dark" data-type="VERTICAL" data-vanity="endadinh" data-version="v1"><a class="badge-base__link LI-simple-link" href="https://vn.linkedin.com/in/endadinh?trk=profile-badge">An Dai Dinh</a></div>
+
               
 Last Edited on: 20/06/2021
