@@ -6,7 +6,7 @@
 <a href="https://www.instagram.com/d41dev_/">
   <img align="left" alt="Enda's Instagram" width="24px" src="https://img.icons8.com/nolan/96/instagram-new.png" />
 </a>
-<a href="https://twitter.com/Enda18108282">
+<a href="https://twitter.com/endadinhh">
   <img align="left" alt="Enda's Twitter" width="24px" src="https://img.icons8.com/nolan/96/twitter.png" />
 </a>
 
