@@ -37,7 +37,6 @@
 <code><img height="20" src="https://img.icons8.com/nolan/96/ethereum.png"></code> Solidity
 <code><img src="https://img.icons8.com/office/16/000000/react.png"/></code> React
 <code><img height="20" src="https://img.icons8.com/dusk/64/000000/php-logo.png"/></code> PHP
-<code><img height="20" src="https://img.icons8.com/color/48/000000/vue-js.png"/></code> Vue
 <code><img height="20" src="https://img.icons8.com/nolan/96/sql.png"></code> MySQL
 <code><img height="20" src="https://img.icons8.com/nolan/96/git.png"></code> GIT
 
@@ -50,4 +49,4 @@
 Credits: [Enda Dinh](https://github.com/endadinh)
 
               
-Last Edited on: 20/06/2021
+Last Edited on: 29/03/2022
