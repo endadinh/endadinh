@@ -36,11 +36,7 @@
 <code><img height="20" src="https://img.icons8.com/color/48/000000/javascript--v1.png"/></code> Javascript
 <code><img height="20" src="https://img.icons8.com/nolan/96/ethereum.png"></code> Solidity
 <code><img src="https://img.icons8.com/office/16/000000/react.png"/></code> React
-<code><img height="20" src="https://img.icons8.com/dusk/64/000000/php-logo.png"/></code> PHP
-<code><img height="20" src="https://img.icons8.com/nolan/96/sql.png"></code> MySQL
-<code><img height="20" src="https://img.icons8.com/nolan/96/git.png"></code> GIT
 
-<img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=endadinh&count_private=true&theme=radical" alt="Enda" />
 
 -----
 
