@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe. "</i></h5>**
+**<h5><i>" I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
