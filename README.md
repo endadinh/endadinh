@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditate … do not delay, lest you later regret it. "</i></h5>**
+**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
