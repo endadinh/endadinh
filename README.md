@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing diminishes anxiety faster than action. "</i></h5>**
+**<h5><i>" We all live with the objective of being happy; our lives are all different and yet the same. "</i></h5>**
 
-*<b>___ Walter Inglis Anderson ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
