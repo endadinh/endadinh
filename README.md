@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
