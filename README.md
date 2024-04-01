@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be a first-rate version of yourself, instead of a second-rate version of somebody else. "</i></h5>**
+**<h5><i>" Love does not consist of gazing at each other, but in looking together in the same direction. "</i></h5>**
 
-*<b>___ Judy Garland ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
