@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
