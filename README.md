@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
+**<h5><i>" A wise person should be urgently moved on occasions that make for urgency. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
