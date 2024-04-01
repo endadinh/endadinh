@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
+**<h5><i>" Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Marilyn Monroe ___</b>*
 
 -----
 
