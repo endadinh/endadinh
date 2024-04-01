@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An appeaser is one who feeds a crocodile, hoping it will eat him last. "</i></h5>**
+**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
