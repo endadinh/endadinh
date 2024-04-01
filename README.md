@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
