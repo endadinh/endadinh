@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
+**<h5><i>" Adversity causes some men to break, others to break records. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
