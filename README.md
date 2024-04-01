@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
