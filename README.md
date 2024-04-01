@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing strengthens authority so much as silence. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
