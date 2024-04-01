@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. "</i></h5>**
+**<h5><i>" Remember that a gesture of friendship, no matter how small, is always appreciated. "</i></h5>**
 
-*<b>___ Marilyn Monroe ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
