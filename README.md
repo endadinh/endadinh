@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men make more opportunities than they find. "</i></h5>**
+**<h5><i>" You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
