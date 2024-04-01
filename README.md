@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
+**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Alexander Chalmers ___</b>*
 
 -----
 
