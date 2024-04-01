@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man was ever wise by chance. "</i></h5>**
+**<h5><i>" Meditate … do not delay, lest you later regret it. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
