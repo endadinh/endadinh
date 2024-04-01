@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own. "</i></h5>**
+**<h5><i>" Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. "</i></h5>**
 
-*<b>___ Jessamyn West ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
