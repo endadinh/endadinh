@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We all live with the objective of being happy; our lives are all different and yet the same. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
