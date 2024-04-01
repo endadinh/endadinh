@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
+**<h5><i>" To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
