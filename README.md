@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
