@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
