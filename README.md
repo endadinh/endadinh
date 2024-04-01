@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
+**<h5><i>" The poor man is not he who is without a cent, but he who is without a dream. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Harry Kemp ___</b>*
 
 -----
 
