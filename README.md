@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. "</i></h5>**
+**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
