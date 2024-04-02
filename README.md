@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
+**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Alexander the Great ___</b>*
 
 -----
 
