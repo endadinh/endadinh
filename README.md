@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" Friendship always benefits; love sometimes injures. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
