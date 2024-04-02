@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. "</i></h5>**
+**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
