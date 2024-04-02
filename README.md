@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When in doubt, tell the truth. "</i></h5>**
+**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Joyce Meyer ___</b>*
 
 -----
 
