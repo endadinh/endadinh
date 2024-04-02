@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
+**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
