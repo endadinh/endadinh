@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
