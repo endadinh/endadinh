@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man who doesn't trust himself can never really trust anyone else. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ Jean François Paul de Gondi ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
