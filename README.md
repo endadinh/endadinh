@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
 
 *<b>___ Abraham Lincoln ___</b>*
 
