@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are three faithful friends - an old wife, an old dog, and ready money. "</i></h5>**
+**<h5><i>" Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Louis Pasteur ___</b>*
 
 -----
 
