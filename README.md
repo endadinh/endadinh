@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others. "</i></h5>**
+**<h5><i>" Rejoicing in our joy, not suffering over our suffering, makes someone a friend. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
