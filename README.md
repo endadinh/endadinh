@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know oneself is to study oneself in action with another person. "</i></h5>**
+**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
