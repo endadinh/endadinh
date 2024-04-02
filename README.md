@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good decision is based on knowledge and not on numbers. "</i></h5>**
+**<h5><i>" There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
