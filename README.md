@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. "</i></h5>**
+**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
