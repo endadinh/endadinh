@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
