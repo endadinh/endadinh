@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is found only in truth. "</i></h5>**
+**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Murray Gell-Mann ___</b>*
 
 -----
 
