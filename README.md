@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be great is to be misunderstood. "</i></h5>**
+**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
