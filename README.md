@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
+**<h5><i>" We gain the strength of the temptation we resist. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
