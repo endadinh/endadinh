@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The cause is hidden. The effect is visible to all. "</i></h5>**
+**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ John Astin ___</b>*
 
 -----
 
