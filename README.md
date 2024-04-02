@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
