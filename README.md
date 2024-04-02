@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
