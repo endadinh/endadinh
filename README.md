@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
+**<h5><i>" Our work is the presentation of our capabilities. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Edward Gibbon ___</b>*
 
 -----
 
