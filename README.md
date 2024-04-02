@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
