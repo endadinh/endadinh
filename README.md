@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
+**<h5><i>" People may doubt what you say, but they will believe what you do. "</i></h5>**
 
-*<b>___ Corita Kent ___</b>*
+*<b>___ Lewis Cass ___</b>*
 
 -----
 
