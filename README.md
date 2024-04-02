@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing permanent except change. "</i></h5>**
+**<h5><i>" You can't cross the sea merely by standing and staring at the water. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
