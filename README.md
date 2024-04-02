@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No yesterdays are ever wasted for those who give themselves to today. "</i></h5>**
+**<h5><i>" Love is a friendship set to music. "</i></h5>**
 
-*<b>___ Brendan Behan ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
