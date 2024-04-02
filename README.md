@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
+**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
 
-*<b>___ Jonathan Swift ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
