@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success - to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
