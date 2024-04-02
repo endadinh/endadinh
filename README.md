@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. "</i></h5>**
+**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
