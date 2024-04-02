@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good, better, best. Never let it rest. ‘Til your good is better and your better is best. "</i></h5>**
+**<h5><i>" If you can't feed a hundred people, then feed just one. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
