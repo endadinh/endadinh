@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? "</i></h5>**
+**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
 
-*<b>___ Rabbi Hillel ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
