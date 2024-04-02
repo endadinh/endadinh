@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
+**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
