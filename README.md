@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it. "</i></h5>**
+**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Charlotte Perkins Gilman ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
