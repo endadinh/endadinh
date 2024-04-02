@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
+**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
