@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a friendship set to music. "</i></h5>**
+**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
