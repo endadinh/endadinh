@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't cross the sea merely by standing and staring at the water. "</i></h5>**
+**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
 
-*<b>___ Rabindranath Tagore ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
