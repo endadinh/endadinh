@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
+**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
