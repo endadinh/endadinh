@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
+**<h5><i>" It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
