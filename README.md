@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
+**<h5><i>" Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
