@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
+**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
