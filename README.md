@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Joyce Meyer ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
