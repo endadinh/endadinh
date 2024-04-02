@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Inspiration exists, but it has to find us working. "</i></h5>**
+**<h5><i>" Wisdom is found only in truth. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
