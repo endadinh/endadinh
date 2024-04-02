@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Henri Poincaré ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
