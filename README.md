@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
