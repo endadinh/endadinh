@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do something wonderful, people may imitate it. "</i></h5>**
+**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
