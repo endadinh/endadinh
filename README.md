@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
+**<h5><i>" There is nothing permanent except change. "</i></h5>**
 
-*<b>___ Frederick Douglass ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
