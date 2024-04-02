@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
+**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
 
-*<b>___ John Astin ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
