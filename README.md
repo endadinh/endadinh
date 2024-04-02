@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
