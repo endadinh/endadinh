@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
+**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
