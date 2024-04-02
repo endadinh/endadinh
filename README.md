@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
