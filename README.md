@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
