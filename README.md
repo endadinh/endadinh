@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
+**<h5><i>" Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
