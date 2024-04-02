@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
+**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
