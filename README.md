@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The human spirit must prevail over technology. "</i></h5>**
+**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ May Sarton ___</b>*
 
 -----
 
