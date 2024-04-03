@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one corner of the universe you can be certain of improving, and that's your own self. "</i></h5>**
+**<h5><i>" Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another? "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
