@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
