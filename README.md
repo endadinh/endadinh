@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ William Penn ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
