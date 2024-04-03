@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
+**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
