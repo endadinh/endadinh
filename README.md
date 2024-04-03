@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
+**<h5><i>" You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
