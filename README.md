@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
