@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" It is better to understand a little than to misunderstand a lot. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
