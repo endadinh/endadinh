@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
+**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
 
-*<b>___ Archimedes ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
