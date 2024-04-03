@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another? "</i></h5>**
+**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Dwight D. Eisenhower ___</b>*
 
 -----
 
