@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What worries you masters you. "</i></h5>**
+**<h5><i>" If you want a thing done well, do it yourself. "</i></h5>**
 
-*<b>___ Haddon Robinson ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
