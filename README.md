@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
+**<h5><i>" Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
