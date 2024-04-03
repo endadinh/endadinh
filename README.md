@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All is flux; nothing stays still. "</i></h5>**
+**<h5><i>" What worries you masters you. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Haddon Robinson ___</b>*
 
 -----
 
