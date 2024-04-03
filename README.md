@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Alfred Adler ___</b>*
 
 -----
 
