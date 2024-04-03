@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
+**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
 
-*<b>___ Pope Paul VI ___</b>*
+*<b>___ Tom Peters ___</b>*
 
 -----
 
