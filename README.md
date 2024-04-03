@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not turn back when you are just at the goal. "</i></h5>**
+**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
