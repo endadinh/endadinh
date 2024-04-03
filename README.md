@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Julie Morgenstern ___</b>*
 
 -----
 
