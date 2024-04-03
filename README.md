@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man does his best, what else is there? "</i></h5>**
+**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
