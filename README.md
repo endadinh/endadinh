@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be sure you put your feet in the right place, then stand firm. "</i></h5>**
+**<h5><i>" Strength does not come from physical capacity. It comes from an indomitable will. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
