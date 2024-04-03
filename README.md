@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. "</i></h5>**
+**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
