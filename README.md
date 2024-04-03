@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
+**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
