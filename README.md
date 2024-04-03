@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
+**<h5><i>" It's not what you look at that matters, it's what you see. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
