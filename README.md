@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ William Penn ___</b>*
 
 -----
 
