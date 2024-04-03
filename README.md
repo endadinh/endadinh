@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
+**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Norman Douglas ___</b>*
 
 -----
 
