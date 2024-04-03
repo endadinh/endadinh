@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
+**<h5><i>" The person who lives life fully, glowing with life's energy, is the person who lives a successful life. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
