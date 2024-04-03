@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
+**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
 
-*<b>___ Sai Baba ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
