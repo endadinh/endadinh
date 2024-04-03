@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
+**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
 
-*<b>___ May Sarton ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
