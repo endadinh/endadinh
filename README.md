@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
+**<h5><i>" But I'll tell you what hermits realize. If you go off into a far, far forest and get very quiet, you'll come to understand that you're connected with everything. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
