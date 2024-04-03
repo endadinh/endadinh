@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
+**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Dwight D. Eisenhower ___</b>*
 
 -----
 
