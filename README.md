@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want a thing done well, do it yourself. "</i></h5>**
+**<h5><i>" Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
