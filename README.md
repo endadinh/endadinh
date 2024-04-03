@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
+**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
