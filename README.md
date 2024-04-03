@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
+**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Sai Baba ___</b>*
 
 -----
 
