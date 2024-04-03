@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is better to understand a little than to misunderstand a lot. "</i></h5>**
+**<h5><i>" The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
