@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be ignorant of a matter than half know it. "</i></h5>**
+**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
