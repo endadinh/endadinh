@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
