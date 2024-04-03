@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
+**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
