@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
+**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
 
-*<b>___ Mike Singletary (basketball) ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
