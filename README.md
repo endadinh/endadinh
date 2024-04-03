@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. "</i></h5>**
+**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
