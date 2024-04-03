@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
