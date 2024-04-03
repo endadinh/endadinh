@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
+**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
