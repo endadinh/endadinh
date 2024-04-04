@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. "</i></h5>**
+**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
 
-*<b>___ Theodore Isaac Rubin ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
