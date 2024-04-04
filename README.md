@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
+**<h5><i>" Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Theodore Isaac Rubin ___</b>*
 
 -----
 
