@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions. "</i></h5>**
+**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
