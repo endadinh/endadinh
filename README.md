@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
