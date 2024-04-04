@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
+**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
