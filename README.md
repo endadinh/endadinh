@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
+**<h5><i>" The best thing in every noble dream is the dreamer... "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Moncure D. Conway ___</b>*
 
 -----
 
