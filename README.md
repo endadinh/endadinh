@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
+**<h5><i>" Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!' "</i></h5>**
 
-*<b>___ Arthur Rubinstein ___</b>*
+*<b>___ Bill Bradley ___</b>*
 
 -----
 
