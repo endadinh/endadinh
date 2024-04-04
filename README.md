@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
+**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
