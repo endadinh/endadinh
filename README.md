@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
+**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
