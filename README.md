@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
+**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Theodore H. White ___</b>*
 
 -----
 
