@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can conquer who believe they can. "</i></h5>**
+**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Samuel Butler ___</b>*
 
 -----
 
