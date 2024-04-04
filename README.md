@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
+**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Arthur Rubinstein ___</b>*
 
 -----
 
