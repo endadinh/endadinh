@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
