@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" The ladder of success is never crowded at the top. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
