@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
