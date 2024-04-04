@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
+**<h5><i>" To hell with circumstances, I create opportunities. "</i></h5>**
 
-*<b>___ Samuel Taylor Coleridge ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
