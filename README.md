@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
+**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Jonathan Swift ___</b>*
 
 -----
 
