@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
+**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
