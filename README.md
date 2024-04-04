@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
+**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
