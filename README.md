@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ladder of success is never crowded at the top. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
