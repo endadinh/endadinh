@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
+**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
