@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
+**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
