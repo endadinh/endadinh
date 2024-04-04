@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
+**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
