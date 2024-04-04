@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
