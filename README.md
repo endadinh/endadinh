@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
