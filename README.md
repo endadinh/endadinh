@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
+**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
 
-*<b>___ Theodore H. White ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
