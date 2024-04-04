@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
+**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ James F. Byrnes ___</b>*
 
 -----
 
