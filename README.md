@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
+**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
