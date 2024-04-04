@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most people get interested in stocks when everyone else is. The time to get interested is when no one else is. You can't buy what is popular and do well. "</i></h5>**
+**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
