@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak low, if you speak love. "</i></h5>**
+**<h5><i>" Friendship is Love without his wings! "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
