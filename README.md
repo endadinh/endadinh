@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
+**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
