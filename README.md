@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" The journey of a thousand miles begins with one step. "</i></h5>**
+**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
 
 *<b>___ Laozi ___</b>*
 
