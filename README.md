@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
+**<h5><i>" Love is blind; friendship closes its eyes. "</i></h5>**
 
-*<b>___ Edwin Markham ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
