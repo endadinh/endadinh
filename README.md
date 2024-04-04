@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To hell with circumstances, I create opportunities. "</i></h5>**
+**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ William Hazlitt ___</b>*
 
 -----
 
