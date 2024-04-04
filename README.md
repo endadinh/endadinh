@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
