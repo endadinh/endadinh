@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
+**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
