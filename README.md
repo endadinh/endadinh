@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
+**<h5><i>" Most people get interested in stocks when everyone else is. The time to get interested is when no one else is. You can't buy what is popular and do well. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
