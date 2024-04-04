@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
+**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Edwin Markham ___</b>*
 
 -----
 
