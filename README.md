@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
+**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
 
-*<b>___ James F. Byrnes ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
