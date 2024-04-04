@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ Vernon Cooper ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
