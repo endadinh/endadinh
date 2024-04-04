@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
+**<h5><i>" Without courage, wisdom bears no fruit. "</i></h5>**
 
-*<b>___ Ludwig van Beethoven ___</b>*
+*<b>___ Baltasar Gracián ___</b>*
 
 -----
 
