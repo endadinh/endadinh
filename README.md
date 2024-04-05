@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg. "</i></h5>**
+**<h5><i>" Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
