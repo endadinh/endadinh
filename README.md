@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
