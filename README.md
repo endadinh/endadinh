@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
+**<h5><i>" Work while you have the light. You are responsible for the talent that has been entrusted to you. "</i></h5>**
 
-*<b>___ Bobby Unser ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
