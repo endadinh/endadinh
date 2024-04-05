@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
