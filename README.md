@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. "</i></h5>**
+**<h5><i>" It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Edward de Bono ___</b>*
 
 -----
 
