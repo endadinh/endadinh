@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The years teach much which the days never know. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
