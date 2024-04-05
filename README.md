@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
