@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
+**<h5><i>" Give whatever you are doing and whoever you are with the gift of your attention. "</i></h5>**
 
-*<b>___ Dag Hammarskjöld ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
