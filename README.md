@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" Real magic in relationships means an absence of judgement of others. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
