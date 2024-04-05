@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ William Hazlitt ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
