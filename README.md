@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So is cheerfulness, or a good temper, the more it is spent, the more remains. "</i></h5>**
+**<h5><i>" Miracles come in moments. Be ready and willing. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
