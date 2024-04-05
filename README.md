@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
+**<h5><i>" Real magic in relationships means an absence of judgement of others. "</i></h5>**
 
-*<b>___ William Hazlitt ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
