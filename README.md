@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best. "</i></h5>**
+**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
 
-*<b>___ Margaret Thatcher ___</b>*
+*<b>___ P. G. Wodehouse ___</b>*
 
 -----
 
