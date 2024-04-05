@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
