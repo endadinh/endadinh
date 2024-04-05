@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give whatever you are doing and whoever you are with the gift of your attention. "</i></h5>**
+**<h5><i>" Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
