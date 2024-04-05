@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions. "</i></h5>**
+**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
 
-*<b>___ Yoko Ono ___</b>*
+*<b>___ Janis Joplin ___</b>*
 
 -----
 
