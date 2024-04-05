@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
+**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
