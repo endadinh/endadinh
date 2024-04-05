@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
+**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
