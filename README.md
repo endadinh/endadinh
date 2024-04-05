@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Real magic in relationships means an absence of judgement of others. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
