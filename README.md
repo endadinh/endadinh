@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
+**<h5><i>" Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
