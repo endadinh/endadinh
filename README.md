@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A rolling stone gathers no moss. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
