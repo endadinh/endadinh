@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep your face always toward the sunshine - and shadows will fall behind you. "</i></h5>**
+**<h5><i>" Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. "</i></h5>**
 
-*<b>___ Walt Whitman ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
