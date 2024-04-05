@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
