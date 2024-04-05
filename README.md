@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" So is cheerfulness, or a good temper, the more it is spent, the more remains. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
