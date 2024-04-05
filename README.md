@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
 *<b>___ Ralph Waldo Emerson ___</b>*
 
