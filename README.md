@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
+**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
