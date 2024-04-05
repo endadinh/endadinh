@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world. "</i></h5>**
+**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
