@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
+**<h5><i>" If you are out to describe the truth, leave elegance to the tailor. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
