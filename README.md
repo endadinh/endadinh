@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
+**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
