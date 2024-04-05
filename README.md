@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. "</i></h5>**
+**<h5><i>" The person who lives life fully, glowing with life's energy, is the person who lives a successful life. "</i></h5>**
 
-*<b>___ Richard Burton ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
