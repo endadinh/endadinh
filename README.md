@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
+**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
