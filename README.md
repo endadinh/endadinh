@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are out to describe the truth, leave elegance to the tailor. "</i></h5>**
+**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
