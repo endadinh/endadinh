@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. "</i></h5>**
+**<h5><i>" Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Yoko Ono ___</b>*
 
 -----
 
