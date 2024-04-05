@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
+**<h5><i>" What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. "</i></h5>**
 
-*<b>___ Janis Joplin ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
