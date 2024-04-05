@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work. "</i></h5>**
+**<h5><i>" The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
