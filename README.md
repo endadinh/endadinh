@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" Fortune favors the brave. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
