@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. "</i></h5>**
+**<h5><i>" Train up a fig tree in the way it should go, and when you are old sit under the shade of it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
