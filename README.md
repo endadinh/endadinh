@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
+**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
