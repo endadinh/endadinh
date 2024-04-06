@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. "</i></h5>**
+**<h5><i>" I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose. "</i></h5>**
 
-*<b>___ Hannah Szenes ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
