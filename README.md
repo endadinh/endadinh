@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
+**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
 
-*<b>___ E. M. Forster ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
