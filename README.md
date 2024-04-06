@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not bound to win, but I am bound to be true. I am not bound to succeed, but I am bound to live by the light that I have. I must stand with anybody that stands right, and stand with him while he is right, and part with him when he goes wrong. "</i></h5>**
+**<h5><i>" I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Marilyn Monroe ___</b>*
 
 -----
 
