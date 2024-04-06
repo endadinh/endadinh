@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
+**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
