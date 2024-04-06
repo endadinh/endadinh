@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
+**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
