@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
+**<h5><i>" Most folks are as happy as they make up their minds to be. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
