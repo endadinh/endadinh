@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out. "</i></h5>**
+**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
