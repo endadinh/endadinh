@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
+**<h5><i>" We love life, not because we are used to living but because we are used to loving. "</i></h5>**
 
-*<b>___ George Bernard Shaw ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
