@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
+**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
 
-*<b>___ Kurt Vonnegut ___</b>*
+*<b>___ E. M. Forster ___</b>*
 
 -----
 
