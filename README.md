@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
