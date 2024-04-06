@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
+**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
