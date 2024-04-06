@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who trusts men will make fewer mistakes than he who distrusts them. "</i></h5>**
+**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
 
-*<b>___ Camillo Benso, Count of Cavour ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
