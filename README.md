@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cunning... is but the low mimic of wisdom. "</i></h5>**
+**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
