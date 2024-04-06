@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
+**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
