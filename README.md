@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The fox has many tricks. The hedgehog has but one. But that is the best of all. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ Erasmus ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
