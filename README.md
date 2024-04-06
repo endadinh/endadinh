@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
+**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Pierrakos ___</b>*
 
 -----
 
