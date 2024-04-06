@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
+**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Rita Mae Brown ___</b>*
 
 -----
 
