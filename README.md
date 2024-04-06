@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no failures. Just experiences and your reactions to them. "</i></h5>**
+**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
 
-*<b>___ Tom Krause ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
