@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most people because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
