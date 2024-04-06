@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We love life, not because we are used to living but because we are used to loving. "</i></h5>**
+**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
