@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
+**<h5><i>" The fox has many tricks. The hedgehog has but one. But that is the best of all. "</i></h5>**
 
-*<b>___ Dan Gable ___</b>*
+*<b>___ Erasmus ___</b>*
 
 -----
 
