@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
+**<h5><i>" The only way to make sense out of change is to plunge into it, move with it, and join the dance. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
