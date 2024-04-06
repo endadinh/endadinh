@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way out is always through. "</i></h5>**
+**<h5><i>" Opportunity is missed by most people because it is dressed in overalls and looks like work. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
