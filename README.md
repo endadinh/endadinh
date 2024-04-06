@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
+**<h5><i>" No man is free who is not master of himself. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
