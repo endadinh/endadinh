@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
