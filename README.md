@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
+**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
 
-*<b>___ Phyllis Grissim-Theroux ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
