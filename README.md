@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Train up a fig tree in the way it should go, and when you are old sit under the shade of it. "</i></h5>**
+**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
