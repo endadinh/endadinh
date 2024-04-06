@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake motion for action. "</i></h5>**
+**<h5><i>" The world is round and the place which may seem like the end may also be the beginning. "</i></h5>**
 
-*<b>___ Ernest Hemingway ___</b>*
+*<b>___ Ivy Baker Priest ___</b>*
 
 -----
 
