@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round and the place which may seem like the end may also be the beginning. "</i></h5>**
+**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
 
-*<b>___ Ivy Baker Priest ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
