@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
+**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
