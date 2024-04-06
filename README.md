@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
