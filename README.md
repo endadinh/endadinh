@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth. "</i></h5>**
+**<h5><i>" Continuous effort - not strength or intelligence - is the key to unlocking our potential. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
