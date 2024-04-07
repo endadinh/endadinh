@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Molière ___</b>*
 
 -----
 
