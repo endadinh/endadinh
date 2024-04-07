@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
+**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ Jimmy Dean ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
