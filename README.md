@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
+**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
 
-*<b>___ Robert F. Kennedy ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
