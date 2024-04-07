@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My friends are my estate. "</i></h5>**
+**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
 
-*<b>___ Emily Dickinson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
