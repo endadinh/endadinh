@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
+**<h5><i>" He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
