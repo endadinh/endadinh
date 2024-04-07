@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Continuous effort - not strength or intelligence - is the key to unlocking our potential. "</i></h5>**
+**<h5><i>" My friends are my estate. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Emily Dickinson ___</b>*
 
 -----
 
