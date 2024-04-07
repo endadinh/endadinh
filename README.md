@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We could never learn to be brave and patient if there were only joy in the world. "</i></h5>**
+**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
