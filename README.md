@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
+**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Etty Hillesum ___</b>*
 
 -----
 
