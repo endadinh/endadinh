@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man was ever wise by chance. "</i></h5>**
+**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Jimmy Dean ___</b>*
 
 -----
 
