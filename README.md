@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing will work unless you do. "</i></h5>**
+**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
