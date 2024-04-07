@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
