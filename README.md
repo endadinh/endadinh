@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
+**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
 
-*<b>___ Kathleen Norris ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
