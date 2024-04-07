@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ Farhan Akhtar ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
