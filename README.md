@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. "</i></h5>**
+**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
 
-*<b>___ Max Planck ___</b>*
+*<b>___ May Sarton ___</b>*
 
 -----
 
