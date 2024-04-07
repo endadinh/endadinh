@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
+**<h5><i>" Appearances are often deceiving. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
