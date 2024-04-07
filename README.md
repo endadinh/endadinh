@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
+**<h5><i>" Think like a man of action; act like a man of thought. "</i></h5>**
 
-*<b>___ Richard Garriott ___</b>*
+*<b>___ Henri Bergson ___</b>*
 
 -----
 
