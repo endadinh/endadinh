@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose. "</i></h5>**
+**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
