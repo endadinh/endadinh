@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
