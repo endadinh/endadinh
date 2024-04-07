@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
+**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
