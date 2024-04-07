@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ Farhan Akhtar ___</b>*
 
 -----
 
