@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
