@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
