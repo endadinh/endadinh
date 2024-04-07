@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
+**<h5><i>" He is no fool who gives what he cannot keep to gain what he cannot lose. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jim Elliot ___</b>*
 
 -----
 
