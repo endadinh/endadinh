@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
