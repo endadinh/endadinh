@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much wisdom often goes with fewest words. "</i></h5>**
+**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
