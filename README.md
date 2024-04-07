@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions. "</i></h5>**
+**<h5><i>" All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out. "</i></h5>**
 
-*<b>___ Yoko Ono ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
