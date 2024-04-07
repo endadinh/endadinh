@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. "</i></h5>**
+**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
 
-*<b>___ Doug Larson ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
