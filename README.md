@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think like a man of action; act like a man of thought. "</i></h5>**
+**<h5><i>" We could never learn to be brave and patient if there were only joy in the world. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
