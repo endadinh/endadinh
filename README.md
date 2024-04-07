@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appearances are often deceiving. "</i></h5>**
+**<h5><i>" Nothing will work unless you do. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
