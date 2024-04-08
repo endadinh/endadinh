@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one is useless in this world who lightens the burdens of another. "</i></h5>**
+**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
