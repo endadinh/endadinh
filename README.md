@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing. "</i></h5>**
+**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
 
-*<b>___ Elie Wiesel ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
