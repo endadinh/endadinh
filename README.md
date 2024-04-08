@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who lives in harmony with himself lives in harmony with the world. "</i></h5>**
+**<h5><i>" Two persons cannot long be friends if they cannot forgive each other's little failings. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Jean de La Bruyère ___</b>*
 
 -----
 
