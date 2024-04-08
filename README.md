@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
+**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
