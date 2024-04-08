@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
