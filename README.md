@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
