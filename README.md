@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only person who never makes mistakes is the person who never does anything. "</i></h5>**
+**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Pierre-Auguste Renoir ___</b>*
 
 -----
 
