@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
+**<h5><i>" Truth is powerful and it prevails. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Sojourner Truth ___</b>*
 
 -----
 
