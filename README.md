@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
+**<h5><i>" Change in all things is sweet. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
