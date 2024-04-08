@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
+**<h5><i>" We know the truth, not only by the reason, but by the heart. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
