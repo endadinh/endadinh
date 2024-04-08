@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. "</i></h5>**
+**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
 
-*<b>___ Max Planck ___</b>*
+*<b>___ Robert Graves ___</b>*
 
 -----
 
