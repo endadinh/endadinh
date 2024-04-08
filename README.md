@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
+**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
