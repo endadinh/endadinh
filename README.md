@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Joseph Addison ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
