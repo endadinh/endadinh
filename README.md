@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
+**<h5><i>" I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Harbhajan Singh ___</b>*
 
 -----
 
