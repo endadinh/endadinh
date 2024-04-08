@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
+**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
