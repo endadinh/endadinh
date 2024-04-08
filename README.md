@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" You'll see it when you believe it. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
