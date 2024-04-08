@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
+**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
