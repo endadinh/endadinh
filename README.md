@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Abigail Adams ___</b>*
 
 -----
 
