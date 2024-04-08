@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
+**<h5><i>" A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. "</i></h5>**
 
-*<b>___ Robert Graves ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
