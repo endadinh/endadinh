@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" Strength does not come from physical capacity. It comes from an indomitable will. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
