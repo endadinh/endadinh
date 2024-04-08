@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change in all things is sweet. "</i></h5>**
+**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
