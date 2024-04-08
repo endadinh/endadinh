@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We've got to have a dream if we are going to make a dream come true. "</i></h5>**
+**<h5><i>" We don't stop playing because we grow old; we grow old because we stop playing. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
