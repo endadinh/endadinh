@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
