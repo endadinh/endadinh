@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. "</i></h5>**
+**<h5><i>" Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. "</i></h5>**
 
-*<b>___ Harbhajan Singh ___</b>*
+*<b>___ Steven Van Zandt ___</b>*
 
 -----
 
