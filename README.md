@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't stop playing because we grow old; we grow old because we stop playing. "</i></h5>**
+**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
