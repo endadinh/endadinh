@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strength does not come from physical capacity. It comes from an indomitable will. "</i></h5>**
+**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
