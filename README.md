@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is powerful and it prevails. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Sojourner Truth ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
