@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
+**<h5><i>" He is no fool who gives what he cannot keep to gain what he cannot lose. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Jim Elliot ___</b>*
 
 -----
 
