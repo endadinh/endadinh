@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People are not lazy. They simply have impotent goals - that is, goals that do not inspire them. "</i></h5>**
+**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
