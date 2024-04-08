@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
