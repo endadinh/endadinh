@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
+**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
 
-*<b>___ John Quincy Adams ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
