@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
+**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
