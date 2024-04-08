@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
+**<h5><i>" You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one. "</i></h5>**
 
-*<b>___ Dan Gable ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
