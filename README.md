@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. "</i></h5>**
+**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ed Cunningham ___</b>*
 
 -----
 
