@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The shoe that fits one person pinches another; there is no recipe for living that suits all cases. "</i></h5>**
+**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
