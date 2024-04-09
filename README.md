@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
+**<h5><i>" The truth is not for all men, but only for those who seek it. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
