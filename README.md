@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History is written by the victors. "</i></h5>**
+**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Louisa May Alcott ___</b>*
 
 -----
 
