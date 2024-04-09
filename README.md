@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
+**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
