@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
+**<h5><i>" Can you imagine what I would do if I could do all I can? "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Sun Tzu ___</b>*
 
 -----
 
