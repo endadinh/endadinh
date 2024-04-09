@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
+**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
