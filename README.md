@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
+**<h5><i>" Trust yourself. You know more than you think you do. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Benjamin Spock ___</b>*
 
 -----
 
