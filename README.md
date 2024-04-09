@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
+**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Pierre-Auguste Renoir ___</b>*
 
 -----
 
