@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. "</i></h5>**
+**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
