@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health. "</i></h5>**
+**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
