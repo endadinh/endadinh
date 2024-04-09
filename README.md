@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
+**<h5><i>" Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
