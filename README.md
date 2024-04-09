@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. "</i></h5>**
+**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
 
-*<b>___ Margaret Thatcher ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
