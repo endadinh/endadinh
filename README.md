@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
+**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
 
-*<b>___ Sam Rayburn ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
