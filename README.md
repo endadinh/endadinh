@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To listen well is as powerful a means of communication and influence as to talk well. "</i></h5>**
+**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
 
-*<b>___ John Marshall ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
