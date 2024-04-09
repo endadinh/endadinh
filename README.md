@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
+**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
 
-*<b>___ Margaret Cousins ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
