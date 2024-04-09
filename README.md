@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
