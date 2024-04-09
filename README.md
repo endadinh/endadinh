@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
+**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
