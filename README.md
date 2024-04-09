@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is divided into the horrible and the miserable. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
