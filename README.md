@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust yourself. You know more than you think you do. "</i></h5>**
+**<h5><i>" If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. "</i></h5>**
 
-*<b>___ Benjamin Spock ___</b>*
+*<b>___ Margaret Thatcher ___</b>*
 
 -----
 
