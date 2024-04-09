@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ Louisa May Alcott ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
