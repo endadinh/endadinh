@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
+**<h5><i>" History is written by the victors. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
