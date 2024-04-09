@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
+**<h5><i>" Courage is going from failure to failure without losing enthusiasm. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
