@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
+**<h5><i>" To listen well is as powerful a means of communication and influence as to talk well. "</i></h5>**
 
-*<b>___ Benjamin Haydon ___</b>*
+*<b>___ John Marshall ___</b>*
 
 -----
 
