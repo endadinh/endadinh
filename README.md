@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
+**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
