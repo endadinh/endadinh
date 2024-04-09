@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
+**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
