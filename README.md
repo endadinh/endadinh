@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is powerful and it prevails. "</i></h5>**
+**<h5><i>" The shoe that fits one person pinches another; there is no recipe for living that suits all cases. "</i></h5>**
 
-*<b>___ Sojourner Truth ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
