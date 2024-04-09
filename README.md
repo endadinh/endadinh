@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. "</i></h5>**
+**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
