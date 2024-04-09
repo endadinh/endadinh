@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
+**<h5><i>" Fear makes strangers of people who would be friends. "</i></h5>**
 
-*<b>___ Christie Brinkley ___</b>*
+*<b>___ Shirley MacLaine ___</b>*
 
 -----
 
