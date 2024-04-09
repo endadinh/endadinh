@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth is not for all men, but only for those who seek it. "</i></h5>**
+**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
