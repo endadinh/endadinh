@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Thomas à Kempis ___</b>*
 
 -----
 
