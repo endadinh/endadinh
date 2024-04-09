@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" Commitment is an act, not a word. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
