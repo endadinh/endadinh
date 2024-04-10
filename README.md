@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
+**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
 
-*<b>___ Simon Mainwaring ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
