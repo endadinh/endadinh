@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be ignorant of a matter than half know it. "</i></h5>**
+**<h5><i>" It's only when the tide goes out that you discover who's been swimming naked. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
