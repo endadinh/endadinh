@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
+**<h5><i>" A friend is one who knows you and loves you just the same. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
