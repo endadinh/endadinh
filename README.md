@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. "</i></h5>**
+**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Montesquieu ___</b>*
 
 -----
 
