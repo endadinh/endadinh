@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. "</i></h5>**
+**<h5><i>" The heart has eyes which the brain knows nothing of. "</i></h5>**
 
-*<b>___ Joan Rivers ___</b>*
+*<b>___ Charles Henry Parkhurst ___</b>*
 
 -----
 
