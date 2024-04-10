@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is the language which the deaf can hear and the blind can see. "</i></h5>**
+**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
