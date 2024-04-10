@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
+**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Julie Morgenstern ___</b>*
 
 -----
 
