@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
