@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
+**<h5><i>" You cannot escape the responsibility of tomorrow by evading it today. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
