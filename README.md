@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
+**<h5><i>" You just can't beat the person who never gives up. "</i></h5>**
 
-*<b>___ Rose Kennedy ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
