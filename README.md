@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
+**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
 
-*<b>___ Paulo Coelho ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
