@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's only when the tide goes out that you discover who's been swimming naked. "</i></h5>**
+**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
