@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
