@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
+**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Rose Kennedy ___</b>*
 
 -----
 
