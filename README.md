@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the flower for which love is the honey. "</i></h5>**
+**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
 
-*<b>___ Victor Hugo ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
