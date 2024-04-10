@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. "</i></h5>**
+**<h5><i>" We are masters of the unsaid words, but slaves of those we let slip out. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
