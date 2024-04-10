@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most people are about as happy as they make up their minds to be "</i></h5>**
+**<h5><i>" There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
