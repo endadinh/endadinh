@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
+**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
 
-*<b>___ Janis Joplin ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
