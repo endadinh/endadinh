@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do all things with love. "</i></h5>**
+**<h5><i>" You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
