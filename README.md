@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
+**<h5><i>" You really can change the world if you care enough. "</i></h5>**
 
-*<b>___ John Berry ___</b>*
+*<b>___ Marian Wright Edelman ___</b>*
 
 -----
 
