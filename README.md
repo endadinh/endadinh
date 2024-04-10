@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
+**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
