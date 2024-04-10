@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
