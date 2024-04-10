@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
