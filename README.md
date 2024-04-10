@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
