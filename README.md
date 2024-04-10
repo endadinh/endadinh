@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are many ways of going forward, but only one way of standing still. "</i></h5>**
+**<h5><i>" Those who dream by day are cognizant of many things which escape those who dream only by night. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
