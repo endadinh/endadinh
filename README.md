@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
+**<h5><i>" There are many ways of going forward, but only one way of standing still. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
