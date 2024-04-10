@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the neglect of timely repair that makes rebuilding necessary. "</i></h5>**
+**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
 
-*<b>___ Richard Whately ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
