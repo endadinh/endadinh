@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You really can change the world if you care enough. "</i></h5>**
+**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
