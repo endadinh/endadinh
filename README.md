@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has eyes which the brain knows nothing of. "</i></h5>**
+**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
 
-*<b>___ Charles Henry Parkhurst ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
