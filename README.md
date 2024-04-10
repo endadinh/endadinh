@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
+**<h5><i>" Most people are about as happy as they make up their minds to be "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
