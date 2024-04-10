@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dream by day are cognizant of many things which escape those who dream only by night. "</i></h5>**
+**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
 
-*<b>___ Edgar Allan Poe ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
