@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
+**<h5><i>" Do all things with love. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
