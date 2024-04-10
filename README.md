@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
