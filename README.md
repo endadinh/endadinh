@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of knowledge is the discovery of something we do not understand. "</i></h5>**
+**<h5><i>" It is the neglect of timely repair that makes rebuilding necessary. "</i></h5>**
 
-*<b>___ Frank Herbert ___</b>*
+*<b>___ Richard Whately ___</b>*
 
 -----
 
