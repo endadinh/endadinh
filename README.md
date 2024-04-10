@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
+**<h5><i>" Kindness is the language which the deaf can hear and the blind can see. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
