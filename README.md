@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
+**<h5><i>" You've got to go out on a limb sometimes because that's where the fruit is. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
