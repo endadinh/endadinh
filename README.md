@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ E. M. Forster ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
