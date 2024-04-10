@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
+**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Janis Joplin ___</b>*
 
 -----
 
