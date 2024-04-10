@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I had three chairs in my house; one for solitude, two for friendship, three for society. "</i></h5>**
+**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
