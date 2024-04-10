@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
+**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
