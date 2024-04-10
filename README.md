@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no expedient to which a man will not go to avoid the labor of thinking. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
