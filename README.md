@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" Our most intimate friend is not he to whom we show the worst, but the best of our nature. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
