@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
+**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
 
-*<b>___ Loretta Young ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
