@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
