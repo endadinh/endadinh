@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
+**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
