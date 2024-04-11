@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
+**<h5><i>" Love is blind; friendship closes its eyes. "</i></h5>**
 
-*<b>___ Nargis Fakhri ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
