@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
