@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strength does not come from physical capacity. It comes from an indomitable will. "</i></h5>**
+**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
