@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
+**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
