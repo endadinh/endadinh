@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
