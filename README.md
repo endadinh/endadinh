@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
+**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
