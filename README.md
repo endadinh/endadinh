@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
