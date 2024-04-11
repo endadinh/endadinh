@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Setting goals is the first step in turning the invisible into the visible. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
