@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. "</i></h5>**
+**<h5><i>" Setting goals is the first step in turning the invisible into the visible. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
