@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is blind; friendship closes its eyes. "</i></h5>**
+**<h5><i>" Some people are born on third base and go through life thinking they hit a triple. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Barry Switzer ___</b>*
 
 -----
 
