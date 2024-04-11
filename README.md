@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
+**<h5><i>" Strength does not come from physical capacity. It comes from an indomitable will. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
