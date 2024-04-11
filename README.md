@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Jimmy Dean ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
