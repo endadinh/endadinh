@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
