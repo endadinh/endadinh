@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
+**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
