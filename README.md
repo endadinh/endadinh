@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Peter Abelard ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
