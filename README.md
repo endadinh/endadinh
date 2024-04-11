@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
+**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
