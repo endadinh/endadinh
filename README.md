@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In skating over thin ice our safety is in our speed. "</i></h5>**
+**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
