@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
+**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
 
-*<b>___ J. Willard Marriott ___</b>*
+*<b>___ Loretta Young ___</b>*
 
 -----
 
