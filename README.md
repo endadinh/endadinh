@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
