@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each misfortune you encounter will carry in it the seed of tomorrows good luck. "</i></h5>**
+**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
