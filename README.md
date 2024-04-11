@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
+**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
