@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity. "</i></h5>**
+**<h5><i>" When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
