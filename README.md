@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. "</i></h5>**
+**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
 
-*<b>___ Billy Wilder ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
