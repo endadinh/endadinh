@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
+**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
