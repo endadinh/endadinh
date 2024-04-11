@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg. "</i></h5>**
+**<h5><i>" Winners never quit and quitters never win. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
