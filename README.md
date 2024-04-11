@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
+**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
