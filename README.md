@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
+**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
