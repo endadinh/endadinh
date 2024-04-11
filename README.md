@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
+**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
 
-*<b>___ Samuel Taylor Coleridge ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
