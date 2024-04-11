@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
+**<h5><i>" Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
