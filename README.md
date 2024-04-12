@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
+**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Stewart Brand ___</b>*
 
 -----
 
