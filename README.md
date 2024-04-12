@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You'll see it when you believe it. "</i></h5>**
+**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Joseph Stalin ___</b>*
 
 -----
 
