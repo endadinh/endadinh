@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
+**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
