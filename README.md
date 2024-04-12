@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn't about finding yourself. Life is about creating yourself. "</i></h5>**
+**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Alexander Chalmers ___</b>*
 
 -----
 
