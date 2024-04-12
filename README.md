@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I had three chairs in my house; one for solitude, two for friendship, three for society. "</i></h5>**
+**<h5><i>" Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Sidney Hook ___</b>*
 
 -----
 
