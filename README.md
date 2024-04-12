@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
