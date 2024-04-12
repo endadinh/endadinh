@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome. "</i></h5>**
+**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
 
-*<b>___ Anne Bradstreet ___</b>*
+*<b>___ Paramahansa Yogananda ___</b>*
 
 -----
 
