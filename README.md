@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition will tell the thinking mind where to look next. "</i></h5>**
+**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
 
-*<b>___ Jonas Salk ___</b>*
+*<b>___ Kin Hubbard ___</b>*
 
 -----
 
