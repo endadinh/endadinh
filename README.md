@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
+**<h5><i>" I had three chairs in my house; one for solitude, two for friendship, three for society. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
