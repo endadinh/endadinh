@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" Our greatest glory is not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
