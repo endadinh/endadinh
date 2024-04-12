@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
+**<h5><i>" You'll see it when you believe it. "</i></h5>**
 
-*<b>___ Henri Poincaré ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
