@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
+**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
