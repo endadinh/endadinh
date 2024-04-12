@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one per cent inspiration, ninety-nine per cent perspiration. "</i></h5>**
+**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
