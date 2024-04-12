@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Skill to do comes of doing. "</i></h5>**
+**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
