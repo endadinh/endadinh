@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. "</i></h5>**
+**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ P. G. Wodehouse ___</b>*
 
 -----
 
