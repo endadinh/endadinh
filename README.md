@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Morihei Ueshiba ___</b>*
 
 -----
 
