@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
+**<h5><i>" Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. "</i></h5>**
 
-*<b>___ Stewart Brand ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
