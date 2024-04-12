@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
+**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Herbert Hoover ___</b>*
 
 -----
 
