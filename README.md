@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
+**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Casey Stengel ___</b>*
 
 -----
 
