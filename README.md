@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Joseph Wood Krutch ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
