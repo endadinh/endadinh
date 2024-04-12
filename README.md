@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
+**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
 
-*<b>___ Janet Jackson ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
