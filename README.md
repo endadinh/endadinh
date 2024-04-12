@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
+**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
