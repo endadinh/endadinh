@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
+**<h5><i>" Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure. "</i></h5>**
 
-*<b>___ Casey Stengel ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
