@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
+**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
 
-*<b>___ Joseph Stalin ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
