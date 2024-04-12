@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Well done is better than well said. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
