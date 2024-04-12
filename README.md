@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
+**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Tom Lehrer ___</b>*
 
 -----
 
