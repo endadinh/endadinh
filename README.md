@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
+**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
