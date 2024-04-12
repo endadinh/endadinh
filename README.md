@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
+**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
 
-*<b>___ Tom Lehrer ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
