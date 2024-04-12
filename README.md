@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. "</i></h5>**
+**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
