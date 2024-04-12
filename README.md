@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
