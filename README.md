@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
+**<h5><i>" Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
