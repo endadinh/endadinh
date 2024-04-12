@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
