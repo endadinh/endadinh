@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. "</i></h5>**
+**<h5><i>" We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
