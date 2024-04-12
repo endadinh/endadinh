@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
+**<h5><i>" Life isn't about finding yourself. Life is about creating yourself. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
