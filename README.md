@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
+**<h5><i>" What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
