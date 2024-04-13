@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Ed Cunningham ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
