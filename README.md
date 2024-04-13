@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
+**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
