@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
+**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
