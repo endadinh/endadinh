@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times. "</i></h5>**
+**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
