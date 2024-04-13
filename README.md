@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
+**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
