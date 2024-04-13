@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make it your habit not to be critical about small things. "</i></h5>**
+**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Eustace Budgell ___</b>*
 
 -----
 
