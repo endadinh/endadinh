@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. "</i></h5>**
+**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
 
-*<b>___ Richard Burton ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
