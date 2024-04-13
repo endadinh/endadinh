@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest room in the world is room for improvement. "</i></h5>**
+**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
 
-*<b>___ Helmut Schmidt ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
