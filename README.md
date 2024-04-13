@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
+**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
 
-*<b>___ Eustace Budgell ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
