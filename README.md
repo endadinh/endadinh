@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
+**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
