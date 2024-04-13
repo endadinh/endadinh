@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
+**<h5><i>" Keep silence for the most part, and speak only when you must, and then briefly. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
