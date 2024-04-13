@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
+**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
 
-*<b>___ Maria Shriver ___</b>*
+*<b>___ Thomas Hobbes ___</b>*
 
 -----
 
