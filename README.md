@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep silence for the most part, and speak only when you must, and then briefly. "</i></h5>**
+**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
