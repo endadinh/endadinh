@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
+**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
