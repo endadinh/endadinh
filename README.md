@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who sows virtue reaps honor. "</i></h5>**
+**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
