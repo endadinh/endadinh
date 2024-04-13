@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
+**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
