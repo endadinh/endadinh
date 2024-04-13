@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful. "</i></h5>**
+**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
 
-*<b>___ Harvey Mackay ___</b>*
+*<b>___ Casey Stengel ___</b>*
 
 -----
 
