@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
+**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
