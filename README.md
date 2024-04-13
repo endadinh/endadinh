@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
+**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Naguib Mahfouz ___</b>*
 
 -----
 
