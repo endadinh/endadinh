@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
+**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
