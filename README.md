@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
+**<h5><i>" Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times. "</i></h5>**
 
-*<b>___ Thomas Haynes Bayly ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
