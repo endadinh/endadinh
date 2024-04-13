@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
+**<h5><i>" It's easy to make a buck. It's a lot tougher to make a difference. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Tom Brokaw ___</b>*
 
 -----
 
