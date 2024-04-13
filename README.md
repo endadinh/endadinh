@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can only be said to be alive in those moments when our hearts are conscious of our treasures. "</i></h5>**
+**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
 
-*<b>___ Thornton Wilder ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
