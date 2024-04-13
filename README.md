@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
+**<h5><i>" I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. "</i></h5>**
 
-*<b>___ Vernon Cooper ___</b>*
+*<b>___ Elizabeth Montagu ___</b>*
 
 -----
 
