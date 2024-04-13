@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Thomas Hobbes ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
