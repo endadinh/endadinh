@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Richard Burton ___</b>*
 
 -----
 
