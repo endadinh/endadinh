@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
+**<h5><i>" We can only be said to be alive in those moments when our hearts are conscious of our treasures. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Thornton Wilder ___</b>*
 
 -----
 
