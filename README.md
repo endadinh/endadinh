@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
+**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Phyllis Grissim-Theroux ___</b>*
 
 -----
 
