@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I prefer the folly of enthusiasm to the indifference of wisdom. "</i></h5>**
+**<h5><i>" Swim upstream. Go the other way. Ignore the conventional wisdom. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Sam Walton ___</b>*
 
 -----
 
