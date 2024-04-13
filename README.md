@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
+**<h5><i>" He who talks more is sooner exhausted. "</i></h5>**
 
-*<b>___ Casey Stengel ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
