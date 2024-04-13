@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake motion for action. "</i></h5>**
+**<h5><i>" Get busy living or get busy dying. "</i></h5>**
 
-*<b>___ Ernest Hemingway ___</b>*
+*<b>___ Stephen King ___</b>*
 
 -----
 
