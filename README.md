@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We aim above the mark to hit the mark. "</i></h5>**
+**<h5><i>" There is no expedient to which a man will not go to avoid the labor of thinking. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
