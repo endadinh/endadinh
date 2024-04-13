@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. "</i></h5>**
+**<h5><i>" Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ John Cleese ___</b>*
 
 -----
 
