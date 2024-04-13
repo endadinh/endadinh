@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
+**<h5><i>" A wise person should be urgently moved on occasions that make for urgency. "</i></h5>**
 
-*<b>___ Don Marquis ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
