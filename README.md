@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
+**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
