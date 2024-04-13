@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
+**<h5><i>" One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
