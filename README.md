@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's easy to make a buck. It's a lot tougher to make a difference. "</i></h5>**
+**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
 
-*<b>___ Tom Brokaw ___</b>*
+*<b>___ Gustave Flaubert ___</b>*
 
 -----
 
