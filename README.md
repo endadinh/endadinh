@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must become the change we want to see. "</i></h5>**
+**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
