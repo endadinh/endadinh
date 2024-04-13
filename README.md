@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Efficiency is doing things right; effectiveness is doing the right things. "</i></h5>**
+**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
