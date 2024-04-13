@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no expedient to which a man will not go to avoid the labor of thinking. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
