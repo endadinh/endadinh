@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ Henry Reed ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
