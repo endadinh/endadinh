@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be what we are, and to become what we are capable of becoming, is the only end of life. "</i></h5>**
+**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Paul Cézanne ___</b>*
 
 -----
 
