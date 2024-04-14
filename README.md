@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
+**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
