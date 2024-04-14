@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Arthur M. Schlesinger Jr. ___</b>*
 
 -----
 
