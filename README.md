@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Paul Cézanne ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
