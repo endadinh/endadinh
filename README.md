@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is found only in truth. "</i></h5>**
+**<h5><i>" Speak low, if you speak love. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
