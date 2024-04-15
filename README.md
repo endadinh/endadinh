@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Skill to do comes of doing. "</i></h5>**
+**<h5><i>" Whatever we expect with confidence becomes our own self-fulfilling prophecy. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
