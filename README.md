@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When watching after yourself, you watch after others. When watching after others, you watch after yourself. "</i></h5>**
+**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
