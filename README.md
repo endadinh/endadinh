@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To want to be what one can be is purpose in life. "</i></h5>**
+**<h5><i>" Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. "</i></h5>**
 
-*<b>___ Cynthia Ozick ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
