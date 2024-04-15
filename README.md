@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
+**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
