@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
+**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
 
-*<b>___ Mother Angelica ___</b>*
+*<b>___ Paulo Coelho ___</b>*
 
 -----
 
