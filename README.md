@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" True friendship is like sound health; the value of it is seldom known until it is lost. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Charles Caleb Colton ___</b>*
 
 -----
 
