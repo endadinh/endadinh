@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You really can change the world if you care enough. "</i></h5>**
+**<h5><i>" It is more shameful to distrust our friends than to be deceived by them. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
