@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
+**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
 
-*<b>___ Paulo Coelho ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
