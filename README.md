@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your worst enemy cannot harm you as much as your own unguarded thoughts. "</i></h5>**
+**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Bercow ___</b>*
 
 -----
 
