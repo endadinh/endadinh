@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can conquer who believe they can. "</i></h5>**
+**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Pope Paul VI ___</b>*
 
 -----
 
