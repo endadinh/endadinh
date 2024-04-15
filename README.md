@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be the chief but never the lord. "</i></h5>**
+**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
