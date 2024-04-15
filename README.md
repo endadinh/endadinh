@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. "</i></h5>**
+**<h5><i>" To fly, we have to have resistance. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Maya Lin ___</b>*
 
 -----
 
