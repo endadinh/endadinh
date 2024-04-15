@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Real magic in relationships means an absence of judgement of others. "</i></h5>**
+**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Sandy Koufax ___</b>*
 
 -----
 
