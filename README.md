@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We aim above the mark to hit the mark. "</i></h5>**
+**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
