@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
+**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Mother Angelica ___</b>*
 
 -----
 
