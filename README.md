@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins. "</i></h5>**
+**<h5><i>" As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer. "</i></h5>**
 
-*<b>___ Charles Eastman ___</b>*
+*<b>___ James Gleick ___</b>*
 
 -----
 
