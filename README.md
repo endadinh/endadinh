@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
+**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
