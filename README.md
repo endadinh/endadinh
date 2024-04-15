@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One loyal friend is worth ten thousand relatives. "</i></h5>**
+**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
