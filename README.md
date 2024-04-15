@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" To want to be what one can be is purpose in life. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Cynthia Ozick ___</b>*
 
 -----
 
