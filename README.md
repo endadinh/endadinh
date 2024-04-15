@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is more shameful to distrust our friends than to be deceived by them. "</i></h5>**
+**<h5><i>" Wisdom is found only in truth. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
