@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
+**<h5><i>" They can conquer who believe they can. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
