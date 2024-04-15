@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Pope Paul VI ___</b>*
 
 -----
 
