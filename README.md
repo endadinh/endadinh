@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
+**<h5><i>" Better be wise by the misfortunes of others than by your own. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
