@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be wise by the misfortunes of others than by your own. "</i></h5>**
+**<h5><i>" Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
