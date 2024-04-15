@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is like sound health; the value of it is seldom known until it is lost. "</i></h5>**
+**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
 
-*<b>___ Charles Caleb Colton ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
