@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
+**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
