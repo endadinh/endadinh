@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. "</i></h5>**
+**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
