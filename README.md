@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
+**<h5><i>" When something is important enough, you do it even if the odds are not in your favor. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Elon Musk ___</b>*
 
 -----
 
