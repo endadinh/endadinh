@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
+**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
 
-*<b>___ Pope Paul VI ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
