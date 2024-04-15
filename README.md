@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
+**<h5><i>" Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
