@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
+**<h5><i>" We aim above the mark to hit the mark. "</i></h5>**
 
-*<b>___ Pope Paul VI ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
