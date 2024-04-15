@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
+**<h5><i>" When watching after yourself, you watch after others. When watching after others, you watch after yourself. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
