@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
+**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
