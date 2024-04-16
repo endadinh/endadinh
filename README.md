@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. "</i></h5>**
+**<h5><i>" True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
