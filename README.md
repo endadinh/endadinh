@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is a source of great strength. "</i></h5>**
+**<h5><i>" Each day provides its own gifts. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
