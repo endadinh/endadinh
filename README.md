@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science is organized knowledge. Wisdom is organized life. "</i></h5>**
+**<h5><i>" He who knows, does not speak. He who speaks, does not know. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
