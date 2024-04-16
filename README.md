@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each day provides its own gifts. "</i></h5>**
+**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
