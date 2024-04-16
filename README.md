@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Decision is a risk rooted in the courage of being free. "</i></h5>**
+**<h5><i>" None knows the weight of another's burden. "</i></h5>**
 
-*<b>___ Paul Tillich ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
