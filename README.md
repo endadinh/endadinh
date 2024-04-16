@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" None knows the weight of another's burden. "</i></h5>**
+**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
 
-*<b>___ George Herbert ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
