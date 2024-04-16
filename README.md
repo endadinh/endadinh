@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
+**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
