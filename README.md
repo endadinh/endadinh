@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make the best use of what is in your power and take the rest as it happens. "</i></h5>**
+**<h5><i>" Each misfortune you encounter will carry in it the seed of tomorrows good luck. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
