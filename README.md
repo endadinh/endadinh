@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is generally the best vindication against slander. "</i></h5>**
+**<h5><i>" Even if you're on the right track, you'll get run over if you just sit there. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
