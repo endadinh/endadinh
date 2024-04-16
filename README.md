@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You teach best what you most need to learn. "</i></h5>**
+**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
