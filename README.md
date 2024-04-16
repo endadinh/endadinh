@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
+**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
