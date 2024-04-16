@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" No man is free who is not master of himself. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
 *<b>___ Epictetus ___</b>*
 
