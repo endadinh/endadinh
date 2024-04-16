@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
