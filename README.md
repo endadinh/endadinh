@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
+**<h5><i>" History is written by the victors. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
