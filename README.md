@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
+**<h5><i>" By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
