@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two kinds of failures: those who thought and never did, and those who did and never thought. "</i></h5>**
+**<h5><i>" He who angers you conquers you. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
