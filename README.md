@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
+**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
