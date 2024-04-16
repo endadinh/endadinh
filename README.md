@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Thomas Haynes Bayly ___</b>*
 
 -----
 
