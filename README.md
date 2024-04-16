@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
+**<h5><i>" No man is free who is not master of himself. "</i></h5>**
 
-*<b>___ Thomas Haynes Bayly ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
