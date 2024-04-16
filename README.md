@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
+**<h5><i>" Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
