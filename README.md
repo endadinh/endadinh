@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must learn our limits. We are all something, but none of us are everything. "</i></h5>**
+**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Franz Kafka ___</b>*
 
 -----
 
