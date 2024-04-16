@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
