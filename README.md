@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ J. M. Barrie ___</b>*
 
 -----
 
