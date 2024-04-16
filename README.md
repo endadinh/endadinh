@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. "</i></h5>**
+**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Francis de Sales ___</b>*
 
 -----
 
