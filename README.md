@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
+**<h5><i>" One secret of success in life is for a man to be ready for his opportunity when it comes. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
