@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I owe my solitude to other people. "</i></h5>**
+**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
