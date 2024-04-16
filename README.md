@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
+**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
