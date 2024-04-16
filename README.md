@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
+**<h5><i>" We must learn our limits. We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
