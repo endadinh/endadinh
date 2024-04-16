@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
+**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
