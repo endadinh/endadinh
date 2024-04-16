@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
