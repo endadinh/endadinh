@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
+**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Ben Stein ___</b>*
 
 -----
 
