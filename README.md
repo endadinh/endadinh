@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even if you're on the right track, you'll get run over if you just sit there. "</i></h5>**
+**<h5><i>" You teach best what you most need to learn. "</i></h5>**
 
-*<b>___ Will Rogers ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
