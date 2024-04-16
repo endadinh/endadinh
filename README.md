@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
+**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
 
-*<b>___ Francis de Sales ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
