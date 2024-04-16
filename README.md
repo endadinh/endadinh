@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
+**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
 
-*<b>___ Franz Kafka ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
