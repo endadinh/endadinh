@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
+**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
