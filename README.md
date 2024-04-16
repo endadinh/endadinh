@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who angers you conquers you. "</i></h5>**
+**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
