@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake activity for achievement. "</i></h5>**
+**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
