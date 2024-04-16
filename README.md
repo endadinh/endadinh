@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows, does not speak. He who speaks, does not know. "</i></h5>**
+**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
