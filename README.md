@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
+**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
 
-*<b>___ Ben Stein ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
