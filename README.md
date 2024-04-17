@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ Carrie Snow ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
