@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Efficiency is doing things right; effectiveness is doing the right things. "</i></h5>**
+**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
