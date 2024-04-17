@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
+**<h5><i>" I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
