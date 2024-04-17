@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
+**<h5><i>" It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. "</i></h5>**
 
-*<b>___ Thomas Dewar ___</b>*
+*<b>___ Max Planck ___</b>*
 
 -----
 
