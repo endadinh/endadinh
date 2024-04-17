@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
+**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
 
-*<b>___ Jawaharlal Nehru ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
