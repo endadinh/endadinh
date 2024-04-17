@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When times are bad is when the real entrepreneurs emerge. "</i></h5>**
+**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
 
-*<b>___ Robert Kiyosaki ___</b>*
+*<b>___ Joseph Joubert ___</b>*
 
 -----
 
