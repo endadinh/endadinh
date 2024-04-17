@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you smile when no one else is around, you really mean it. "</i></h5>**
+**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
 
-*<b>___ Andy Rooney ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
