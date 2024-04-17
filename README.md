@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be wrong is nothing unless you continue to remember it. "</i></h5>**
+**<h5><i>" Efficiency is doing things right; effectiveness is doing the right things. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
