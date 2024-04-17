@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. "</i></h5>**
+**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
 
-*<b>___ Dale Turner ___</b>*
+*<b>___ Jawaharlal Nehru ___</b>*
 
 -----
 
