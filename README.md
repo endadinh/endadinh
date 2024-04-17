@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that every person is born with talent. "</i></h5>**
+**<h5><i>" True friendship is like sound health; the value of it is seldom known until it is lost. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Charles Caleb Colton ___</b>*
 
 -----
 
