@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
+**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
 
-*<b>___ Joseph Joubert ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
