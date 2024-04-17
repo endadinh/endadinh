@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
+**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
