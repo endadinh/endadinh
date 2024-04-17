@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you aren't going all the way, why go at all? "</i></h5>**
+**<h5><i>" Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. "</i></h5>**
 
-*<b>___ Joe Namath ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
