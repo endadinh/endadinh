@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
+**<h5><i>" The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
