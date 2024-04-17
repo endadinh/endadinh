@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest remedy for anger is delay. "</i></h5>**
+**<h5><i>" A noble one produces an abundance of merit by having a compassionate mind towards all living beings. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
