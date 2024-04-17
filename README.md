@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
