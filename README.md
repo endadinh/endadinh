@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed. "</i></h5>**
+**<h5><i>" We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. "</i></h5>**
 
 *<b>___ The Buddha ___</b>*
 
