@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
