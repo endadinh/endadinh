@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
