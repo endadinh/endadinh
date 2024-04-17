@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
+**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
