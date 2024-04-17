@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
+**<h5><i>" I believe that every person is born with talent. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
