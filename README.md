@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Whoever doesn't flare up at someone who's angry wins a battle hard to win. "</i></h5>**
+**<h5><i>" As a water bead on a lotus leaf, as water on a red lily, does not adhere, so the sage does not adhere to the seen, the heard, or the sensed. "</i></h5>**
 
 *<b>___ The Buddha ___</b>*
 
