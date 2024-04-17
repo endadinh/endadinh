@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
+**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
