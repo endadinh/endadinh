@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. "</i></h5>**
+**<h5><i>" In wartime, truth is so precious that she should always be attended by a bodyguard of lies. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
