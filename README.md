@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never give up, for that is just the place and time that the tide will turn. "</i></h5>**
+**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
 
-*<b>___ Harriet Beecher Stowe ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
