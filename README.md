@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things do not change; we change. "</i></h5>**
+**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
