@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
+**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
 
-*<b>___ A. A. Milne ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
