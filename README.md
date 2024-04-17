@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
+**<h5><i>" When times are bad is when the real entrepreneurs emerge. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Robert Kiyosaki ___</b>*
 
 -----
 
