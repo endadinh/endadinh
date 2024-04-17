@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak low, if you speak love. "</i></h5>**
+**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
