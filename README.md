@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
