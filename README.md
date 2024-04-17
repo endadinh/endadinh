@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
