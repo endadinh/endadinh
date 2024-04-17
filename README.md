@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single lamp may light hundreds of thousands of lamps without itself being diminished. "</i></h5>**
+**<h5><i>" Leave no stone unturned. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
