@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. "</i></h5>**
+**<h5><i>" There is only one corner of the universe you can be certain of improving, and that's your own self. "</i></h5>**
 
-*<b>___ Max Planck ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
