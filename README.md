@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. "</i></h5>**
+**<h5><i>" Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
