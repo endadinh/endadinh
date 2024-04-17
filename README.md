@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. "</i></h5>**
+**<h5><i>" To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
