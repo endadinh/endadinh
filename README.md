@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
+**<h5><i>" Every artist dips his brush in his own soul, and paints his own nature into his pictures. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
