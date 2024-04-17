@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Leave no stone unturned. "</i></h5>**
+**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Thomas Dewar ___</b>*
 
 -----
 
