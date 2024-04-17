@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" Never give up, for that is just the place and time that the tide will turn. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Harriet Beecher Stowe ___</b>*
 
 -----
 
