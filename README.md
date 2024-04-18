@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly. "</i></h5>**
+**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
