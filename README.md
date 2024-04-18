@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
+**<h5><i>" To improve is to change; to be perfect is to change often. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
