@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ultimate promise of technology is to make us master of a world that we command by the push of a button. "</i></h5>**
+**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
 
-*<b>___ Volker Grassmuck ___</b>*
+*<b>___ Alfred Korzybski ___</b>*
 
 -----
 
