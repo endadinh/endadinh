@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One loyal friend is worth ten thousand relatives. "</i></h5>**
+**<h5><i>" Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
