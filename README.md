@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
