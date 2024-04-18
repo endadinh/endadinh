@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition will tell the thinking mind where to look next. "</i></h5>**
+**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
 
-*<b>___ Jonas Salk ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
