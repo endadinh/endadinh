@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise? "</i></h5>**
+**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Margaret Cousins ___</b>*
 
 -----
 
