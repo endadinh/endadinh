@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
+**<h5><i>" If we did the things we are capable of, we would astound ourselves. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
