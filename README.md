@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You always succeed in producing a result. "</i></h5>**
+**<h5><i>" As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Joseph Prince ___</b>*
 
 -----
 
