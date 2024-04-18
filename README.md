@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
+**<h5><i>" Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
