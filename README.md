@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
+**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
