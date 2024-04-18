@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
+**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
 
-*<b>___ Margaret Cousins ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
