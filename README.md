@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
+**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
 
-*<b>___ Barbara Bush ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
