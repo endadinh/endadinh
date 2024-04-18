@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Ben Stein ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
