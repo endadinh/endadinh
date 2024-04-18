@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
