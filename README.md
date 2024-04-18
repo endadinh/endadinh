@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
+**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
 
-*<b>___ Eustace Budgell ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
