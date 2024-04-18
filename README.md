@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
+**<h5><i>" Logic will get you from A to B. Imagination will take you everywhere. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
