@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without courage, wisdom bears no fruit. "</i></h5>**
+**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
 
-*<b>___ Baltasar Gracián ___</b>*
+*<b>___ Barbara Bush ___</b>*
 
 -----
 
