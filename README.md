@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't know a millionth of one percent about anything. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
