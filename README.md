@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To improve is to change; to be perfect is to change often. "</i></h5>**
+**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
