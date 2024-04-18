@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who cannot learn from history are doomed to repeat it. "</i></h5>**
+**<h5><i>" Without courage, wisdom bears no fruit. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Baltasar Gracián ___</b>*
 
 -----
 
