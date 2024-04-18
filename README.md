@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
