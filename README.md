@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
+**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
 
-*<b>___ Walter Cronkite ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
