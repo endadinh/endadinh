@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An invasion of armies can be resisted, but not an idea whose time has come. "</i></h5>**
+**<h5><i>" If one way be better than another, that you may be sure is nature's way. "</i></h5>**
 
-*<b>___ Victor Hugo ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
