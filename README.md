@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
+**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
