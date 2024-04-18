@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is powerful and it prevails. "</i></h5>**
+**<h5><i>" I hear and I forget. I see and I remember. I do and I understand. "</i></h5>**
 
-*<b>___ Sojourner Truth ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
