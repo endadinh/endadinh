@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
+**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
