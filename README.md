@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one way be better than another, that you may be sure is nature's way. "</i></h5>**
+**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
