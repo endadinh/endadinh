@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I hear and I forget. I see and I remember. I do and I understand. "</i></h5>**
+**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
