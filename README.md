@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
+**<h5><i>" One loyal friend is worth ten thousand relatives. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
