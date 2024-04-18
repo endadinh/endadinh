@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
+**<h5><i>" I am a man of fixed and unbending principles, the first of which is to be flexible at all times. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Everett Dirksen ___</b>*
 
 -----
 
