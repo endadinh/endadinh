@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Memory is the mother of all wisdom. "</i></h5>**
+**<h5><i>" One man practicing sportsmanship is far better than a hundred teaching it. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Knute Rockne ___</b>*
 
 -----
 
