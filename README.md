@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. "</i></h5>**
+**<h5><i>" An invasion of armies can be resisted, but not an idea whose time has come. "</i></h5>**
 
-*<b>___ Joseph Prince ___</b>*
+*<b>___ Victor Hugo ___</b>*
 
 -----
 
