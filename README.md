@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
+**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
