@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Alfred Korzybski ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
