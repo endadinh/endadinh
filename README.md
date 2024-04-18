@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History is written by the victors. "</i></h5>**
+**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ John C. Maxwell ___</b>*
 
 -----
 
