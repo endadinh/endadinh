@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
+**<h5><i>" Love, friendship and respect do not unite people as much as a common hatred for something. "</i></h5>**
 
-*<b>___ Betty Friedan ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
