@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
+**<h5><i>" True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Akhenaten ___</b>*
 
 -----
 
