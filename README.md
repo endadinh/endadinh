@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I had three chairs in my house; one for solitude, two for friendship, three for society. "</i></h5>**
+**<h5><i>" To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
