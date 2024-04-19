@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can change our lives. We can do, have, and be exactly what we wish. "</i></h5>**
+**<h5><i>" He is a wise man who does not grieve for the things which he has not but rejoices for those which he has. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
