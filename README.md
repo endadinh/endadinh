@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. "</i></h5>**
+**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
