@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
+**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
