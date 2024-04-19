@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
+**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
