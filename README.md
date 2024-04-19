@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
