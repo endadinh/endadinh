@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
