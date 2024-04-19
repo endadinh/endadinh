@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
+**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
 
-*<b>___ Alexander the Great ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
