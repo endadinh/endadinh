@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I always wanted to be somebody, but I should have been more specific. "</i></h5>**
+**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
 
-*<b>___ Lily Tomlin ___</b>*
+*<b>___ Indira Gandhi ___</b>*
 
 -----
 
