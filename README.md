@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never, never, never give up. "</i></h5>**
+**<h5><i>" If the stars should appear but one night every thousand years how man would marvel and adore. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
