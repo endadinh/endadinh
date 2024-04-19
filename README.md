@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Indira Gandhi ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
