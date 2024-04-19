@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
+**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
