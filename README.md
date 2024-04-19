@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience is the companion of wisdom. "</i></h5>**
+**<h5><i>" This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature. "</i></h5>**
 
-*<b>___ Augustine of Hippo ___</b>*
+*<b>___ Don DeLillo ___</b>*
 
 -----
 
