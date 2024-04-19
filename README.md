@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
+**<h5><i>" We cannot do everything at once, but we can do something at once. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
