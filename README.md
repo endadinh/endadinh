@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
+**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
