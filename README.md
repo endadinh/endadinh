@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
+**<h5><i>" No one is useless in this world who lightens the burdens of another. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
