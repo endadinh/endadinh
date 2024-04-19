@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is the fairest blossom which springs from the soul. "</i></h5>**
+**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
 
-*<b>___ Henry K. Beecher ___</b>*
+*<b>___ Alexander the Great ___</b>*
 
 -----
 
