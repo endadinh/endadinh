@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
