@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
+**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
