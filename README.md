@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
+**<h5><i>" All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
