@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
