@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
