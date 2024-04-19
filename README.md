@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing your own darkness is the best method for dealing with the darkness of other people. "</i></h5>**
+**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Joseph Wood Krutch ___</b>*
 
 -----
 
