@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. "</i></h5>**
+**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
