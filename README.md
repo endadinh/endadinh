@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
+**<h5><i>" Speak low, if you speak love. "</i></h5>**
 
-*<b>___ Alfred North Whitehead ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
