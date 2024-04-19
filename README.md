@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
+**<h5><i>" Gratitude is the fairest blossom which springs from the soul. "</i></h5>**
 
-*<b>___ Henry J. Kaiser ___</b>*
+*<b>___ Henry K. Beecher ___</b>*
 
 -----
 
