@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom. "</i></h5>**
+**<h5><i>" Never give up, for that is just the place and time that the tide will turn. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Harriet Beecher Stowe ___</b>*
 
 -----
 
