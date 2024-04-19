@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
+**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
