@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance. "</i></h5>**
+**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
 
-*<b>___ Akhenaten ___</b>*
+*<b>___ Sai Baba ___</b>*
 
 -----
 
