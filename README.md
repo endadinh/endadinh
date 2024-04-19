@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
+**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
