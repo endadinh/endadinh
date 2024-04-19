@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
+**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
