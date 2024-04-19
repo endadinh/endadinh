@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. "</i></h5>**
+**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
