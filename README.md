@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything comes to him who hustles while he waits. "</i></h5>**
+**<h5><i>" Never, never, never give up. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
