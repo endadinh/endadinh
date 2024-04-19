@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
+**<h5><i>" Knowing your own darkness is the best method for dealing with the darkness of other people. "</i></h5>**
 
-*<b>___ Samuel Taylor Coleridge ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
