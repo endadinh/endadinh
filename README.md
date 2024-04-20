@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
