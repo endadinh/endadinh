@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not all those who wander are lost. "</i></h5>**
+**<h5><i>" If you're changing the world, you're working on important things. You're excited to get up in the morning. "</i></h5>**
 
-*<b>___ J. R. R. Tolkien ___</b>*
+*<b>___ Larry Page ___</b>*
 
 -----
 
