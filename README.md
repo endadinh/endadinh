@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
+**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
