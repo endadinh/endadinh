@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is only with the heart that one can see rightly, what is essential is invisible to the eye. "</i></h5>**
+**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
