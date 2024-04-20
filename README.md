@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
+**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
