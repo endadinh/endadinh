@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
+**<h5><i>" People ask me what I do in winter when there's no baseball. I'll tell you what I do. I stare out the window and wait for spring. "</i></h5>**
 
-*<b>___ Walter Winchell ___</b>*
+*<b>___ Rogers Hornsby ___</b>*
 
 -----
 
