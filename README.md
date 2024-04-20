@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
+**<h5><i>" I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
