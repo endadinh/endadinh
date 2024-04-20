@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
+**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
 
-*<b>___ Arthur Schopenhauer ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
