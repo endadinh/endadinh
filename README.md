@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" The best argument against democracy is a five-minute conversation with the average voter. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
