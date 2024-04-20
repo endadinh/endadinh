@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
+**<h5><i>" Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
