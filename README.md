@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
