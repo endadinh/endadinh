@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
