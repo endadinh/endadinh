@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
+**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
