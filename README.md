@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
+**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Eustace Budgell ___</b>*
 
 -----
 
