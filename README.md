@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
+**<h5><i>" To follow, without halt, one aim: There is the secret of success. "</i></h5>**
 
-*<b>___ Ben Stein ___</b>*
+*<b>___ Anna Pavlova ___</b>*
 
 -----
 
