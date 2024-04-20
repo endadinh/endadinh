@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you want to know who you are? Don't ask. Act! Action will delineate and define you. "</i></h5>**
+**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
