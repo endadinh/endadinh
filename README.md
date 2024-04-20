@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can only learn to love by loving. "</i></h5>**
+**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
