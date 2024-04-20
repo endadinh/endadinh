@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. "</i></h5>**
+**<h5><i>" It is only with the heart that one can see rightly, what is essential is invisible to the eye. "</i></h5>**
 
-*<b>___ George Bernard Shaw ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
