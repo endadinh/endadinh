@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Honesty is the first chapter in the book of wisdom. "</i></h5>**
+**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Demosthenes ___</b>*
 
 -----
 
