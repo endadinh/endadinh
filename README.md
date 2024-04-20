@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better than a thousand useless words is one useful word, upon hearing which one attains peace. "</i></h5>**
+**<h5><i>" No alibi will save you from accepting the responsibility. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
