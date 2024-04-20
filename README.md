@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're changing the world, you're working on important things. You're excited to get up in the morning. "</i></h5>**
+**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
 
-*<b>___ Larry Page ___</b>*
+*<b>___ Walter Winchell ___</b>*
 
 -----
 
