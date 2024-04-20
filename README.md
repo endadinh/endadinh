@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
