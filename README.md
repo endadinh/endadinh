@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship at first sight, like love at first sight, is said to be the only truth. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Herman Melville ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
