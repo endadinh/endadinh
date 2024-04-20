@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
+**<h5><i>" Just because something doesn't do what you planned it to do doesn't mean it's useless. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
