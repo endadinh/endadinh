@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
+**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
