@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
