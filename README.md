@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
+**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Ben Stein ___</b>*
 
 -----
 
