@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friends stab you in the front. "</i></h5>**
+**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
