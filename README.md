@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
