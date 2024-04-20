@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
+**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
 
-*<b>___ Kurt Vonnegut ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
