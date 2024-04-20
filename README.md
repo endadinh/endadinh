@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
