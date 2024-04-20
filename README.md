@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
+**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
