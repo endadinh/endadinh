@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Ludwig van Beethoven ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
