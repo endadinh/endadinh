@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not say every mistake is a foolish one. "</i></h5>**
+**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Leonard Nimoy ___</b>*
 
 -----
 
