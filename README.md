@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
+**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Caroline Myss ___</b>*
 
 -----
 
