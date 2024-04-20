@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
+**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
