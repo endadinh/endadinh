@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ant on the move does more than a dozing ox "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
