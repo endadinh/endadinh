@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality leaves a lot to the imagination. "</i></h5>**
+**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Kurt Vonnegut ___</b>*
 
 -----
 
