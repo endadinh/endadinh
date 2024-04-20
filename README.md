@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
+**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
