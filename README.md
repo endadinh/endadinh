@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness resides not in possessions, and not in gold, happiness dwells in the soul. "</i></h5>**
+**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
 
-*<b>___ Democritus ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
