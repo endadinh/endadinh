@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
+**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
