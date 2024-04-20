@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
