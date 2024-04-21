@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace. "</i></h5>**
+**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
