@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware lest you lose the substance by grasping at the shadow. "</i></h5>**
+**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ John Quincy Adams ___</b>*
 
 -----
 
