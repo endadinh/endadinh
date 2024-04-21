@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
+**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
