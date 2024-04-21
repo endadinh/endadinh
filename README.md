@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. "</i></h5>**
+**<h5><i>" There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool. "</i></h5>**
 
-*<b>___ Margaret Thatcher ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
