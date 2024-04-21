@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
+**<h5><i>" Beware lest you lose the substance by grasping at the shadow. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
