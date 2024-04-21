@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
