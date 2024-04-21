@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
+**<h5><i>" Knowledge without justice ought to be called cunning rather than wisdom. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
