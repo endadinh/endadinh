@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination rules the world. "</i></h5>**
+**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Tom Peters ___</b>*
 
 -----
 
