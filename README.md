@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
