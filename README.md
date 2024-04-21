@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
