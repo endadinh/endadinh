@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
+**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
