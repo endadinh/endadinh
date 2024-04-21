@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Susan Orlean ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
