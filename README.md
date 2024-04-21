@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
+**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
