@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
