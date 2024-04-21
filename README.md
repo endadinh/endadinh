@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
+**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
