@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
+**<h5><i>" No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
