@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
