@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing your own darkness is the best method for dealing with the darkness of other people. "</i></h5>**
+**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
