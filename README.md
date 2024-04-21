@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people go to priests; others to poetry; I to my friends. "</i></h5>**
+**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
 
-*<b>___ Virginia Woolf ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
