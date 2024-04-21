@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
+**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Christopher Reeve ___</b>*
 
 -----
 
