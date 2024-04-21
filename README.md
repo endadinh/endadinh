@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never find fault with the absent. "</i></h5>**
+**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
