@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
+**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
