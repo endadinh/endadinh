@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
+**<h5><i>" If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
