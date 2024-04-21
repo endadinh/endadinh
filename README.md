@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
+**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
 
-*<b>___ Tom Peters ___</b>*
+*<b>___ Barbara Bush ___</b>*
 
 -----
 
