@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions. "</i></h5>**
+**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
