@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
