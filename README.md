@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. "</i></h5>**
+**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
