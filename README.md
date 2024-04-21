@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
+**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
