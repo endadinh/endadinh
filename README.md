@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
+**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
