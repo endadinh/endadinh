@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
+**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Alice Walker ___</b>*
 
 -----
 
