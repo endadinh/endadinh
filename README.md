@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
+**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
 
-*<b>___ John Quincy Adams ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
