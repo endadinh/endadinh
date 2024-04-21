@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. "</i></h5>**
+**<h5><i>" I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Mia Hamm ___</b>*
 
 -----
 
