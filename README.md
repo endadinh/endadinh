@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
+**<h5><i>" They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
