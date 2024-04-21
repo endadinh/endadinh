@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
+**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
