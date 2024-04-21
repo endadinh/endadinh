@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot have what you do not want. "</i></h5>**
+**<h5><i>" Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions. "</i></h5>**
 
-*<b>___ John Acosta ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
