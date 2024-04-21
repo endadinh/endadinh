@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
+**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
 
-*<b>___ Simon Mainwaring ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
