@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
+**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
 
-*<b>___ Alexander Chalmers ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
