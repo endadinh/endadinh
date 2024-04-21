@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
+**<h5><i>" You cannot have what you do not want. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ John Acosta ___</b>*
 
 -----
 
