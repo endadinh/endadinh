@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
+**<h5><i>" History will be kind to me for I intend to write it. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
