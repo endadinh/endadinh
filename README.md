@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is blind; friendship closes its eyes. "</i></h5>**
+**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Barbara Bush ___</b>*
 
 -----
 
