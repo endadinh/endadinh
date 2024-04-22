@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
+**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
