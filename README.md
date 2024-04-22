@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we look at the world with a love of life, the world will reveal its beauty to us. "</i></h5>**
+**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ E. M. Forster ___</b>*
 
 -----
 
