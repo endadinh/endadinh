@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
