@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
