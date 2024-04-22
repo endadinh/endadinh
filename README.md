@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
+**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Lena Horne ___</b>*
 
 -----
 
