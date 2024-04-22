@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
+**<h5><i>" An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. "</i></h5>**
 
-*<b>___ E. M. Forster ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
