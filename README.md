@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
+**<h5><i>" Ideals are an imaginative understanding of that which is desirable in that which is possible. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
