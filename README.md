@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
