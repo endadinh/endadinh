@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you cannot do great things, do small things in a great way. "</i></h5>**
+**<h5><i>" What other people may find in poetry or art museums, I find in the flight of a good drive. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Arnold Palmer ___</b>*
 
 -----
 
