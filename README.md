@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ardently do today what must be done. Who knows? Tomorrow, death comes. "</i></h5>**
+**<h5><i>" The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Margaret Chase Smith ___</b>*
 
 -----
 
