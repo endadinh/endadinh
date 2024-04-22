@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
+**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
