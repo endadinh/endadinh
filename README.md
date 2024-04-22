@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
+**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
