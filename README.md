@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
