@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
+**<h5><i>" Good advice is always certain to be ignored, but that's no reason not to give it. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Agatha Christie ___</b>*
 
 -----
 
