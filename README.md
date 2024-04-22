@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
+**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ Doris Day ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
