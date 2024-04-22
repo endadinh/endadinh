@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
+**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
