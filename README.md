@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing great was ever achieved without enthusiasm. "</i></h5>**
+**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ John Eliot ___</b>*
 
 -----
 
