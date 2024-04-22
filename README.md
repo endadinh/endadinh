@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
+**<h5><i>" Wisdom comes alone through suffering. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Aeschylus ___</b>*
 
 -----
 
