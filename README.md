@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
+**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
