@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. "</i></h5>**
+**<h5><i>" Swim upstream. Go the other way. Ignore the conventional wisdom. "</i></h5>**
 
-*<b>___ Margaret Chase Smith ___</b>*
+*<b>___ Sam Walton ___</b>*
 
 -----
 
