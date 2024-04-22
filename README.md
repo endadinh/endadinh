@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" The greater our knowledge increases the more our ignorance unfolds. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
