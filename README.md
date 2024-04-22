@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The higher we are placed, the more humbly we should walk. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
