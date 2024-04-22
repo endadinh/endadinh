@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
