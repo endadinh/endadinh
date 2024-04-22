@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom comes alone through suffering. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
