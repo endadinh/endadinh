@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
+**<h5><i>" Your mind will answer most questions if you learn to relax and wait for the answer. "</i></h5>**
 
-*<b>___ John Eliot ___</b>*
+*<b>___ William Burroughs ___</b>*
 
 -----
 
