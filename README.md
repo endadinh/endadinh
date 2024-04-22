@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater our knowledge increases the more our ignorance unfolds. "</i></h5>**
+**<h5><i>" The cause is hidden. The effect is visible to all. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
