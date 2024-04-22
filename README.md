@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
+**<h5><i>" Make the best use of what is in your power and take the rest as it happens. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
