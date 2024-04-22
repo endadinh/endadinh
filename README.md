@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. "</i></h5>**
+**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
