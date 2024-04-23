@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
+**<h5><i>" People are not lazy. They simply have impotent goals - that is, goals that do not inspire them. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
