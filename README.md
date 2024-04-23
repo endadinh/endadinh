@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless. "</i></h5>**
+**<h5><i>" The only way to prove that you're a good sport is to lose. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Ernie Banks ___</b>*
 
 -----
 
