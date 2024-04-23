@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Walter Cronkite ___</b>*
 
 -----
 
