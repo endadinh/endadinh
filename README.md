@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
+**<h5><i>" The essence of true friendship is to make allowance for another's little lapses. "</i></h5>**
 
-*<b>___ Charles Lindbergh ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
