@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
