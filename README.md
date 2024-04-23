@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To follow, without halt, one aim: There is the secret of success. "</i></h5>**
+**<h5><i>" Only do what your heart tells you. "</i></h5>**
 
-*<b>___ Anna Pavlova ___</b>*
+*<b>___ Princess Diana ___</b>*
 
 -----
 
