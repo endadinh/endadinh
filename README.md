@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
+**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
