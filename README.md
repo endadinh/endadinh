@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
+**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
