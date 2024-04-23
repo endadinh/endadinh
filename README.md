@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember always that you not only have the right to be an individual, you have an obligation to be one. "</i></h5>**
+**<h5><i>" Nothing but heaven itself is better than a friend who is really a friend. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Plautus ___</b>*
 
 -----
 
