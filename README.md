@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition will tell the thinking mind where to look next. "</i></h5>**
+**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
 
-*<b>___ Jonas Salk ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
