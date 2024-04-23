@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
