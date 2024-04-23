@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. "</i></h5>**
+**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
