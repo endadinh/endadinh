@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
