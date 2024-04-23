@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
