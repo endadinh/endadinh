@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
+**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
 
-*<b>___ Joseph Stalin ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
