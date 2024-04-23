@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
+**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
 
-*<b>___ Sydney J. Harris ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
