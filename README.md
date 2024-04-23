@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
+**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
