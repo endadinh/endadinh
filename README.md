@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
