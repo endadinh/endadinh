@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ Nora Roberts ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
