@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Charles Péguy ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
