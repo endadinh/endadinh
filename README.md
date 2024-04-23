@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever we expect with confidence becomes our own self-fulfilling prophecy. "</i></h5>**
+**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
