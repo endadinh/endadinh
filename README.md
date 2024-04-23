@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
+**<h5><i>" To be tested is good. The challenged life may be the best therapist. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Gail Sheehy ___</b>*
 
 -----
 
