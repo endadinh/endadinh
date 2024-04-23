@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
+**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Doug Horton ___</b>*
 
 -----
 
