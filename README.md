@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
+**<h5><i>" People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
