@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
+**<h5><i>" The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. "</i></h5>**
 
-*<b>___ Warren Bennis ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
