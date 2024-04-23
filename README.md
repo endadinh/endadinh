@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" Whatever we expect with confidence becomes our own self-fulfilling prophecy. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
