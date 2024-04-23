@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing but heaven itself is better than a friend who is really a friend. "</i></h5>**
+**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
 
-*<b>___ Plautus ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
