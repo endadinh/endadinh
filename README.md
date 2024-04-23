@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be tested is good. The challenged life may be the best therapist. "</i></h5>**
+**<h5><i>" When something is important enough, you do it even if the odds are not in your favor. "</i></h5>**
 
-*<b>___ Gail Sheehy ___</b>*
+*<b>___ Elon Musk ___</b>*
 
 -----
 
