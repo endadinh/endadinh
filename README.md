@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's only when the tide goes out that you discover who's been swimming naked. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
