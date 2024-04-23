@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. "</i></h5>**
+**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
 
-*<b>___ Basil of Caesarea ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
