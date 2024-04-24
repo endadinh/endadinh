@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth of the matter is that you always know the right thing to do. The hard part is doing it. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Norman Schwarzkopf ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
