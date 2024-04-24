@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
+**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
