@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
+**<h5><i>" With the realization of one's own potential and self-confidence in one's ability, one can build a better world. "</i></h5>**
 
-*<b>___ Frank Abagnale ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
