@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am an optimist. It does not seem too much use being anything else. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
