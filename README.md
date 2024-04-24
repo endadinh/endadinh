@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
+**<h5><i>" He is a wise man who does not grieve for the things which he has not but rejoices for those which he has. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
