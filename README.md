@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. "</i></h5>**
+**<h5><i>" I am an optimist. It does not seem too much use being anything else. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
