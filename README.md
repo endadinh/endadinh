@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. "</i></h5>**
+**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
