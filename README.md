@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
+**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
