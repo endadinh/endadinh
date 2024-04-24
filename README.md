@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
+**<h5><i>" If you want to kill any idea in the world, get a committee working on it. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Charles F. Kettering ___</b>*
 
 -----
 
