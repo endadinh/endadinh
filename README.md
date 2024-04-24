@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
+**<h5><i>" The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Charles Lamb ___</b>*
 
 -----
 
