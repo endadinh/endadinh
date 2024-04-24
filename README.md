@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way we communicate with others and with ourselves ultimately determines the quality of our lives. "</i></h5>**
+**<h5><i>" I'd rather regret the things that I have done than the things that I have not done. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
