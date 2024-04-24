@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
+**<h5><i>" We are made wise not by the recollection of our past, but by the responsibility for our future. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
