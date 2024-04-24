@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Henry J. Kaiser ___</b>*
 
 -----
 
