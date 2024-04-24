@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatest glory is not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Jim Bouton ___</b>*
 
 -----
 
