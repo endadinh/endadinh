@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
+**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
