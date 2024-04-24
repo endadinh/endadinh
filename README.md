@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
