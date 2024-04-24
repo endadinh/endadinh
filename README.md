@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
+**<h5><i>" Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
