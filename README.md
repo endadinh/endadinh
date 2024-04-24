@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once we accept our limits, we go beyond them. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
