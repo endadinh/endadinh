@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. "</i></h5>**
+**<h5><i>" Winners never quit and quitters never win. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
