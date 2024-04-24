@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
+**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
