@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
