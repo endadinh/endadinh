@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When your desires are strong enough you will appear to possess superhuman powers to achieve. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
