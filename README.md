@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The winds and waves are always on the side of the ablest navigators. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Edward Gibbon ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
