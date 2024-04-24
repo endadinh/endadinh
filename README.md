@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
+**<h5><i>" Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. "</i></h5>**
 
-*<b>___ Edwin Markham ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
