@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He is a wise man who does not grieve for the things which he has not but rejoices for those which he has. "</i></h5>**
+**<h5><i>" The way we communicate with others and with ourselves ultimately determines the quality of our lives. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
