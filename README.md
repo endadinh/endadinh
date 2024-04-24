@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our passion is our strength. "</i></h5>**
+**<h5><i>" The higher we are placed, the more humbly we should walk. "</i></h5>**
 
-*<b>___ Billie Armstrong ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
