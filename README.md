@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident. "</i></h5>**
+**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
 
-*<b>___ Charles Lamb ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
