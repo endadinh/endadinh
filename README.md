@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
+**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
