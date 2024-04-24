@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
