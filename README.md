@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the power to put our time and our knowledge to the proper use. "</i></h5>**
+**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
 
-*<b>___ Thomas J. Watson ___</b>*
+*<b>___ Sun Tzu ___</b>*
 
 -----
 
