@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
+**<h5><i>" Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
