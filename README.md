@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
+**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
