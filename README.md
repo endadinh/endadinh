@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
+**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ William Cowper ___</b>*
 
 -----
 
