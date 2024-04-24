@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
+**<h5><i>" I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
