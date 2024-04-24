@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
+**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
 
-*<b>___ Henry J. Kaiser ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
