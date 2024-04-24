@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With the realization of one's own potential and self-confidence in one's ability, one can build a better world. "</i></h5>**
+**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
