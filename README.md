@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Edwin Markham ___</b>*
 
 -----
 
