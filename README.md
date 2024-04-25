@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
+**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ A. A. Milne ___</b>*
 
 -----
 
