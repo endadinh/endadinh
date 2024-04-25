@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
+**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
 
-*<b>___ Charles Lindbergh ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
