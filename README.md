@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
