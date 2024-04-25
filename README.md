@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Both formerly and now, it is only suffering that I describe, and the cessation of suffering. "</i></h5>**
+**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
