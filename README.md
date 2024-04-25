@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are Divine enough to ask and we are important enough to receive. "</i></h5>**
+**<h5><i>" If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Vusi Mahlasela ___</b>*
 
 -----
 
