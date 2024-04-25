@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
+**<h5><i>" We are Divine enough to ask and we are important enough to receive. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
