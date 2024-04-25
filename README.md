@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. "</i></h5>**
+**<h5><i>" I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. "</i></h5>**
 
-*<b>___ Elizabeth Kapu'uwailani Lindsey ___</b>*
+*<b>___ Judy Collins ___</b>*
 
 -----
 
