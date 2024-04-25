@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
+**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
 
-*<b>___ H. G. Wells ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
