@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
+**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ H. G. Wells ___</b>*
 
 -----
 
