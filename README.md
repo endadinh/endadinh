@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
+**<h5><i>" Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ David Rockefeller ___</b>*
 
 -----
 
