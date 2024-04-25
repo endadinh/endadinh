@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better. "</i></h5>**
+**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
