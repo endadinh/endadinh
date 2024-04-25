@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is so exhilarating as to be shot at without result. "</i></h5>**
+**<h5><i>" No one has ever become poor by giving. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
