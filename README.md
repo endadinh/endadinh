@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Charles Lindbergh ___</b>*
 
 -----
 
