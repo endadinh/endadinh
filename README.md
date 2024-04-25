@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
+**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
