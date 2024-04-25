@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
+**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
