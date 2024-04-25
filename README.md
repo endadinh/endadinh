@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is fatal to enter any war without the will to win it. "</i></h5>**
+**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
 
-*<b>___ Douglas MacArthur ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
