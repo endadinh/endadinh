@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. "</i></h5>**
+**<h5><i>" An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. "</i></h5>**
 
-*<b>___ Vusi Mahlasela ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
