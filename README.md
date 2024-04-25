@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
+**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
