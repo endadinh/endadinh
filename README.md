@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
+**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
