@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune. "</i></h5>**
+**<h5><i>" The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
