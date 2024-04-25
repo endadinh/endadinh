@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
+**<h5><i>" Both formerly and now, it is only suffering that I describe, and the cessation of suffering. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
