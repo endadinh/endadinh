@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
+**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
 
-*<b>___ A. A. Milne ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
