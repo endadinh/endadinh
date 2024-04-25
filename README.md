@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
