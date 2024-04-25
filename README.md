@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
+**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
