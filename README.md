@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
