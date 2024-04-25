@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You know you're in love when you can't fall asleep because reality is finally better than your dreams. "</i></h5>**
+**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Harriet Woods ___</b>*
 
 -----
 
