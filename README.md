@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
+**<h5><i>" When times are bad is when the real entrepreneurs emerge. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Robert Kiyosaki ___</b>*
 
 -----
 
