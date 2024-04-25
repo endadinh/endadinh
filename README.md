@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
+**<h5><i>" The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. "</i></h5>**
 
-*<b>___ Ezra Taft Benson ___</b>*
+*<b>___ Margaret Chase Smith ___</b>*
 
 -----
 
