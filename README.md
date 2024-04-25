@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
+**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
