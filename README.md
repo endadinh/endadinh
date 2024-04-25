@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
+**<h5><i>" Those who cling to perceptions and views wander the world offending people. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
