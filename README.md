@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
+**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
