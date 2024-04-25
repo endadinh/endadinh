@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
+**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
