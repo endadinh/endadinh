@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest minds are capable of the greatest vices as well as of the greatest virtues. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
