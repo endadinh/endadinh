@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. "</i></h5>**
+**<h5><i>" This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature. "</i></h5>**
 
-*<b>___ Anne Brontë ___</b>*
+*<b>___ Don DeLillo ___</b>*
 
 -----
 
