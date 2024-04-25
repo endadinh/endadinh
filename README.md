@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. "</i></h5>**
+**<h5><i>" I always wanted to be somebody, but I should have been more specific. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Lily Tomlin ___</b>*
 
 -----
 
