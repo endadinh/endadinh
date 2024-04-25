@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
+**<h5><i>" One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. "</i></h5>**
 
-*<b>___ Harriet Woods ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
