@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins. "</i></h5>**
+**<h5><i>" No one is useless in this world who lightens the burdens of another. "</i></h5>**
 
-*<b>___ Charles Eastman ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
