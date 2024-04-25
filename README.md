@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. "</i></h5>**
+**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
 
-*<b>___ Judy Collins ___</b>*
+*<b>___ Etty Hillesum ___</b>*
 
 -----
 
