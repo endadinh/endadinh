@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man's growth is seen in the successive choirs of his friends "</i></h5>**
+**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
