@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
+**<h5><i>" It is fatal to enter any war without the will to win it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Douglas MacArthur ___</b>*
 
 -----
 
