@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. "</i></h5>**
+**<h5><i>" The greatest minds are capable of the greatest vices as well as of the greatest virtues. "</i></h5>**
 
-*<b>___ Elizabeth Montagu ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
