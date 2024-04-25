@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
+**<h5><i>" Until you make peace with who you are, you'll never be content with what you have. "</i></h5>**
 
-*<b>___ Henry Wadsworth Longfellow ___</b>*
+*<b>___ Doris Mortman ___</b>*
 
 -----
 
