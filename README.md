@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
+**<h5><i>" A man's growth is seen in the successive choirs of his friends "</i></h5>**
 
-*<b>___ Louisa May Alcott ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
