@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way you see people is the way you treat them, and the way you treat them is what they become. "</i></h5>**
+**<h5><i>" All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
