@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
+**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
 
-*<b>___ Sam Levenson ___</b>*
+*<b>___ Philip Sidney ___</b>*
 
 -----
 
