@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You teach best what you most need to learn. "</i></h5>**
+**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
