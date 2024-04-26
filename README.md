@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. "</i></h5>**
+**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
