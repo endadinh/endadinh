@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
