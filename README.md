@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend may well be reckoned the masterpiece of nature. "</i></h5>**
+**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ John C. Maxwell ___</b>*
 
 -----
 
