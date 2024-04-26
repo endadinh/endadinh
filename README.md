@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
+**<h5><i>" Our greatest glory is not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
