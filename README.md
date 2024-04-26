@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart. "</i></h5>**
+**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
