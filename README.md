@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
+**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
