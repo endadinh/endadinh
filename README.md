@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
+**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
