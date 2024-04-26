@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
+**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
