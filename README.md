@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way out is always through. "</i></h5>**
+**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
