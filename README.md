@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
+**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ E. M. Forster ___</b>*
 
 -----
 
