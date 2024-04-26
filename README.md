@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
+**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
 
-*<b>___ A. P. J. Abdul Kalam ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
