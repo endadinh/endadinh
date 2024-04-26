@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
+**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
