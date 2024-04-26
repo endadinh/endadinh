@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
+**<h5><i>" The cause is hidden. The effect is visible to all. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
