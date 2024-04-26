@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
+**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
