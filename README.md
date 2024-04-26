@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we achieve inwardly will change outer reality. "</i></h5>**
+**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ David Bader ___</b>*
 
 -----
 
