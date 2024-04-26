@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a travelling to the edge of knowledge, then a leap taken. "</i></h5>**
+**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
