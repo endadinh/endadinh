@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't turn away from possible futures before you're certain you don't have anything to learn from them. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
