@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
+**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
