@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
