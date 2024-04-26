@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The cause is hidden. The effect is visible to all. "</i></h5>**
+**<h5><i>" I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, and wear Reebok. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Shaquille O'Neal ___</b>*
 
 -----
 
