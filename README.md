@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
+**<h5><i>" You can't put a limit on anything. The more you dream, the farther you get. "</i></h5>**
 
-*<b>___ M. Scott Peck ___</b>*
+*<b>___ Michael Phelps ___</b>*
 
 -----
 
