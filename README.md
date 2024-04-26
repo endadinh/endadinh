@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, and wear Reebok. "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
-*<b>___ Shaquille O'Neal ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
