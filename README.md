@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
