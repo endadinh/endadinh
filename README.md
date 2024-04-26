@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
+**<h5><i>" Know how to listen, and you will profit even from those who talk badly. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
