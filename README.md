@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
+**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
