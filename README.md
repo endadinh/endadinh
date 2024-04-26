@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
