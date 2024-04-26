@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
+**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
 
-*<b>___ John C. Maxwell ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
