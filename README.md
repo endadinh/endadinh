@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
+**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
