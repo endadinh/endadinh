@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
+**<h5><i>" You teach best what you most need to learn. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
