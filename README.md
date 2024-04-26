@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
