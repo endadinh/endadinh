@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ David Bader ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
