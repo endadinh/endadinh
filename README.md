@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
+**<h5><i>" Think like a man of action; act like a man of thought. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ Henri Bergson ___</b>*
 
 -----
 
