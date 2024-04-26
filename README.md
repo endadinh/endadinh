@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday I dared to struggle. Today I dare to win. "</i></h5>**
+**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
 
-*<b>___ Bernadette Devlin ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
