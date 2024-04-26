@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
+**<h5><i>" The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
