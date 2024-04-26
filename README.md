@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition will tell the thinking mind where to look next. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Jonas Salk ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
