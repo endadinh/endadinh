@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
+**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
