@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
+**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
 
-*<b>___ Mignon McLaughlin ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
