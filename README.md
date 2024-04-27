@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
+**<h5><i>" Give whatever you are doing and whoever you are with the gift of your attention. "</i></h5>**
 
-*<b>___ Alfred Korzybski ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
