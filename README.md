@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
