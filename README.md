@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like the immortality of the soul, is too good to be believed. "</i></h5>**
+**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
