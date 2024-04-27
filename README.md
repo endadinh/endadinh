@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
+**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
 
-*<b>___ A. P. J. Abdul Kalam ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
