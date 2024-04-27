@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Ravi Zacharias ___</b>*
 
 -----
 
