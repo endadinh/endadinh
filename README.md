@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
+**<h5><i>" Every man takes the limits of his own field of vision for the limits of the world. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
