@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing in a caterpillar that tells you it's going to be a butterfly. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
-*<b>___ Buckminster Fuller ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
