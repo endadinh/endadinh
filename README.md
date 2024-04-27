@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. "</i></h5>**
+**<h5><i>" The important thing is this: to be able at any moment to sacrifice what we are for what we could become. "</i></h5>**
 
-*<b>___ James Freeman Clarke ___</b>*
+*<b>___ Charles Du Bos ___</b>*
 
 -----
 
