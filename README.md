@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
+**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Annie Dillard ___</b>*
 
 -----
 
