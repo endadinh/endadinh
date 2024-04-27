@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
+**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ John Eliot ___</b>*
 
 -----
 
