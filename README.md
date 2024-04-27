@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ A. P. J. Abdul Kalam ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
