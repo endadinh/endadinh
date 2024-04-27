@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
