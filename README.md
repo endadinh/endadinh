@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. "</i></h5>**
+**<h5><i>" When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. "</i></h5>**
 
-*<b>___ Ravi Zacharias ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
