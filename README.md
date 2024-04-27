@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man takes the limits of his own field of vision for the limits of the world. "</i></h5>**
+**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
 
-*<b>___ Arthur Schopenhauer ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
