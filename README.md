@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Inspiration exists, but it has to find us working. "</i></h5>**
+**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
