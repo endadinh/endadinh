@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
+**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Joyce Brothers ___</b>*
 
 -----
 
