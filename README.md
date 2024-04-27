@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
+**<h5><i>" Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
