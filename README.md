@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man will make more opportunities than he finds. "</i></h5>**
+**<h5><i>" Do something wonderful, people may imitate it. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
