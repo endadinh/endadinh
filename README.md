@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
+**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
