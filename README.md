@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I owe my solitude to other people. "</i></h5>**
+**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
