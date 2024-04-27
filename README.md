@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can observe a lot just by watching. "</i></h5>**
+**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ John Lubbock ___</b>*
 
 -----
 
