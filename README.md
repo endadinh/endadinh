@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
+**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
