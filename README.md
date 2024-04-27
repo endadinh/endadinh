@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only grow if you're willing to feel awkward and uncomfortable when you try something new. "</i></h5>**
+**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
