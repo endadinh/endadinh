@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
