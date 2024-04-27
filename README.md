@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
+**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
