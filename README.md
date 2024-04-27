@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no greater harm than that of time wasted. "</i></h5>**
+**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
