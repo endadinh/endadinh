@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is love there is life. "</i></h5>**
+**<h5><i>" Speak low, if you speak love. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
