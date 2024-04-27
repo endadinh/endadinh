@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" There's power in looking silly and not caring that you do. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Amy Poehler ___</b>*
 
 -----
 
