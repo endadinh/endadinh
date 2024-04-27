@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
+**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
