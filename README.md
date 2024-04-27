@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Alfred Adler ___</b>*
 
 -----
 
