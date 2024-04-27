@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do something wonderful, people may imitate it. "</i></h5>**
+**<h5><i>" There is no greater harm than that of time wasted. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
