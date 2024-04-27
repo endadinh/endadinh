@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
+**<h5><i>" To keep your secret is wisdom; but to expect others to keep it is folly. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
