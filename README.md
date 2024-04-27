@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
+**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Alfred Korzybski ___</b>*
 
 -----
 
