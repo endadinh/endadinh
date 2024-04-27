@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
+**<h5><i>" If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Margaret Thatcher ___</b>*
 
 -----
 
