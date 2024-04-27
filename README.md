@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
+**<h5><i>" Gratitude is not only the greatest of virtues, but the parent of all the others. "</i></h5>**
 
-*<b>___ Bob Knight ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
