@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" There is nothing in a caterpillar that tells you it's going to be a butterfly. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Buckminster Fuller ___</b>*
 
 -----
 
