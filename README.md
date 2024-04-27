@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak low, if you speak love. "</i></h5>**
+**<h5><i>" I owe my solitude to other people. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
