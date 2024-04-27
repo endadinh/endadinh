@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To keep your secret is wisdom; but to expect others to keep it is folly. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
