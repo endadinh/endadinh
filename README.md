@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" A wise man will make more opportunities than he finds. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
