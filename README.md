@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Programs must be written for people to read, and only incidentally for machines to execute. "</i></h5>**
+**<h5><i>" Step with care and great tact and remember that Life's a Great Balancing Act. "</i></h5>**
 
-*<b>___ Hal Abelson ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
