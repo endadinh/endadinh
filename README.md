@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
