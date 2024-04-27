@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
+**<h5><i>" There is no fear for one whose mind is not filled with desires. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
