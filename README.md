@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
+**<h5><i>" Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
