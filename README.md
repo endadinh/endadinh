@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ Jared Diamond ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
