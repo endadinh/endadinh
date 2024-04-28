@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To hell with circumstances, I create opportunities. "</i></h5>**
+**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Warren Bennis ___</b>*
 
 -----
 
