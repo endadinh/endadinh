@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act. "</i></h5>**
+**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
 
-*<b>___ G. K. Chesterton ___</b>*
+*<b>___ Ezra Stiles ___</b>*
 
 -----
 
