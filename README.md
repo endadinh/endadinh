@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
+**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
