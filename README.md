@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can do all because they think they can. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
