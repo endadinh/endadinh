@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
+**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
