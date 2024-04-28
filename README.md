@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation. "</i></h5>**
+**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
 
-*<b>___ Paul Theroux ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
