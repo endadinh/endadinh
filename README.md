@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The self is not something ready-made, but something in continuous formation through choice of action. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
