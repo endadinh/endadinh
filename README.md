@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
+**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
