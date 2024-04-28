@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship multiplies the good of life and divides the evil. "</i></h5>**
+**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
 
-*<b>___ Baltasar Gracián ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
