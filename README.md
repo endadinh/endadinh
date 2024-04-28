@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
+**<h5><i>" They can do all because they think they can. "</i></h5>**
 
-*<b>___ Warren Bennis ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
