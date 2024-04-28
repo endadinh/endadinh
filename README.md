@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
+**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
