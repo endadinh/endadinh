@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. "</i></h5>**
+**<h5><i>" What worries you masters you. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Haddon Robinson ___</b>*
 
 -----
 
