@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
+**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
 
-*<b>___ Naguib Mahfouz ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
