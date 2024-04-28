@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're changing the world, you're working on important things. You're excited to get up in the morning. "</i></h5>**
+**<h5><i>" Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. "</i></h5>**
 
-*<b>___ Larry Page ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
