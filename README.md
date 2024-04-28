@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
+**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ M. Scott Peck ___</b>*
 
 -----
 
