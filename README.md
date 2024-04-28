@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
+**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
