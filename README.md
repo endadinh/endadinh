@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
+**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
 
-*<b>___ George Foreman ___</b>*
+*<b>___ J. M. Barrie ___</b>*
 
 -----
 
