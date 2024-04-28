@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
+**<h5><i>" Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Paul Theroux ___</b>*
 
 -----
 
