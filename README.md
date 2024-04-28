@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
+**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
