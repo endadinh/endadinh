@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
