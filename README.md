@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel. "</i></h5>**
+**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Ray Bradbury ___</b>*
 
 -----
 
