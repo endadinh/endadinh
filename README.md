@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
+**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
