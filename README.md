@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
+**<h5><i>" Friendship multiplies the good of life and divides the evil. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Baltasar Gracián ___</b>*
 
 -----
 
