@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
+**<h5><i>" If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future. "</i></h5>**
 
-*<b>___ Henry Wadsworth Longfellow ___</b>*
+*<b>___ Caterina Fake ___</b>*
 
 -----
 
