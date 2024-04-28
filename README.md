@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
