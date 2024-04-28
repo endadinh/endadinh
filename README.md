@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
