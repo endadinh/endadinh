@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" The truth is not for all men, but only for those who seek it. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
