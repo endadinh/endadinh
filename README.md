@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" Be sure you put your feet in the right place, then stand firm. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
