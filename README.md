@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
+**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
