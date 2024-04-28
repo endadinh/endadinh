@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
