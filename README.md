@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
+**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
