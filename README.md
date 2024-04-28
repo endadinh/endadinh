@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
