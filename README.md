@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
