@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
