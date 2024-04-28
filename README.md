@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
+**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
