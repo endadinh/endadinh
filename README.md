@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
+**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
