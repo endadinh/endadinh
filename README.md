@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
+**<h5><i>" Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ John McCain ___</b>*
 
 -----
 
