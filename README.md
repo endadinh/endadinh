@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster. "</i></h5>**
+**<h5><i>" To hell with circumstances, I create opportunities. "</i></h5>**
 
-*<b>___ Joe Adcock ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
