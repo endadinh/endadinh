@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
+**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Morris West ___</b>*
 
 -----
 
