@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What worries you masters you. "</i></h5>**
+**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
 
-*<b>___ Haddon Robinson ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
