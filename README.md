@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
+**<h5><i>" Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
