@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give whatever you are doing and whoever you are with the gift of your attention. "</i></h5>**
+**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Jean-Jacques Rousseau ___</b>*
 
 -----
 
