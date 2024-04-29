@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
