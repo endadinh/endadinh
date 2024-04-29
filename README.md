@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
+**<h5><i>" Give whatever you are doing and whoever you are with the gift of your attention. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
