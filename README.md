@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not enough to have a good mind; the main thing is to use it well. "</i></h5>**
+**<h5><i>" I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Victoria Osteen ___</b>*
 
 -----
 
