@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer. "</i></h5>**
+**<h5><i>" A friend may well be reckoned the masterpiece of nature. "</i></h5>**
 
-*<b>___ Colette ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
