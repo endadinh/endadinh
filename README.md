@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Almost everything comes from nothing. "</i></h5>**
+**<h5><i>" Good, better, best. Never let it rest. ‘Til your good is better and your better is best. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
