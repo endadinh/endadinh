@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. "</i></h5>**
+**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Epicurus ___</b>*
 
 -----
 
