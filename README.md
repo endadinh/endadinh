@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
