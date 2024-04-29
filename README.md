@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
+**<h5><i>" We may encounter many defeats, but we must not be defeated. "</i></h5>**
 
-*<b>___ Margaret Cousins ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
