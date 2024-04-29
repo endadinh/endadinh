@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
+**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
