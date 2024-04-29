@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people are born on third base and go through life thinking they hit a triple. "</i></h5>**
+**<h5><i>" Let us always meet each other with smile, for the smile is the beginning of love. "</i></h5>**
 
-*<b>___ Barry Switzer ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
