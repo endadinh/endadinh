@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
+**<h5><i>" The simplest things are often the truest. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
