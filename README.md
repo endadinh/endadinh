@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
+**<h5><i>" I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Colette ___</b>*
 
 -----
 
