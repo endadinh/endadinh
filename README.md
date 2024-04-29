@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Arriving at one point is the starting point to another. "</i></h5>**
+**<h5><i>" It is not enough to have a good mind; the main thing is to use it well. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
