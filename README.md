@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Betty Friedan ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
