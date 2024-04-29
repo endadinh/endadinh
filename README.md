@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we seek to discover the best in others, we somehow bring out the best in ourselves. "</i></h5>**
+**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
