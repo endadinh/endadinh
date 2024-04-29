@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
+**<h5><i>" Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? "</i></h5>**
 
-*<b>___ Thomas Hardy ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
