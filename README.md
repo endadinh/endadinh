@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
+**<h5><i>" As a cure for worrying, work is better than whisky. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
