@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
