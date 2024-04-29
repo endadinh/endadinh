@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is not a talent of some men but is the health of every man. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
