@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you correct your mind, the rest of your life will fall into place. "</i></h5>**
+**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
