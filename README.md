@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There's power in looking silly and not caring that you do. "</i></h5>**
+**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
 
-*<b>___ Amy Poehler ___</b>*
+*<b>___ Ernie Banks ___</b>*
 
 -----
 
