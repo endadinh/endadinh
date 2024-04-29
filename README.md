@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not engaging in ignorance is wisdom. "</i></h5>**
+**<h5><i>" Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues. "</i></h5>**
 
-*<b>___ Bodhidharma ___</b>*
+*<b>___ Abigail Adams ___</b>*
 
 -----
 
