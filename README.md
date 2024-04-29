@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
+**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
