@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake activity for achievement. "</i></h5>**
+**<h5><i>" When we seek to discover the best in others, we somehow bring out the best in ourselves. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
