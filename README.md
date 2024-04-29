@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend may well be reckoned the masterpiece of nature. "</i></h5>**
+**<h5><i>" Love is blind; friendship closes its eyes. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
