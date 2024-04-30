@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
+**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
