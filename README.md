@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
+**<h5><i>" In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Mariella Frostrup ___</b>*
 
 -----
 
