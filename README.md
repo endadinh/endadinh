@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Steven Van Zandt ___</b>*
 
 -----
 
