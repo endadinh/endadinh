@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
+**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Cowper ___</b>*
 
 -----
 
