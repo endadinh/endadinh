@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
+**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
