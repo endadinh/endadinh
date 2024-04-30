@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ Len Wein ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
