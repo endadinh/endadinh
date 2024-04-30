@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
+**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Ansel Adams ___</b>*
 
 -----
 
