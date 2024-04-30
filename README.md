@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
+**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
