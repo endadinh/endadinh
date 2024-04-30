@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" Do all things with love. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
