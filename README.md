@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
