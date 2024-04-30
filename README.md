@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With the realization of one's own potential and self-confidence in one's ability, one can build a better world. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
