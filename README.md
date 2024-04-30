@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
