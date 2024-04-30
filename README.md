@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Augustine of Hippo ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
