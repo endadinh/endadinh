@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
+**<h5><i>" Love and friendship exclude each other. "</i></h5>**
 
-*<b>___ Kathleen Norris ___</b>*
+*<b>___ Jean de La Bruyère ___</b>*
 
 -----
 
