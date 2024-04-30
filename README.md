@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
+**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
