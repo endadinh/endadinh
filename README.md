@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is the language which the deaf can hear and the blind can see. "</i></h5>**
+**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
