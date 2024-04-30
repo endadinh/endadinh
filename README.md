@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something. "</i></h5>**
+**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
