@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Thomas Hardy ___</b>*
 
 -----
 
