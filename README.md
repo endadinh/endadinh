@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
+**<h5><i>" It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Jessamyn West ___</b>*
 
 -----
 
