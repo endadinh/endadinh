@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
