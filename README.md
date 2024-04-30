@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man acts before he speaks, and afterwards speaks according to his action. "</i></h5>**
+**<h5><i>" I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
