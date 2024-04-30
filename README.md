@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled. "</i></h5>**
+**<h5><i>" You can't blame gravity for falling in love. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
