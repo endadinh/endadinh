@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
+**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
