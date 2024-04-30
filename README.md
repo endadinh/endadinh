@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
+**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
