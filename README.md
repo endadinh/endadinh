@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
