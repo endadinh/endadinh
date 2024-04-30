@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do all things with love. "</i></h5>**
+**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Kathleen Norris ___</b>*
 
 -----
 
