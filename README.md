@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
+**<h5><i>" Always do your best. What you plant now, you will harvest later. "</i></h5>**
 
-*<b>___ Rita Mae Brown ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
