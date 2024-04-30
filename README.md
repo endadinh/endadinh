@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
+**<h5><i>" If you want a thing done well, do it yourself. "</i></h5>**
 
-*<b>___ Rabindranath Tagore ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
