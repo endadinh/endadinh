@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Pericles ___</b>*
 
 -----
 
