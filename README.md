@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
+**<h5><i>" You really can change the world if you care enough. "</i></h5>**
 
-*<b>___ Henry Reed ___</b>*
+*<b>___ Marian Wright Edelman ___</b>*
 
 -----
 
