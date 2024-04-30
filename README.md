@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
+**<h5><i>" Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
