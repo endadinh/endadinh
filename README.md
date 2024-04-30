@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a problem to be solved, but a reality to be experienced. "</i></h5>**
+**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
