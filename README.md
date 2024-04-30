@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
