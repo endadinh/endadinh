@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always do your best. What you plant now, you will harvest later. "</i></h5>**
+**<h5><i>" Imagination is not a talent of some men but is the health of every man. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
