@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
