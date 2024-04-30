@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want a thing done well, do it yourself. "</i></h5>**
+**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
