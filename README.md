@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't blame gravity for falling in love. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
