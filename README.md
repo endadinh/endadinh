@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
+**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
