@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The years teach much which the days never know. "</i></h5>**
+**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Rita Mae Brown ___</b>*
 
 -----
 
