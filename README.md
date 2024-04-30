@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
+**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
