@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
+**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
 
-*<b>___ Pericles ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
