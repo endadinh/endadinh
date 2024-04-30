@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and friendship exclude each other. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Jean de La Bruyère ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
