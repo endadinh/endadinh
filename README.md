@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" Meetings are indispensable when you don't want to do anything. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ John Kenneth Galbraith ___</b>*
 
 -----
 
