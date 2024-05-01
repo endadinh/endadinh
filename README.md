@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
