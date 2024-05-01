@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
+**<h5><i>" Football is football and talent is talent. But the mindset of your team makes all the difference. "</i></h5>**
 
-*<b>___ Isaac Asimov ___</b>*
+*<b>___ Robert Griffin III ___</b>*
 
 -----
 
