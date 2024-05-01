@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. "</i></h5>**
+**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Swami Vivekananda ___</b>*
 
 -----
 
