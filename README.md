@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
+**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Arthur M. Schlesinger Jr. ___</b>*
 
 -----
 
