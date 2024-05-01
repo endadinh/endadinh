@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. "</i></h5>**
+**<h5><i>" One fails forward toward success. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Charles F. Kettering ___</b>*
 
 -----
 
