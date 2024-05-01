@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To lead people walk behind them. "</i></h5>**
+**<h5><i>" You cannot have what you do not want. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ John Acosta ___</b>*
 
 -----
 
