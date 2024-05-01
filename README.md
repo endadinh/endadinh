@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
