@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
