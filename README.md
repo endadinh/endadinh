@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
+**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Paul Cézanne ___</b>*
 
 -----
 
