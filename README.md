@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
+**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Isaac Asimov ___</b>*
 
 -----
 
