@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
+**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
