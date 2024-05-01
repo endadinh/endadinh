@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
+**<h5><i>" Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
