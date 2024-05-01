@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One fails forward toward success. "</i></h5>**
+**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
