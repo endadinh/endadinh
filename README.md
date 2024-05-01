@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
+**<h5><i>" I am a man of fixed and unbending principles, the first of which is to be flexible at all times. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Everett Dirksen ___</b>*
 
 -----
 
