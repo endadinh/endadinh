@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
+**<h5><i>" Listen to what you know instead of what you fear. "</i></h5>**
 
-*<b>___ William Wordsworth ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
