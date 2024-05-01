@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The two most powerful warriors are patience and time. "</i></h5>**
+**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
