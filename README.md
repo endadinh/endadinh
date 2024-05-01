@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. "</i></h5>**
+**<h5><i>" Half the lies they tell about me aren't true. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
