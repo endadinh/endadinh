@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
