@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ Hannah Arendt ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
