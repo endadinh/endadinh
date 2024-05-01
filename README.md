@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
+**<h5><i>" The two most powerful warriors are patience and time. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Leo Tolstoy ___</b>*
 
 -----
 
