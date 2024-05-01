@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
+**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
