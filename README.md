@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
