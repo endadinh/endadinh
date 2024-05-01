@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
