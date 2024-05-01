@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
+**<h5><i>" There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
