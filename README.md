@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid. "</i></h5>**
+**<h5><i>" Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. "</i></h5>**
 
-*<b>___ Audre Lorde ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
