@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ William Sloane Coffin ___</b>*
 
 -----
 
