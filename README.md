@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meetings are indispensable when you don't want to do anything. "</i></h5>**
+**<h5><i>" An organization, no matter how well designed, is only as good as the people who live and work in it. "</i></h5>**
 
-*<b>___ John Kenneth Galbraith ___</b>*
+*<b>___ Dee Hock ___</b>*
 
 -----
 
