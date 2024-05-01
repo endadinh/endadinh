@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
+**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
 
-*<b>___ Arthur M. Schlesinger Jr. ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
