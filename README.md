@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
+**<h5><i>" All know the way; few actually walk it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Bodhidharma ___</b>*
 
 -----
 
