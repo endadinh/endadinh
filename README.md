@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
+**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
