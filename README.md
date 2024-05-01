@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
+**<h5><i>" If you wish to be a writer, write. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
