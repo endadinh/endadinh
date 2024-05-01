@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Half the lies they tell about me aren't true. "</i></h5>**
+**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
