@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease. "</i></h5>**
+**<h5><i>" Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Dale Turner ___</b>*
 
 -----
 
