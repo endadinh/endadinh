@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No snowflake in an avalanche ever feels responsible. "</i></h5>**
+**<h5><i>" If we look at the world with a love of life, the world will reveal its beauty to us. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
