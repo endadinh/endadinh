@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. "</i></h5>**
+**<h5><i>" He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin. "</i></h5>**
 
-*<b>___ Judy Collins ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
