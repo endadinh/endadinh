@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
+**<h5><i>" The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease. "</i></h5>**
 
-*<b>___ P. Chidambaram ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
