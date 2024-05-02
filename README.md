@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
+**<h5><i>" If you don't know where you are going, you will probably end up somewhere else. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
