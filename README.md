@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ Henry Miller ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
