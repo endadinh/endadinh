@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
+**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Corita Kent ___</b>*
 
 -----
 
