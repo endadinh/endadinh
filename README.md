@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
