@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" The invariable mark of wisdom is to see the miraculous in the common. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
