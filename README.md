@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great acts are made up of small deeds. "</i></h5>**
+**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Eustace Budgell ___</b>*
 
 -----
 
