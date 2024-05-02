@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
+**<h5><i>" Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
