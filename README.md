@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All great achievements require time. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
