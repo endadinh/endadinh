@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" To bring anything into your life, imagine that it's already there. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
