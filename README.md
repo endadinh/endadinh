@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Tryon Edwards ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
