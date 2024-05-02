@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
+**<h5><i>" A wise man will make more opportunities than he finds. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
