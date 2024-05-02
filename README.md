@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're not obligated to win. You're obligated to keep trying to do the best you can every day. "</i></h5>**
+**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Clay Shirky ___</b>*
 
 -----
 
