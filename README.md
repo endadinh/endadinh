@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
+**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
