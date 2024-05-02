@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Arriving at one point is the starting point to another. "</i></h5>**
+**<h5><i>" Great acts are made up of small deeds. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
