@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
+**<h5><i>" Be as you wish to seem. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
