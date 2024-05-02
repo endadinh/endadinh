@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ George Herbert ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
