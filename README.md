@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be as you wish to seem. "</i></h5>**
+**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
