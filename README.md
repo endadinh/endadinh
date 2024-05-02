@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
+**<h5><i>" Change in all things is sweet. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
