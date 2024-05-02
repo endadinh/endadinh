@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
+**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
 
-*<b>___ Corita Kent ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
