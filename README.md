@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
+**<h5><i>" Things turn out best for those who make the best of the way things turn out. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Jack Buck ___</b>*
 
 -----
 
