@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
