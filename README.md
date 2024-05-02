@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change in all things is sweet. "</i></h5>**
+**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ John Lasseter ___</b>*
 
 -----
 
