@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
+**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
 
-*<b>___ Mignon McLaughlin ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
