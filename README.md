@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. "</i></h5>**
+**<h5><i>" Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Katherine Mansfield ___</b>*
 
 -----
 
