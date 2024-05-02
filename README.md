@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, you will probably end up somewhere else. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
