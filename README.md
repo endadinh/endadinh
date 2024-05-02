@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Theophrastus ___</b>*
 
 -----
 
