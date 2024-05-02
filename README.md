@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
+**<h5><i>" Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. "</i></h5>**
 
-*<b>___ Theophrastus ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
