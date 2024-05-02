@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication. "</i></h5>**
+**<h5><i>" If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem. "</i></h5>**
 
-*<b>___ Cecil B. DeMille ___</b>*
+*<b>___ J. Paul Getty ___</b>*
 
 -----
 
