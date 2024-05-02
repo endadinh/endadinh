@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
+**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Reinhold Niebuhr ___</b>*
 
 -----
 
