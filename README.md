@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
+**<h5><i>" We are wiser than we know. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
