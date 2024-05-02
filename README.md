@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
+**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
 
-*<b>___ Jim Morrison ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
