@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
