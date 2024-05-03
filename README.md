@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
+**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
