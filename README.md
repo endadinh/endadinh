@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
+**<h5><i>" Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Alan Cohen ___</b>*
 
 -----
 
