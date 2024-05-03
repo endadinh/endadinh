@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. "</i></h5>**
+**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Mariella Frostrup ___</b>*
 
 -----
 
