@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
+**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
