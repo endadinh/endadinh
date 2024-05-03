@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
