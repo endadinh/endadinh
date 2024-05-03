@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Léon Blum ___</b>*
 
 -----
 
