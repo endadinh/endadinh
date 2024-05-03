@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
+**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
 
-*<b>___ William Cowper ___</b>*
+*<b>___ Clay Shirky ___</b>*
 
 -----
 
