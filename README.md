@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
+**<h5><i>" The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
