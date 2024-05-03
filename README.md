@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction. "</i></h5>**
+**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Loretta Young ___</b>*
 
 -----
 
