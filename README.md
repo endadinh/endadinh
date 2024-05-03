@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ William Cowper ___</b>*
 
 -----
 
