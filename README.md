@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
+**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
