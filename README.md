@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
+**<h5><i>" There is no way to prosperity, prosperity is the way. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
