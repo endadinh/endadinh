@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you'll never be content with what you have. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
