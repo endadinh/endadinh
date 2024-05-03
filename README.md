@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
+**<h5><i>" Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Hannah Arendt ___</b>*
 
 -----
 
