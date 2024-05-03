@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
+**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
