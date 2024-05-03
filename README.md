@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. "</i></h5>**
+**<h5><i>" Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
