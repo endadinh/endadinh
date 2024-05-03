@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
+**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
