@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
