@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
+**<h5><i>" It requires wisdom to understand wisdom: the music is nothing if the audience is deaf. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
