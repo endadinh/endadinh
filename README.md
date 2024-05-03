@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
