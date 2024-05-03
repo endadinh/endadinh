@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
