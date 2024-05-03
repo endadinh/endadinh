@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The root of suffering is attachment. "</i></h5>**
+**<h5><i>" Ethics change with technology. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Larry Niven ___</b>*
 
 -----
 
