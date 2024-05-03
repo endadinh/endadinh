@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. "</i></h5>**
+**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
