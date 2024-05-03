@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
