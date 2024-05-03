@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
+**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
 
-*<b>___ Ben Hogan ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
