@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
