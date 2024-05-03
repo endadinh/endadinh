@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
+**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
