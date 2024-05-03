@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
+**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
 
-*<b>___ Corita Kent ___</b>*
+*<b>___ Ben Hogan ___</b>*
 
 -----
 
