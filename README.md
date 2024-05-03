@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
+**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Corita Kent ___</b>*
 
 -----
 
