@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Henri Bergson ___</b>*
 
 -----
 
