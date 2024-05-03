@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" Trying to define yourself is like trying to bite your own teeth. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
