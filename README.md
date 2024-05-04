@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can do it if you believe you can! "</i></h5>**
+**<h5><i>" To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
