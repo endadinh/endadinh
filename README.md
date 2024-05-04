@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
