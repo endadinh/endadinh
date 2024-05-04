@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
+**<h5><i>" Positive thinking will let you do everything better than negative thinking will. "</i></h5>**
 
-*<b>___ Simon Mainwaring ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
