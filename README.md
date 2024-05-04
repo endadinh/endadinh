@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
+**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
 
-*<b>___ Herbert Hoover ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
