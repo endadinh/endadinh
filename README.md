@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
+**<h5><i>" With the new day comes new strength and new thoughts. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
