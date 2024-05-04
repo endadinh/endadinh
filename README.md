@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Positive thinking will let you do everything better than negative thinking will. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
