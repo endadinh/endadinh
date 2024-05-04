@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
+**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Joseph Wood Krutch ___</b>*
 
 -----
 
