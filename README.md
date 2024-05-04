@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
