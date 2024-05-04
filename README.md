@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
+**<h5><i>" The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world. "</i></h5>**
 
-*<b>___ William Inge ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
