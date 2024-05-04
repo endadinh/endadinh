@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're never a loser until you quit trying. "</i></h5>**
+**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
 
-*<b>___ Mike Ditka ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
