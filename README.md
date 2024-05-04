@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Naguib Mahfouz ___</b>*
 
 -----
 
