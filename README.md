@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
