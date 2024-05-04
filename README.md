@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
+**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
