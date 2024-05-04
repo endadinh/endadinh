@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
+**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
