@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Important principles may, and must, be inflexible. "</i></h5>**
+**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
