@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
+**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
