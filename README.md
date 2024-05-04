@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A rolling stone gathers no moss. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
