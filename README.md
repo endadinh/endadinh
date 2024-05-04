@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
+**<h5><i>" A rolling stone gathers no moss. "</i></h5>**
 
-*<b>___ Pierre-Auguste Renoir ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
