@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Efficiency is doing things right; effectiveness is doing the right things. "</i></h5>**
+**<h5><i>" Ability will never catch up with the demand for it. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
