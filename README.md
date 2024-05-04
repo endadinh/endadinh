@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
+**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
 
-*<b>___ Naguib Mahfouz ___</b>*
+*<b>___ Michael Jordan ___</b>*
 
 -----
 
