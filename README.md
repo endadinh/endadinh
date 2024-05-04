@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
