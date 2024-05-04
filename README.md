@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
+**<h5><i>" You can do it if you believe you can! "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
