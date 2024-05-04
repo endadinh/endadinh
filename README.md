@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
+**<h5><i>" A goal without a plan is just a wish. "</i></h5>**
 
-*<b>___ John Berry ___</b>*
+*<b>___ Larry Elder ___</b>*
 
 -----
 
