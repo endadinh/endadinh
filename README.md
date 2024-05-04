@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Berry ___</b>*
 
 -----
 
