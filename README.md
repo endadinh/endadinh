@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A goal without a plan is just a wish. "</i></h5>**
+**<h5><i>" Leave no stone unturned. "</i></h5>**
 
-*<b>___ Larry Elder ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
