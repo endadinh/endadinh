@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
+**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
