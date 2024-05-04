@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
+**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
 
-*<b>___ John Berry ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
