@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
+**<h5><i>" Bad times have a scientific value. These are occasions a good learner would not miss. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
