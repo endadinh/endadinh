@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value. "</i></h5>**
+**<h5><i>" All our dreams can come true, if we have the courage to pursue them. "</i></h5>**
 
-*<b>___ Isaac Asimov ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
