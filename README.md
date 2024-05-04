@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The final proof of greatness lies in being able to endure criticism without resentment. "</i></h5>**
+**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
