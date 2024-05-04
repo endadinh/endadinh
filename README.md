@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
+**<h5><i>" One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. "</i></h5>**
 
-*<b>___ M. Scott Peck ___</b>*
+*<b>___ Simone de Beauvoir ___</b>*
 
 -----
 
