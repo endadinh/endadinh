@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
