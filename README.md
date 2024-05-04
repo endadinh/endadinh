@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
