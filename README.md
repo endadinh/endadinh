@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
