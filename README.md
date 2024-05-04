@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Bad times have a scientific value. These are occasions a good learner would not miss. "</i></h5>**
+**<h5><i>" Efficiency is doing things right; effectiveness is doing the right things. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
