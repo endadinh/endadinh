@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Leave no stone unturned. "</i></h5>**
+**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
