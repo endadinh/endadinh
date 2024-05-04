@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. "</i></h5>**
+**<h5><i>" A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Isaac Asimov ___</b>*
 
 -----
 
