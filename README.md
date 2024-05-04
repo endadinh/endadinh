@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
