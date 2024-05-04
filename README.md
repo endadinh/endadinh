@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
+**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ William Inge ___</b>*
 
 -----
 
