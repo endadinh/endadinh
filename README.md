@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
+**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ E. M. Forster ___</b>*
 
 -----
 
