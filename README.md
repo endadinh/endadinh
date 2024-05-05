@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
