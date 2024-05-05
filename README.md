@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
+**<h5><i>" Failure doesn't mean you are a failure it just means you haven't succeeded yet. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
