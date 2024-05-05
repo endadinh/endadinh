@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
+**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
