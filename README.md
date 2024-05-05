@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
+**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
 
-*<b>___ Walter Cronkite ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
