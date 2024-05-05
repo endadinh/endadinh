@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins. "</i></h5>**
+**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
