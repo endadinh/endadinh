@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
