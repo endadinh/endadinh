@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If there is such a thing as a good marriage, it is because it resembles friendship rather than love. "</i></h5>**
+**<h5><i>" Only do what your heart tells you. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Princess Diana ___</b>*
 
 -----
 
