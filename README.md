@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
+**<h5><i>" Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship? "</i></h5>**
 
-*<b>___ Jonathan Kozol ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
