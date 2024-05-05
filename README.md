@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
+**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
 
-*<b>___ E. M. Forster ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
