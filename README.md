@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
