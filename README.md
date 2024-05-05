@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination will often carry us to worlds that never were. But without it we go nowhere. "</i></h5>**
+**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
 
-*<b>___ Carl Sagan ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
