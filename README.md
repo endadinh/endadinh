@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
+**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
