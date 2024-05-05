@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
+**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Tom Lehrer ___</b>*
 
 -----
 
