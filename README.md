@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
+**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Phyllis Grissim-Theroux ___</b>*
 
 -----
 
