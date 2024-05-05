@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure doesn't mean you are a failure it just means you haven't succeeded yet. "</i></h5>**
+**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
