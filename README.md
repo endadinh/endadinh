@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
+**<h5><i>" You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Jim Bouton ___</b>*
 
 -----
 
