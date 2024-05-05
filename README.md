@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
+**<h5><i>" A creative man is motivated by the desire to achieve, not by the desire to beat others. "</i></h5>**
 
-*<b>___ Ezra Stiles ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
