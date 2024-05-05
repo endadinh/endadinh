@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
