@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is not only the greatest of virtues, but the parent of all the others. "</i></h5>**
+**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
