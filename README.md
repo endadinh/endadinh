@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To keep your secret is wisdom; but to expect others to keep it is folly. "</i></h5>**
+**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
