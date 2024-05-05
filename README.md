@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
+**<h5><i>" There is no great genius without some touch of madness. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
