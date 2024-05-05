@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most successful people are those who are good at plan B. "</i></h5>**
+**<h5><i>" The only journey is the one within. "</i></h5>**
 
-*<b>___ James A. Yorke ___</b>*
+*<b>___ Rainer Maria Rilke ___</b>*
 
 -----
 
