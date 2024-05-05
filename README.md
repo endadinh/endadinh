@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
+**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
 
-*<b>___ Tom Lehrer ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
