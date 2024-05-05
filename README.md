@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only journey is the one within. "</i></h5>**
+**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
 
-*<b>___ Rainer Maria Rilke ___</b>*
+*<b>___ Doug Larson ___</b>*
 
 -----
 
