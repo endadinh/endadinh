@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
+**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
