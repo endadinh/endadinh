@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
+**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
 
-*<b>___ Doug Larson ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
