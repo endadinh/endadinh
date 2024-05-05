@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
+**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
 
-*<b>___ Viktor Frankl ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
