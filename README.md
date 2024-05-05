@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make the most of yourself, for that is all there is of you. "</i></h5>**
+**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
