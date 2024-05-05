@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
