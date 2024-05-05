@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
+**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
