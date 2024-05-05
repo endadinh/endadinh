@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
+**<h5><i>" Gratitude is not only the greatest of virtues, but the parent of all the others. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
