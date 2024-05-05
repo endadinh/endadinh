@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A creative man is motivated by the desire to achieve, not by the desire to beat others. "</i></h5>**
+**<h5><i>" Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
