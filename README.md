@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster. "</i></h5>**
+**<h5><i>" Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. "</i></h5>**
 
-*<b>___ Avery Brooks ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
