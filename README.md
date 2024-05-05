@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
+**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
 
-*<b>___ Phyllis Grissim-Theroux ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
