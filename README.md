@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Joseph Addison ___</b>*
 
 -----
 
