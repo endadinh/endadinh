@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no great genius without some touch of madness. "</i></h5>**
+**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
