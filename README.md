@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
+**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Fawn M. Brodie ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
