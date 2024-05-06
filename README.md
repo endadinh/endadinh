@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
