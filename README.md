@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
+**<h5><i>" When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
