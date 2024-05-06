@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person. "</i></h5>**
+**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
