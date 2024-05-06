@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be wise by the misfortunes of others than by your own. "</i></h5>**
+**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
