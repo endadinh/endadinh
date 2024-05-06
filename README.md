@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
+**<h5><i>" The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
