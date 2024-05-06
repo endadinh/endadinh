@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
+**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
 
-*<b>___ Paulo Coelho ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
