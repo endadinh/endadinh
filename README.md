@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
+**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
 
-*<b>___ John Quincy Adams ___</b>*
+*<b>___ Henry Reed ___</b>*
 
 -----
 
