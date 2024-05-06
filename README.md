@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. "</i></h5>**
+**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
