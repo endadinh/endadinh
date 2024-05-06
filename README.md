@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To conquer fear is the beginning of wisdom. "</i></h5>**
+**<h5><i>" The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for. "</i></h5>**
 
-*<b>___ Bertrand Russell ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
