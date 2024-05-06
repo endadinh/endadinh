@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
+**<h5><i>" Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. "</i></h5>**
 
-*<b>___ Archimedes ___</b>*
+*<b>___ Samuel Beckett ___</b>*
 
 -----
 
