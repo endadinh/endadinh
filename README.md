@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
+**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
