@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always. "</i></h5>**
+**<h5><i>" Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
