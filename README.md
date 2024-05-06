@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
+**<h5><i>" Never mistake motion for action. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
