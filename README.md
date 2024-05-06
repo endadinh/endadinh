@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
+**<h5><i>" What lies behind us and what lies before us are small matters compared to what lies within us. "</i></h5>**
 
-*<b>___ Uta Hagen ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
