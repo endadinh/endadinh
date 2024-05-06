@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" None knows the weight of another's burden. "</i></h5>**
+**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
 
-*<b>___ George Herbert ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
