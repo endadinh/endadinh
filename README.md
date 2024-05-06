@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. "</i></h5>**
+**<h5><i>" Before we acquire great power, we must acquire wisdom to use it well. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
