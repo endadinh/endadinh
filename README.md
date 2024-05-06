@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
