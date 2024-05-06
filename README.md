@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What lies behind us and what lies before us are small matters compared to what lies within us. "</i></h5>**
+**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
