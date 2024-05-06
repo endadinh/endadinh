@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know how to listen, and you will profit even from those who talk badly. "</i></h5>**
+**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
