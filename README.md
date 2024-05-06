@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
