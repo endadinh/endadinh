@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology… the knack of so arranging the world that we don't have to experience it. "</i></h5>**
+**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
 
-*<b>___ Max Frisch ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
