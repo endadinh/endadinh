@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
