@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
