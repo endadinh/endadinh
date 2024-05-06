@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
