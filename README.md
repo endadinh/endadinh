@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
+**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
