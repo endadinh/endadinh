@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
+**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
