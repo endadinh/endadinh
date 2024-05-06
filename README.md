@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing. "</i></h5>**
+**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
 
-*<b>___ Elie Wiesel ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
