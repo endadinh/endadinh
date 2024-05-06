@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
+**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
 
-*<b>___ Alfred Korzybski ___</b>*
+*<b>___ John Quincy Adams ___</b>*
 
 -----
 
