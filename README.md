@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
+**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
