@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
+**<h5><i>" To conquer fear is the beginning of wisdom. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Bertrand Russell ___</b>*
 
 -----
 
