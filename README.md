@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
+**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Paulo Coelho ___</b>*
 
 -----
 
