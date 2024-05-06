@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
+**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Kurt Vonnegut ___</b>*
 
 -----
 
