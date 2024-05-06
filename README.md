@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We gain the strength of the temptation we resist. "</i></h5>**
+**<h5><i>" Technology… the knack of so arranging the world that we don't have to experience it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Max Frisch ___</b>*
 
 -----
 
