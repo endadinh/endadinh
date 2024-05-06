@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. "</i></h5>**
+**<h5><i>" All of our technology is completely unnecessary to a happy life. "</i></h5>**
 
-*<b>___ David Rockefeller ___</b>*
+*<b>___ Tom Hodgkinson ___</b>*
 
 -----
 
