@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be. "</i></h5>**
+**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Sun Tzu ___</b>*
 
 -----
 
