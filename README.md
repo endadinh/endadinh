@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
+**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
 
-*<b>___ Dan Gable ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
