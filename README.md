@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
+**<h5><i>" Mountains cannot be surmounted except by winding paths. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
