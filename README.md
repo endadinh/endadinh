@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
+**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
 
-*<b>___ Peter Abelard ___</b>*
+*<b>___ Saul Alinsky ___</b>*
 
 -----
 
