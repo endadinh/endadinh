@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
