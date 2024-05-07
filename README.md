@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
