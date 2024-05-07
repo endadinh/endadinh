@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
+**<h5><i>" Who sows virtue reaps honor. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
