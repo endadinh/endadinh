@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The opportunity for brotherhood presents itself every time you meet a human being. "</i></h5>**
+**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
 
-*<b>___ Jane Wyman ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
