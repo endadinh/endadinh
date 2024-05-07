@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man who doesn't trust himself can never really trust anyone else. "</i></h5>**
+**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
 
-*<b>___ Jean François Paul de Gondi ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
