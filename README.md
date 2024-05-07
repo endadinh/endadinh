@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
