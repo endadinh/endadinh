@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
+**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
 
-*<b>___ Jon Kabat-Zinn ___</b>*
+*<b>___ Cheng Yen ___</b>*
 
 -----
 
