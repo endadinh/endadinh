@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" The farther backward you can look, the farther forward you can see. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
