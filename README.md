@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
+**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
