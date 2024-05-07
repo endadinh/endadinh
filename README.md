@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mountains cannot be surmounted except by winding paths. "</i></h5>**
+**<h5><i>" A man who doesn't trust himself can never really trust anyone else. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Jean François Paul de Gondi ___</b>*
 
 -----
 
