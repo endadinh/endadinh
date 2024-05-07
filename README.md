@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
+**<h5><i>" Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
