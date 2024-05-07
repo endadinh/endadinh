@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
+**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
