@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to predict your future is to create it. "</i></h5>**
+**<h5><i>" Almost everything comes from nothing. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
