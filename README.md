@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times. "</i></h5>**
+**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
