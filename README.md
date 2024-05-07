@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
+**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Jack Welch ___</b>*
 
 -----
 
