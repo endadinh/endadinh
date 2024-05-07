@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
