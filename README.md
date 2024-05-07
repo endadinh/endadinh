@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
+**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
 
-*<b>___ John Keats ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
