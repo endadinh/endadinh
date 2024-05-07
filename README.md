@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
+**<h5><i>" Wisdom is the power to put our time and our knowledge to the proper use. "</i></h5>**
 
-*<b>___ Edgar Allan Poe ___</b>*
+*<b>___ Thomas J. Watson ___</b>*
 
 -----
 
