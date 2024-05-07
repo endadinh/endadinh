@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that every person is born with talent. "</i></h5>**
+**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Forrest Church ___</b>*
 
 -----
 
