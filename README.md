@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
