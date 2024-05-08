@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
+**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
