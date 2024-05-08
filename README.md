@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job. "</i></h5>**
+**<h5><i>" Adopt the pace of nature: her secret is patience. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
