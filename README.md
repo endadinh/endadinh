@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All is flux; nothing stays still. "</i></h5>**
+**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
