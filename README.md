@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
+**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
 
-*<b>___ Franz Kafka ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
