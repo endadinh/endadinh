@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good advice is always certain to be ignored, but that's no reason not to give it. "</i></h5>**
+**<h5><i>" Adversity causes some men to break, others to break records. "</i></h5>**
 
-*<b>___ Agatha Christie ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
