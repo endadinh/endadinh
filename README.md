@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
