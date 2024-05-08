@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
