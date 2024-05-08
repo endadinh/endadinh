@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
+**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
