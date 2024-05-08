@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
+**<h5><i>" Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Richard Needham ___</b>*
 
 -----
 
