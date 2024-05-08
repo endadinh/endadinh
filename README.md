@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
+**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
