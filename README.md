@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" 'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering. "</i></h5>**
+**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Pierrakos ___</b>*
 
 -----
 
