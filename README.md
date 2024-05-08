@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. "</i></h5>**
+**<h5><i>" I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
