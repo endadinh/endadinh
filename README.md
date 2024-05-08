@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
+**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
 
-*<b>___ Rita Mae Brown ___</b>*
+*<b>___ Demosthenes ___</b>*
 
 -----
 
