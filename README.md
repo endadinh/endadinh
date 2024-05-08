@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
+**<h5><i>" 'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
