@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the master key that opens the gates of happiness. "</i></h5>**
+**<h5><i>" I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ John Keats ___</b>*
 
 -----
 
