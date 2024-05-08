@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
+**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Forrest Church ___</b>*
 
 -----
 
