@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Calvin Coolidge ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
