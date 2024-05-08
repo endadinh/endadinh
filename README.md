@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our character is what we do when we think no one is looking. "</i></h5>**
+**<h5><i>" We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
