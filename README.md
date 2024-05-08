@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
