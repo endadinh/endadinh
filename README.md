@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. "</i></h5>**
+**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
