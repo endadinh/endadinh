@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
+**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Joyce Meyer ___</b>*
 
 -----
 
