@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men speak because they have something to say; Fools because they have to say something. "</i></h5>**
+**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
