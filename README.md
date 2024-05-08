@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
+**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
