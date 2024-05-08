@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity causes some men to break, others to break records. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
