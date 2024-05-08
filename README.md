@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ Jim Bouton ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
