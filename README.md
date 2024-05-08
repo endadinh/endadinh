@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
+**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Tony Blair ___</b>*
 
 -----
 
