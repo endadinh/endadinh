@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
