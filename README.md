@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
+**<h5><i>" Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise? "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
