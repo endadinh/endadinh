@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
+**<h5><i>" Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Johann Kaspar Lavater ___</b>*
 
 -----
 
