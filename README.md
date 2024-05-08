@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
+**<h5><i>" Friendship is always a sweet responsibility, never an opportunity. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
