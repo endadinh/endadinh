@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
+**<h5><i>" Wise men speak because they have something to say; Fools because they have to say something. "</i></h5>**
 
-*<b>___ H. G. Wells ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
