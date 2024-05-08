@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
+**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
 
-*<b>___ Forrest Church ___</b>*
+*<b>___ Franz Kafka ___</b>*
 
 -----
 
