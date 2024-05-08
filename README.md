@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise? "</i></h5>**
+**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
