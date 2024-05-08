@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things change; nothing perishes. "</i></h5>**
+**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
