@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
+**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
