@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
+**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
