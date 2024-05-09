@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can always count on Americans to do the right thing - after they've tried everything else. "</i></h5>**
+**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Alfred Korzybski ___</b>*
 
 -----
 
