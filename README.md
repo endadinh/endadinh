@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
+**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
 
-*<b>___ Ray Bradbury ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
