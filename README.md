@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
+**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
