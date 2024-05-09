@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
+**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Dwight D. Eisenhower ___</b>*
 
 -----
 
