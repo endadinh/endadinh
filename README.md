@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The winner ain't the one with the fastest car it's the one who refuses to lose. "</i></h5>**
+**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
 
-*<b>___ Dale Earnhardt ___</b>*
+*<b>___ Walter Scott ___</b>*
 
 -----
 
