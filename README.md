@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom begins at the end. "</i></h5>**
+**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
 
-*<b>___ Daniel Webster ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
