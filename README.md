@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
