@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
+**<h5><i>" If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. "</i></h5>**
 
-*<b>___ M. Scott Peck ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
