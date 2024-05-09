@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
+**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
