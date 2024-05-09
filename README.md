@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
