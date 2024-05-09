@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are things that show a person what they are. "</i></h5>**
+**<h5><i>" We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
