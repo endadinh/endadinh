@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. "</i></h5>**
+**<h5><i>" One secret of success in life is for a man to be ready for his opportunity when it comes. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
