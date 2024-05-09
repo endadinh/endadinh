@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is more wisdom in your body than in your deepest philosophy. "</i></h5>**
+**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Ray Bradbury ___</b>*
 
 -----
 
