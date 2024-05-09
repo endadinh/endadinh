@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ J. Willard Marriott ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
