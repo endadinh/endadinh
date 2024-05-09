@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" From error to error one discovers the entire truth. "</i></h5>**
+**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
