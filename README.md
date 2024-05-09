@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't watch the clock; do what it does. Keep going. "</i></h5>**
+**<h5><i>" We've got to have a dream if we are going to make a dream come true. "</i></h5>**
 
-*<b>___ Sam Levenson ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
