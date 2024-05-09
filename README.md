@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
+**<h5><i>" Attitude is a little thing that makes a big difference. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
