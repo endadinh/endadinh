@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake activity for achievement. "</i></h5>**
+**<h5><i>" No snowflake in an avalanche ever feels responsible. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
