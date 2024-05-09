@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is a source of great strength. "</i></h5>**
+**<h5><i>" There is more wisdom in your body than in your deepest philosophy. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
