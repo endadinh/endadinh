@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
+**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
