@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. "</i></h5>**
+**<h5><i>" Before you put on a frown, make absolutely sure there are no smiles available. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ James M. Beggs ___</b>*
 
 -----
 
