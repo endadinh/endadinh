@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we achieve inwardly will change outer reality. "</i></h5>**
+**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
