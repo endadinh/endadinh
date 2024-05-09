@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is only when the mind and character slumber that the dress can be seen. "</i></h5>**
+**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
