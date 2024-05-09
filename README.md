@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
