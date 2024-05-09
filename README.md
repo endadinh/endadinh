@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I had only known, I would have been a locksmith. "</i></h5>**
+**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
