@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorance never settles a question. "</i></h5>**
+**<h5><i>" The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Hugh Jackman ___</b>*
 
 -----
 
