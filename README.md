@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
+**<h5><i>" You can always count on Americans to do the right thing - after they've tried everything else. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
