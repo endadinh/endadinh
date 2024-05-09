@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your friend is your needs answered. "</i></h5>**
+**<h5><i>" Difficulties are things that show a person what they are. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
