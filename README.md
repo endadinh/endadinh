@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Attitude is a little thing that makes a big difference. "</i></h5>**
+**<h5><i>" Don't watch the clock; do what it does. Keep going. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
