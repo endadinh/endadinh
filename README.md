@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
+**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ William Inge ___</b>*
 
 -----
 
