@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
+**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
 
-*<b>___ Jim Morrison ___</b>*
+*<b>___ Carol Burnett ___</b>*
 
 -----
 
