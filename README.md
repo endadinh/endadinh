@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
+**<h5><i>" Wisdom begins at the end. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Daniel Webster ___</b>*
 
 -----
 
