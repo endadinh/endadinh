@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" The Superior Man is aware of Righteousness, the inferior man is aware of advantage. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
