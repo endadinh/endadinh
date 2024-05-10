@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
