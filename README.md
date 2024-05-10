@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
+**<h5><i>" If you want things to be different, perhaps the answer is to become different yourself. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
