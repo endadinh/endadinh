@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
+**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
