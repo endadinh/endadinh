@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
+**<h5><i>" The greatest obstacle to connecting with our joy is resentment. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
