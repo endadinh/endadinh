@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
