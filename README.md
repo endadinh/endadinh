@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Ray Bradbury ___</b>*
 
 -----
 
