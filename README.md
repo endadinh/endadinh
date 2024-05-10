@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
+**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
