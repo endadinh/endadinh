@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
