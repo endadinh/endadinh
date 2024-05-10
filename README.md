@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
+**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
 
-*<b>___ Laurie Anderson ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
