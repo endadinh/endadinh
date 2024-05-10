@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The Superior Man is aware of Righteousness, the inferior man is aware of advantage. "</i></h5>**
+**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Herbert Hoover ___</b>*
 
 -----
 
