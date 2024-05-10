@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
