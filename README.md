@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ Ludwig van Beethoven ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
