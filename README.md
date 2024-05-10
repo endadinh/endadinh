@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love, friendship and respect do not unite people as much as a common hatred for something. "</i></h5>**
+**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
