@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" Don't be afraid to go out on a limb. That's where the fruit is. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
