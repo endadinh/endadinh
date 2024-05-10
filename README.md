@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
+**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
 
-*<b>___ Herbert Hoover ___</b>*
+*<b>___ Louisa May Alcott ___</b>*
 
 -----
 
