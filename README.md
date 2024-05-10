@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
+**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
 
-*<b>___ Louisa May Alcott ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
