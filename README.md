@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A goal without a plan is just a wish. "</i></h5>**
+**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
 
-*<b>___ Larry Elder ___</b>*
+*<b>___ Mao Zedong ___</b>*
 
 -----
 
