@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
+**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Jonathan Kozol ___</b>*
 
 -----
 
