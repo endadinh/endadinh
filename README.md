@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
+**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
