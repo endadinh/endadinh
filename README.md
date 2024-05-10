@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain. "</i></h5>**
+**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
