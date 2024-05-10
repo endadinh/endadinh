@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To bring anything into your life, imagine that it's already there. "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
