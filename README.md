@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
+**<h5><i>" When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Audre Lorde ___</b>*
 
 -----
 
