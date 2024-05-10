@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
+**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
