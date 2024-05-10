@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is contented is rich. "</i></h5>**
+**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
