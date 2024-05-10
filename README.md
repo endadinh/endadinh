@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
+**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
