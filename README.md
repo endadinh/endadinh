@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ W. H. Auden ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
