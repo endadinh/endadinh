@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest obstacle to connecting with our joy is resentment. "</i></h5>**
+**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ W. H. Auden ___</b>*
 
 -----
 
