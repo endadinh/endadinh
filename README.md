@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make the most of yourself, for that is all there is of you. "</i></h5>**
+**<h5><i>" Life has no blessing like a prudent friend. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
