@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
+**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
