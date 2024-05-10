@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" A friend in power is a friend lost. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Henry Adams ___</b>*
 
 -----
 
