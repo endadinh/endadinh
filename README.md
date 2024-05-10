@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid. "</i></h5>**
+**<h5><i>" Love, friendship and respect do not unite people as much as a common hatred for something. "</i></h5>**
 
-*<b>___ Audre Lorde ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
