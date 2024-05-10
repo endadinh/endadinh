@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
+**<h5><i>" He who hath many friends hath none. "</i></h5>**
 
-*<b>___ Don Marquis ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
