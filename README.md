@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
+**<h5><i>" There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain. "</i></h5>**
 
-*<b>___ Ray Bradbury ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
