@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who cannot learn from history are doomed to repeat it. "</i></h5>**
+**<h5><i>" He who is contented is rich. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
