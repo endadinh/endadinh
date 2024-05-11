@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
+**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
