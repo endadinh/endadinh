@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" The root of suffering is attachment. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
