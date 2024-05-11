@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
+**<h5><i>" Whenever something negative happens to you, there is a deep lesson concealed within it. "</i></h5>**
 
-*<b>___ Loretta Young ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
