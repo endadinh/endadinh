@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
+**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
