@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
+**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
