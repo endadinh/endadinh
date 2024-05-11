@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
+**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
