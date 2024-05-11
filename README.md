@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing great was ever achieved without enthusiasm. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
