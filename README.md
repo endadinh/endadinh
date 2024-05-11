@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
+**<h5><i>" We could never learn to be brave and patient if there were only joy in the world. "</i></h5>**
 
-*<b>___ Havelock Ellis ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
