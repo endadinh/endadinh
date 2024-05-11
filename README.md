@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is not the absence of fear, but simply moving on with dignity despite that fear. "</i></h5>**
+**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
 
-*<b>___ Pat Riley ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
