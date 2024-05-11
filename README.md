@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. "</i></h5>**
+**<h5><i>" We are made wise not by the recollection of our past, but by the responsibility for our future. "</i></h5>**
 
-*<b>___ Nathaniel Hawthorne ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
