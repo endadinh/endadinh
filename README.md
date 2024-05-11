@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Niels Bohr ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
