@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
+**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
