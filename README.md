@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want a thing done well, do it yourself. "</i></h5>**
+**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
