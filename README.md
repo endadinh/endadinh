@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your life to be more rewarding, you have to change the way you think. "</i></h5>**
+**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
