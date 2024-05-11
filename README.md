@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we achieve inwardly will change outer reality. "</i></h5>**
+**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
