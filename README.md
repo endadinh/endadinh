@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
+**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
