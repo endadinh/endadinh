@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
+**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
