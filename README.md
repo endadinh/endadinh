@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
+**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
