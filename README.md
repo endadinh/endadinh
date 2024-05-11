@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
+**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
