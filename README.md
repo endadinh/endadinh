@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never accept ultimatums, conventional wisdom, or absolutes. "</i></h5>**
+**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Loretta Young ___</b>*
 
 -----
 
