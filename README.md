@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
