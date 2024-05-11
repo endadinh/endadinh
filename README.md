@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool. "</i></h5>**
+**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
 
-*<b>___ Joseph Roux ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
