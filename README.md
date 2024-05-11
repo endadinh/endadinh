@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
+**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Havelock Ellis ___</b>*
 
 -----
 
