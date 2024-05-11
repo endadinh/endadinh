@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to have a friend is to be one. "</i></h5>**
+**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
