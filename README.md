@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
+**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
