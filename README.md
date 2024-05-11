@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
+**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Niels Bohr ___</b>*
 
 -----
 
