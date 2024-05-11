@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
+**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Molière ___</b>*
 
 -----
 
