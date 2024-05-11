@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
+**<h5><i>" Kind words do not cost much. Yet they accomplish much. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
