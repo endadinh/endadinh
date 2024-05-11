@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Thomas Haynes Bayly ___</b>*
 
 -----
 
