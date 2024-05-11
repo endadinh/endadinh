@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
