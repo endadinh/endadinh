@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" Our intention creates our reality. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
