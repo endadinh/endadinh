@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
+**<h5><i>" God gave us the gift of life; it is up to us to give ourselves the gift of living well. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
