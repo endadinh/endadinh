@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion. "</i></h5>**
+**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
 
-*<b>___ Elon Musk ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
