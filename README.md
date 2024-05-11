@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One fails forward toward success. "</i></h5>**
+**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
