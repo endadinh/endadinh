@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
