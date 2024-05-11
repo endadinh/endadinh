@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words do not cost much. Yet they accomplish much. "</i></h5>**
+**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
