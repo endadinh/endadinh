@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ability will never catch up with the demand for it. "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
