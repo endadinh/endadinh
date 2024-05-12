@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
