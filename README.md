@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
+**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
