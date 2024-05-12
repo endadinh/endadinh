@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No alibi will save you from accepting the responsibility. "</i></h5>**
+**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
