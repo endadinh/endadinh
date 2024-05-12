@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Herbert Hoover ___</b>*
 
 -----
 
