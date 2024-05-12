@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
+**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
