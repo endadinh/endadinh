@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
+**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
