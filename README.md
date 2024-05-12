@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
+**<h5><i>" Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
