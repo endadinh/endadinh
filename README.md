@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people go to priests; others to poetry; I to my friends. "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ Virginia Woolf ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
