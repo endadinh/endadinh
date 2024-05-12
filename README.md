@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge... "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
