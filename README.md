@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
+**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Walter Scott ___</b>*
 
 -----
 
