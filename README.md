@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are important enough to ask and you are blessed enough to receive back. "</i></h5>**
+**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
