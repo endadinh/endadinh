@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
+**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
