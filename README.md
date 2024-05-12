@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
+**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Alexander the Great ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
