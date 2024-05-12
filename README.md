@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary. "</i></h5>**
+**<h5><i>" Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
