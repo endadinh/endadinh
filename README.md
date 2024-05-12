@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
+**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Walter Scott ___</b>*
 
 -----
 
