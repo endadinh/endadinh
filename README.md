@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
+**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
