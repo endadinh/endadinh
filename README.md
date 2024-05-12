@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is more important than knowledge... "</i></h5>**
+**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
