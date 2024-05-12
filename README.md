@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A day of worry is more exhausting than a day of work. "</i></h5>**
+**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
