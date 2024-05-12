@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
+**<h5><i>" But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
