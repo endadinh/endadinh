@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
+**<h5><i>" A day of worry is more exhausting than a day of work. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ John Lubbock ___</b>*
 
 -----
 
