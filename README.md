@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
+**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
