@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
+**<h5><i>" Ability will never catch up with the demand for it. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
