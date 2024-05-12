@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
+**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
