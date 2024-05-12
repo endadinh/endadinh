@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
