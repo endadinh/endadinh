@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
+**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
