@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
+**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
 
-*<b>___ Walter Scott ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
