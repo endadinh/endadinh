@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The important thing is this: to be able at any moment to sacrifice what we are for what we could become. "</i></h5>**
+**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
 
-*<b>___ Charles Du Bos ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
