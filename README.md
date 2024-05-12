@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
