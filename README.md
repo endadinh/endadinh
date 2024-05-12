@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning never exhausts the mind. "</i></h5>**
+**<h5><i>" Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Amy Bloom ___</b>*
 
 -----
 
