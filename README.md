@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
+**<h5><i>" Success is not final; failure is not fatal: it is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Don Shula ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
