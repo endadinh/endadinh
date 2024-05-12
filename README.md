@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
+**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Don Shula ___</b>*
 
 -----
 
