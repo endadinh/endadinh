@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. "</i></h5>**
+**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
 
-*<b>___ Amy Bloom ___</b>*
+*<b>___ Don Shula ___</b>*
 
 -----
 
