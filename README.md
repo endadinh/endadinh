@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
+**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Betty Friedan ___</b>*
 
 -----
 
