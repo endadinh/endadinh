@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
+**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
