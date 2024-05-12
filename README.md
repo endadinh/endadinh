@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
+**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
