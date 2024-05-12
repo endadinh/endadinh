@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
+**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
