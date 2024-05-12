@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you cannot do great things, do small things in a great way. "</i></h5>**
+**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Henry Reed ___</b>*
 
 -----
 
