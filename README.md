@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
+**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Jimi Hendrix ___</b>*
 
 -----
 
