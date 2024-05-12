@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
+**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
