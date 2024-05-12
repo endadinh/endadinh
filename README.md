@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
+**<h5><i>" You are important enough to ask and you are blessed enough to receive back. "</i></h5>**
 
-*<b>___ Mike Singletary (basketball) ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
