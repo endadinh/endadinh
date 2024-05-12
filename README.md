@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
+**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
 
-*<b>___ Herbert Hoover ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
