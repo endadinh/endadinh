@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
+**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
