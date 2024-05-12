@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster. "</i></h5>**
+**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
 
-*<b>___ Joe Adcock ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
