@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" It always seems impossible until it's done. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
