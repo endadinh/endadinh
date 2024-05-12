@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. "</i></h5>**
+**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
