@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things do not happen. Things are made to happen. "</i></h5>**
+**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
