@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
+**<h5><i>" The Universal Zulu Nation stands to acknowledge wisdom, understanding, freedom, justice, and equality, peace, unity, love, and having fun, work, overcoming the negative through the positive, science, mathematics, faith, facts, and the wonders of God, whether we call him Allah, Jehovah, Yahweh, or Jah. "</i></h5>**
 
-*<b>___ Kathleen Norris ___</b>*
+*<b>___ Afrika Bambaataa ___</b>*
 
 -----
 
