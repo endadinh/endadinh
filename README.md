@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
