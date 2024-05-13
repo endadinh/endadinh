@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
+**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
