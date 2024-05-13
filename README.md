@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The secret of success is constancy to purpose. "</i></h5>**
+**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Isaac Asimov ___</b>*
 
 -----
 
