@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. "</i></h5>**
+**<h5><i>" Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. "</i></h5>**
 
-*<b>___ Richard Burton ___</b>*
+*<b>___ David Rockefeller ___</b>*
 
 -----
 
