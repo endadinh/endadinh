@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
