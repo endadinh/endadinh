@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The road of excess leads to the palace of wisdom. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
