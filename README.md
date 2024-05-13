@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
+**<h5><i>" There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
