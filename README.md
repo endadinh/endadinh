@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appearances are often deceiving. "</i></h5>**
+**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
