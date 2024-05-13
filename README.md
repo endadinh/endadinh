@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Mark Goulston ___</b>*
 
 -----
 
