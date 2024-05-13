@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
