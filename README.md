@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
