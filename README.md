@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
+**<h5><i>" Good advice is always certain to be ignored, but that's no reason not to give it. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Agatha Christie ___</b>*
 
 -----
 
