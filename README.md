@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
+**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
