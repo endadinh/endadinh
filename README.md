@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
+**<h5><i>" Silence is the true friend that never betrays. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
