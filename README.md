@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along. "</i></h5>**
+**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
 
-*<b>___ Lisa Alther ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
