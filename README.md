@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. "</i></h5>**
+**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
 
-*<b>___ David Rockefeller ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
