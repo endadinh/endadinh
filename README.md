@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
+**<h5><i>" It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
