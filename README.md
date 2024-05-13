@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
+**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
