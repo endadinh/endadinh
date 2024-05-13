@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
+**<h5><i>" False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Richard Burton ___</b>*
 
 -----
 
