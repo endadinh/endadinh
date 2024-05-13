@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once we accept our limits, we go beyond them. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
