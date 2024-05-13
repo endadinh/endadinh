@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the true friend that never betrays. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
