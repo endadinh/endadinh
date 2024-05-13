@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
+**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ James F. Byrnes ___</b>*
 
 -----
 
