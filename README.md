@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
+**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
