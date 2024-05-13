@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
+**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
 
-*<b>___ Isaac Asimov ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
