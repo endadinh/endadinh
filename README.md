@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
+**<h5><i>" Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
