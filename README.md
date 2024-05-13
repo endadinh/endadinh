@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. "</i></h5>**
+**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
