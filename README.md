@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
+**<h5><i>" Things do not happen. Things are made to happen. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
