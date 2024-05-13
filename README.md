@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
+**<h5><i>" Injuries may be forgiven, but not forgotten. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
