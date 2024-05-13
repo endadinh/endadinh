@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
+**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
