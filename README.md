@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
+**<h5><i>" Knowledge without justice ought to be called cunning rather than wisdom. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
