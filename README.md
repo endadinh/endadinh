@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
