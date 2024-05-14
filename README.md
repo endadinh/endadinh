@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
+**<h5><i>" If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
