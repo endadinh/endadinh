@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
+**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
