@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
+**<h5><i>" If I know what love is, it is because of you. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Hermann Hesse ___</b>*
 
 -----
 
