@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
+**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
