@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
+**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Marianne Williamson ___</b>*
 
 -----
 
