@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. "</i></h5>**
+**<h5><i>" Difficulties increase the nearer we get to the goal. "</i></h5>**
 
-*<b>___ Barbara De Angelis ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
