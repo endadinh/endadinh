@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
+**<h5><i>" Great minds discuss ideas; average minds discuss events; small minds discuss people. "</i></h5>**
 
-*<b>___ Marianne Williamson ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
