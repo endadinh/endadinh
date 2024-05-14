@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you think, so shall you become. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
