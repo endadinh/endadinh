@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Delight in heedfulness! Guard well your thoughts! "</i></h5>**
+**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Pierrakos ___</b>*
 
 -----
 
