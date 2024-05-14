@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge without justice ought to be called cunning rather than wisdom. "</i></h5>**
+**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
