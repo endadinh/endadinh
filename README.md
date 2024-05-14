@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Great minds discuss ideas; average minds discuss events; small minds discuss people. "</i></h5>**
+**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
 
 *<b>___ Eleanor Roosevelt ___</b>*
 
