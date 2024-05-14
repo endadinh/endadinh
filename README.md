@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
