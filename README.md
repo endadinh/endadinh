@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
