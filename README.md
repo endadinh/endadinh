@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
