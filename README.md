@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" As you think, so shall you become. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
