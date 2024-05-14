@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
