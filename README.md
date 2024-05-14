@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin. "</i></h5>**
+**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
