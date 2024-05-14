@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
+**<h5><i>" The path to success is to take massive, determined action. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
