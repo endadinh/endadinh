@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
+**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
