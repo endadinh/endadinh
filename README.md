@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
+**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
