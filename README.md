@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. "</i></h5>**
+**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Jared Diamond ___</b>*
 
 -----
 
