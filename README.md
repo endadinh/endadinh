@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Almost everything comes from nothing. "</i></h5>**
+**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
