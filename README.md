@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
+**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
