@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
+**<h5><i>" Even if you're on the right track, you'll get run over if you just sit there. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
