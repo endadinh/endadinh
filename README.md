@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
