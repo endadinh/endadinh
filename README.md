@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
+**<h5><i>" We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Barbara De Angelis ___</b>*
 
 -----
 
