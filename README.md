@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can do it. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
