@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
+**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
 
-*<b>___ May Sarton ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
