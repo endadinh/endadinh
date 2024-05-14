@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
+**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
 
-*<b>___ Jonathan Kozol ___</b>*
+*<b>___ May Sarton ___</b>*
 
 -----
 
