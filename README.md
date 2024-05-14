@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To invent, you need a good imagination and a pile of junk. "</i></h5>**
+**<h5><i>" I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Harbhajan Singh ___</b>*
 
 -----
 
