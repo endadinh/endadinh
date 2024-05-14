@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I know what love is, it is because of you. "</i></h5>**
+**<h5><i>" Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. "</i></h5>**
 
-*<b>___ Hermann Hesse ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
