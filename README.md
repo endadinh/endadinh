@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
+**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
