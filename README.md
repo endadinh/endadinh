@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
