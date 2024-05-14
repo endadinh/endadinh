@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" Great minds discuss ideas; average minds discuss events; small minds discuss people. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
