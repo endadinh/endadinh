@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
