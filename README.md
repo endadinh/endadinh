@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The path to success is to take massive, determined action. "</i></h5>**
+**<h5><i>" Learning never exhausts the mind. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
