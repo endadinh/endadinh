@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fortune favors the brave. "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
