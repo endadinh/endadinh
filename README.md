@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great minds discuss ideas; average minds discuss events; small minds discuss people. "</i></h5>**
+**<h5><i>" How far that little candle throws its beams! So shines a good deed in a naughty world. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
