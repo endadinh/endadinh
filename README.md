@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
