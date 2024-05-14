@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
+**<h5><i>" Almost everything comes from nothing. "</i></h5>**
 
-*<b>___ Joseph Wood Krutch ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
