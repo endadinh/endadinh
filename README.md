@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
