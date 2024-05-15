@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are made wise not by the recollection of our past, but by the responsibility for our future. "</i></h5>**
+**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
