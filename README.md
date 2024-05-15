@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
+**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
