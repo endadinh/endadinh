@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
+**<h5><i>" To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
