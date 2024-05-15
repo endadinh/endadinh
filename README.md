@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will prepare and some day my chance will come. "</i></h5>**
+**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
