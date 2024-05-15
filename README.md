@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
+**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
 
-*<b>___ Rabindranath Tagore ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
