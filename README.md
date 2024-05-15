@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who cling to perceptions and views wander the world offending people. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
