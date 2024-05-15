@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Joseph Joubert ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
