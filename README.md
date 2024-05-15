@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
+**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
