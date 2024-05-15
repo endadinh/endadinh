@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
