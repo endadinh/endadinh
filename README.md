@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This is the final test of a gentleman: his respect for those who can be of no possible value to him. "</i></h5>**
+**<h5><i>" Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. "</i></h5>**
 
-*<b>___ William Lyon Phelps ___</b>*
+*<b>___ Eknath Easwaran ___</b>*
 
 -----
 
