@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. "</i></h5>**
+**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
 
-*<b>___ Vusi Mahlasela ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
