@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
