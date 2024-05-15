@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
+**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
