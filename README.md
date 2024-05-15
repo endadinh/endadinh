@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality leaves a lot to the imagination. "</i></h5>**
+**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
