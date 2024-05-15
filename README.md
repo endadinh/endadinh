@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
+**<h5><i>" Those who cling to perceptions and views wander the world offending people. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
