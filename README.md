@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! "</i></h5>**
+**<h5><i>" Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. "</i></h5>**
 
-*<b>___ Charlotte Perkins Gilman ___</b>*
+*<b>___ William Saroyan ___</b>*
 
 -----
 
