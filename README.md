@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
+**<h5><i>" Speak only endearing speech, speech that is welcomed. Speech, when it brings no evil to others, is a pleasant thing. "</i></h5>**
 
-*<b>___ Joseph Joubert ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
