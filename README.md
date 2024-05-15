@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
+**<h5><i>" All truths are easy to understand once they are discovered; the point is to discover them. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Galileo Galilei ___</b>*
 
 -----
 
