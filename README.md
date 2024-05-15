@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You were not born a winner, and you were not born a loser. You are what you make yourself be. "</i></h5>**
+**<h5><i>" Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Charlotte Perkins Gilman ___</b>*
 
 -----
 
