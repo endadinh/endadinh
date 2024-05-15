@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
