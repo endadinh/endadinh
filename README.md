@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise person should be urgently moved on occasions that make for urgency. "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
