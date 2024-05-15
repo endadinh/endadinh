@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no great genius without some touch of madness. "</i></h5>**
+**<h5><i>" Our intention creates our reality. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
