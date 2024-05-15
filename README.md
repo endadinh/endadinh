@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
+**<h5><i>" Let your hook always be cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Jean Cocteau ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
