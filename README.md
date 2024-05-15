@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
+**<h5><i>" I will prepare and some day my chance will come. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
