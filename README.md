@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
