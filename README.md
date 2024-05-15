@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Mignon McLaughlin ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
