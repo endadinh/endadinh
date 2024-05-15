@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
+**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
