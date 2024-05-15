@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Sandy Koufax ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
