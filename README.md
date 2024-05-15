@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love all, trust a few, do wrong to none. "</i></h5>**
+**<h5><i>" As you think, so shall you become. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
