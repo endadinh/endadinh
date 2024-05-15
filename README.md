@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
+**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Alfred Adler ___</b>*
 
 -----
 
