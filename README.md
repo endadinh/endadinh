@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" Love is the master key that opens the gates of happiness. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
