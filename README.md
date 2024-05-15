@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
+**<h5><i>" The truest wisdom is a resolute determination. "</i></h5>**
 
-*<b>___ Joyce Meyer ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
