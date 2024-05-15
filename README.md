@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
+**<h5><i>" You give before you get. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
