@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
+**<h5><i>" A disciplined mind brings happiness. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
