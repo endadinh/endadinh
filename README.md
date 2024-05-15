@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
+**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Jean Cocteau ___</b>*
 
 -----
 
