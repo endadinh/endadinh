@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak only endearing speech, speech that is welcomed. Speech, when it brings no evil to others, is a pleasant thing. "</i></h5>**
+**<h5><i>" Love all, trust a few, do wrong to none. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
