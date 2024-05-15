@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
+**<h5><i>" All experiences are preceded by mind, having mind as their master, created by mind. "</i></h5>**
 
-*<b>___ Francis de Sales ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
