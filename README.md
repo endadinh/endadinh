@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Etty Hillesum ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
