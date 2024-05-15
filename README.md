@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
+**<h5><i>" You were not born a winner, and you were not born a loser. You are what you make yourself be. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
