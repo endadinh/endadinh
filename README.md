@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
+**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
