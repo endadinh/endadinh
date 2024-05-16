@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled. "</i></h5>**
+**<h5><i>" The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
