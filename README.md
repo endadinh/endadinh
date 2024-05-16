@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
+**<h5><i>" Courage is not the absence of fear, but simply moving on with dignity despite that fear. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Pat Riley ___</b>*
 
 -----
 
