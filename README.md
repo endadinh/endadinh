@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
+**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
