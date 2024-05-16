@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
+**<h5><i>" Yeah, we all shine on, like the moon, and the stars, and the sun. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
