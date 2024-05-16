@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" Don't cry because it's over. Smile because it happened. "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
