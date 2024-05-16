@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
 *<b>___ Thích Nhất Hạnh ___</b>*
 
