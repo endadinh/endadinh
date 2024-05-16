@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yeah, we all shine on, like the moon, and the stars, and the sun. "</i></h5>**
+**<h5><i>" If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Rachel Carson ___</b>*
 
 -----
 
