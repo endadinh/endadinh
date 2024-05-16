@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is not the absence of fear, but simply moving on with dignity despite that fear. "</i></h5>**
+**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
 
-*<b>___ Pat Riley ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
