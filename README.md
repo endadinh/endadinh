@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
+**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Paramahansa Yogananda ___</b>*
 
 -----
 
