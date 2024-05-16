@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic will get you from A to B. Imagination will take you everywhere. "</i></h5>**
+**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
