@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are Divine enough to ask and we are important enough to receive. "</i></h5>**
+**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
