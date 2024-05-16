@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
+**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
