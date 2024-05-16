@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
+**<h5><i>" All our dreams can come true, if we have the courage to pursue them. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
