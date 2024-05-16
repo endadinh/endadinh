@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
