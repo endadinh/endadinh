@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
+**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
 
-*<b>___ Charles Lindbergh ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
