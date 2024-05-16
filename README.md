@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
+**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
