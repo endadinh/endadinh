@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All experiences are preceded by mind, having mind as their master, created by mind. "</i></h5>**
+**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
