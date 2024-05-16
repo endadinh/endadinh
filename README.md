@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
+**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
