@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are things that show a person what they are. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
