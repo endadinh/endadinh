@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" We are Divine enough to ask and we are important enough to receive. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
