@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
