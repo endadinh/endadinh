@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
+**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
