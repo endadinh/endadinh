@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something. "</i></h5>**
+**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
