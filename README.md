@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
+**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
