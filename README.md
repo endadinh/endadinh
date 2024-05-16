@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
+**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
