@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you aren't going all the way, why go at all? "</i></h5>**
+**<h5><i>" A man who doesn't trust himself can never really trust anyone else. "</i></h5>**
 
-*<b>___ Joe Namath ___</b>*
+*<b>___ Jean François Paul de Gondi ___</b>*
 
 -----
 
