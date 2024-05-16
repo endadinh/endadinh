@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man who doesn't trust himself can never really trust anyone else. "</i></h5>**
+**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
 
-*<b>___ Jean François Paul de Gondi ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
