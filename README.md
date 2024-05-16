@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Barbara Bush ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
