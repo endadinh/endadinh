@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
+**<h5><i>" The path to success is to take massive, determined action. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
