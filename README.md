@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
+**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
