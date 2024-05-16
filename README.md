@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
+**<h5><i>" I can, therefore I am. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
