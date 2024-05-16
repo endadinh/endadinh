@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
+**<h5><i>" If you aren't going all the way, why go at all? "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Joe Namath ___</b>*
 
 -----
 
