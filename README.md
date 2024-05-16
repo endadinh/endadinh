@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
+**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
