@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
+**<h5><i>" The biggest room in the world is room for improvement. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Helmut Schmidt ___</b>*
 
 -----
 
