@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Motivation is the art of getting people to do what you want them to do because they want to do it. "</i></h5>**
+**<h5><i>" I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ John Keats ___</b>*
 
 -----
 
