@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
+**<h5><i>" Never make friends with people who are above or below you in status. Such friendships will never give you any happiness. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
