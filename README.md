@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship? "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
