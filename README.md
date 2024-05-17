@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
+**<h5><i>" Everything you are against weakens you. Everything you are for empowers you. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
