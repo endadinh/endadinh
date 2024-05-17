@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorance and bungling with love are better than wisdom and skill without. "</i></h5>**
+**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
