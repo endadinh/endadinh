@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one is useless in this world who lightens the burdens of another. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
