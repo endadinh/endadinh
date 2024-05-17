@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. "</i></h5>**
+**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
