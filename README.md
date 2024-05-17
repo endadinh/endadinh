@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you are against weakens you. Everything you are for empowers you. "</i></h5>**
+**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Murray Gell-Mann ___</b>*
 
 -----
 
