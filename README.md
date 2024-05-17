@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
