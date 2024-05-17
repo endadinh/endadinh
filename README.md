@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
