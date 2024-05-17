@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
+**<h5><i>" He who hath many friends hath none. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
