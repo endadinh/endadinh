@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and friendship exclude each other. "</i></h5>**
+**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
 
-*<b>___ Jean de La Bruyère ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
