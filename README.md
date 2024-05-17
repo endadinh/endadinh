@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
+**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
 
-*<b>___ Susan Orlean ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
