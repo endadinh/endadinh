@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
+**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
