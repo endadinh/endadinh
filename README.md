@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
+**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Bill Watterson ___</b>*
 
 -----
 
