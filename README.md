@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Franz Kafka ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
