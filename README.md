@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship? "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
