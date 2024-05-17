@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" Love and friendship exclude each other. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Jean de La Bruyère ___</b>*
 
 -----
 
