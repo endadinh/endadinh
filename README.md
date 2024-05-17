@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. "</i></h5>**
+**<h5><i>" The calmed say that what is well-spoken is best; second, that one should say what is right, not unrighteous; third, what's pleasing, not displeasing; fourth, what is true, not false. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
