@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who hath many friends hath none. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
