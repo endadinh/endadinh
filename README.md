@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
+**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
