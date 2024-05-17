@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
+**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
