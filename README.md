@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never make friends with people who are above or below you in status. Such friendships will never give you any happiness. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Chanakya ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
