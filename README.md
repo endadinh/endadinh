@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part. "</i></h5>**
+**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Lewis Carroll ___</b>*
 
 -----
 
