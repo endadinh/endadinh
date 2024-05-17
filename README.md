@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ Michael Korda ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
