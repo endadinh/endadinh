@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We aim above the mark to hit the mark. "</i></h5>**
+**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
