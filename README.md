@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we look at the world with a love of life, the world will reveal its beauty to us. "</i></h5>**
+**<h5><i>" Ignorance and bungling with love are better than wisdom and skill without. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
