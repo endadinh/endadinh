@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in the nature of things that joy arises in a person free from remorse. "</i></h5>**
+**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
