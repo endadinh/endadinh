@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" It is the quality of our work which will please God, not the quantity. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
