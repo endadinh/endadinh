@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not all those who wander are lost. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ J. R. R. Tolkien ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
