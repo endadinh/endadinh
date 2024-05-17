@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
+**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
 
-*<b>___ Lewis Carroll ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
