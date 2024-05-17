@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
+**<h5><i>" Whoever doesn't flare up at someone who's angry wins a battle hard to win. "</i></h5>**
 
-*<b>___ Murray Gell-Mann ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
