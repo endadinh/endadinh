@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ Dan Gable ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
