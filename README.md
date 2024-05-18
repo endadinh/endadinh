@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
+**<h5><i>" People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
