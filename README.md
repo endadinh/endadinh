@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
