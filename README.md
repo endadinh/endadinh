@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
