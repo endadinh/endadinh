@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand. "</i></h5>**
+**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
