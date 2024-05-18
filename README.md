@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
+**<h5><i>" Nothing in life is so exhilarating as to be shot at without result. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
