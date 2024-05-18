@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
+**<h5><i>" That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Lisa Alther ___</b>*
 
 -----
 
