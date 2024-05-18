@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
