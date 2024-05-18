@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. "</i></h5>**
+**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
 
-*<b>___ Billie Jean King ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
