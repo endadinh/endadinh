@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
+**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
 
-*<b>___ Annie Dillard ___</b>*
+*<b>___ Margaret Cousins ___</b>*
 
 -----
 
