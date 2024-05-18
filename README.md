@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
+**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
 
-*<b>___ Louisa May Alcott ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
