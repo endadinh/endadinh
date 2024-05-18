@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever you go, go with all your heart. "</i></h5>**
+**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
