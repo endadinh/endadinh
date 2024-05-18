@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The energy of the mind is the essence of life. "</i></h5>**
+**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
