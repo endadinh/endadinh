@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
+**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Alexis Carrel ___</b>*
 
 -----
 
