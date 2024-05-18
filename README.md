@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. "</i></h5>**
+**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Louisa May Alcott ___</b>*
 
 -----
 
