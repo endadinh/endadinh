@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Unless one is able to live fully in the present, the future is a hoax. "</i></h5>**
+**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
