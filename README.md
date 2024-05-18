@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
+**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Thomas à Kempis ___</b>*
 
 -----
 
