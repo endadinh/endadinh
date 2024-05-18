@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Margaret Cousins ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
