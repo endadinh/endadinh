@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you are against weakens you. Everything you are for empowers you. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
