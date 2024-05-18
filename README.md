@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
+**<h5><i>" There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
