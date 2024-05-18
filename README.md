@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
