@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
+**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
 
-*<b>___ Maria Shriver ___</b>*
+*<b>___ Annie Dillard ___</b>*
 
 -----
 
