@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one. "</i></h5>**
+**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
 
-*<b>___ Chuck Norris ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
