@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you smile when no one else is around, you really mean it. "</i></h5>**
+**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
 
-*<b>___ Andy Rooney ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
