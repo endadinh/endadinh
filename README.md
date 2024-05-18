@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do in life, surround yourself with smart people who'll argue with you. "</i></h5>**
+**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Maria Shriver ___</b>*
 
 -----
 
