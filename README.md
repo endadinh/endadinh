@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Billie Jean King ___</b>*
 
 -----
 
