@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. "</i></h5>**
+**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Demosthenes ___</b>*
 
 -----
 
