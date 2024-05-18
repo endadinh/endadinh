@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
+**<h5><i>" To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
