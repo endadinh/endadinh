@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
+**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Alfred Tennyson ___</b>*
 
 -----
 
