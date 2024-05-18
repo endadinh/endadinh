@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. "</i></h5>**
+**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
 
-*<b>___ Louis Pasteur ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
