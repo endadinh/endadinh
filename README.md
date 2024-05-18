@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
+**<h5><i>" There is no expedient to which a man will not go to avoid the labor of thinking. "</i></h5>**
 
-*<b>___ Richard Garriott ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
