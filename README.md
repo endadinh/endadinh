@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" The energy of the mind is the essence of life. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
