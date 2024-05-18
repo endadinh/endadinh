@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
+**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Philip Sidney ___</b>*
 
 -----
 
