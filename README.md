@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
+**<h5><i>" All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. "</i></h5>**
 
-*<b>___ Alfred Tennyson ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
