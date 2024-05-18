@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth. "</i></h5>**
+**<h5><i>" It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship. "</i></h5>**
 
-*<b>___ Chanakya ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
