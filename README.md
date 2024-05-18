@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, you will probably end up somewhere else. "</i></h5>**
+**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Demosthenes ___</b>*
 
 -----
 
