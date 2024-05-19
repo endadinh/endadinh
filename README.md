@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
