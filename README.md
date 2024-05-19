@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Error is discipline through which we advance. "</i></h5>**
+**<h5><i>" Time you enjoyed wasting was not wasted. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
