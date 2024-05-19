@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is just a chance to grow a soul. "</i></h5>**
+**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
 
-*<b>___ A. Powell Davies ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
