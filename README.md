@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
