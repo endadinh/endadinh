@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. "</i></h5>**
+**<h5><i>" A really great talent finds its happiness in execution. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
