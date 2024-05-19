@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
+**<h5><i>" Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right. "</i></h5>**
 
-*<b>___ Thomas à Kempis ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
