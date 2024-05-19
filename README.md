@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
+**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
