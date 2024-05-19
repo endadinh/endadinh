@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
+**<h5><i>" Remember that sometimes not getting what you want is a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Jared Diamond ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
