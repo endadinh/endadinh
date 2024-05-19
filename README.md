@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoyed wasting was not wasted. "</i></h5>**
+**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
