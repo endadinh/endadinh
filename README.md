@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
+**<h5><i>" So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
