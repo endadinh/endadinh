@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
+**<h5><i>" Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
