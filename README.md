@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
+**<h5><i>" Arriving at one point is the starting point to another. "</i></h5>**
 
-*<b>___ Peter Abelard ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
