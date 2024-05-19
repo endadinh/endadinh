@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right. "</i></h5>**
+**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
