@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is charity and wisdom, there is neither fear nor ignorance. "</i></h5>**
+**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
