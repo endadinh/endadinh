@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
+**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
