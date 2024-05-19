@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" The first step to getting the things you want out of life is this: decide what you want. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ben Stein ___</b>*
 
 -----
 
