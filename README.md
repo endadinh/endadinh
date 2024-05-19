@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
