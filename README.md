@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ William Sloane Coffin ___</b>*
 
 -----
 
