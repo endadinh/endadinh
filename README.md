@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
