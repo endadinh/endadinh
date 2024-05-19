@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The farther backward you can look, the farther forward you can see. "</i></h5>**
+**<h5><i>" Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Billie Jean King ___</b>*
 
 -----
 
