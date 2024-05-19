@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others. "</i></h5>**
+**<h5><i>" If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. "</i></h5>**
 
-*<b>___ Parker Palmer ___</b>*
+*<b>___ Rachel Carson ___</b>*
 
 -----
 
