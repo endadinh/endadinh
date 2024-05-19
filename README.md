@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
+**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
