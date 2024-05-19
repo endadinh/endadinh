@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Aim for the moon. If you miss, you may hit a star. "</i></h5>**
+**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Edward Everett Hale ___</b>*
 
 -----
 
