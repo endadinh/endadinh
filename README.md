@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that sometimes not getting what you want is a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
