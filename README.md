@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable. "</i></h5>**
+**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
