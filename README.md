@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
+**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
