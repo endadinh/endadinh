@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
+**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
