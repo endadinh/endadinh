@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
+**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Alexander the Great ___</b>*
 
 -----
 
