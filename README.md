@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Any sufficiently advanced technology is equivalent to magic. "</i></h5>**
+**<h5><i>" Reality is merely an illusion, albeit a very persistent one. "</i></h5>**
 
-*<b>___ Arthur C. Clarke ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
