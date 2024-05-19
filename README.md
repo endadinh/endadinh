@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
+**<h5><i>" Any sufficiently advanced technology is equivalent to magic. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Arthur C. Clarke ___</b>*
 
 -----
 
