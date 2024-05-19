@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
+**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Jared Diamond ___</b>*
 
 -----
 
