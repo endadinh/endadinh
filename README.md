@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
+**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
