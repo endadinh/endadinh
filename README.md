@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
+**<h5><i>" Happiness is found in doing, not merely possessing. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
