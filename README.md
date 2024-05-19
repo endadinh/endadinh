@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who will play with cats must expect to be scratched. "</i></h5>**
+**<h5><i>" The farther backward you can look, the farther forward you can see. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
