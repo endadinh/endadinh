@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is so exhilarating as to be shot at without result. "</i></h5>**
+**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
