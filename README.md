@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality is merely an illusion, albeit a very persistent one. "</i></h5>**
+**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
