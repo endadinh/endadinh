@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" Life is just a chance to grow a soul. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
