@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
