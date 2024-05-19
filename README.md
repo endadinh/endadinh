@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" In the depth of winter, I finally learned that there was within me an invincible summer. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
