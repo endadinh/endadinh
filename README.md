@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions. "</i></h5>**
+**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
