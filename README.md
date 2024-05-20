@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
+**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
