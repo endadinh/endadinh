@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
+**<h5><i>" Better be wise by the misfortunes of others than by your own. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
