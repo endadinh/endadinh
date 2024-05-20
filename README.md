@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
