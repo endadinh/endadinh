@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be yourself; everyone else is already taken. "</i></h5>**
+**<h5><i>" When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
