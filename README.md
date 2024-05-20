@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
+**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
