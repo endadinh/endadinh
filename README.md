@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
+**<h5><i>" There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Sam Walton ___</b>*
 
 -----
 
