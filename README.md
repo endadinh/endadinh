@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Radiate boundless love towards the entire world… "</i></h5>**
+**<h5><i>" Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise? "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
