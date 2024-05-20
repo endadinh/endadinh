@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
+**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
