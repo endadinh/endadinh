@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger. "</i></h5>**
+**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
