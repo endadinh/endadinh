@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
