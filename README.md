@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most people get interested in stocks when everyone else is. The time to get interested is when no one else is. You can't buy what is popular and do well. "</i></h5>**
+**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Swami Vivekananda ___</b>*
 
 -----
 
