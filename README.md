@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
+**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
