@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
+**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
