@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To fly, we have to have resistance. "</i></h5>**
+**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
 
-*<b>___ Maya Lin ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
