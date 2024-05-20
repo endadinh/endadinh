@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
