@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're not obligated to win. You're obligated to keep trying to do the best you can every day. "</i></h5>**
+**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
