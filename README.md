@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your life to be more rewarding, you have to change the way you think. "</i></h5>**
+**<h5><i>" The opportunity for brotherhood presents itself every time you meet a human being. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Jane Wyman ___</b>*
 
 -----
 
