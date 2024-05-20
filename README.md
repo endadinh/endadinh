@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
+**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
