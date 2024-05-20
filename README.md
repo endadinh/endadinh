@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
+**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
 
-*<b>___ Swami Vivekananda ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
