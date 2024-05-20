@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? "</i></h5>**
+**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
