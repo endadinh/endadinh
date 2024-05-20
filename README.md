@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
+**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
