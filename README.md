@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
+**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
