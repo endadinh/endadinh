@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
+**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
