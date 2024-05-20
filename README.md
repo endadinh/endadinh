@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
+**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
