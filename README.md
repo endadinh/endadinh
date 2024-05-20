@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
+**<h5><i>" If you want your life to be more rewarding, you have to change the way you think. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
