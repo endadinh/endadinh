@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. "</i></h5>**
+**<h5><i>" Anybody can make history. Only a great man can write it. "</i></h5>**
 
-*<b>___ David Brinkley ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
