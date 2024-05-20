@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
+**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
