@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has never been my object to record my dreams, just to realize them. "</i></h5>**
+**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
 
-*<b>___ Man Ray ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
