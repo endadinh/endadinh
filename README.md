@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
