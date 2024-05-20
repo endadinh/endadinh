@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
+**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
 
-*<b>___ Murray Gell-Mann ___</b>*
+*<b>___ Eustace Budgell ___</b>*
 
 -----
 
