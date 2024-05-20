@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cleverness is not wisdom. "</i></h5>**
+**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
