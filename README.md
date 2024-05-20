@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. "</i></h5>**
+**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
 
-*<b>___ Sam Walton ___</b>*
+*<b>___ Murray Gell-Mann ___</b>*
 
 -----
 
