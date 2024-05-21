@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
+**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
