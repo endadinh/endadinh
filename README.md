@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is great love, there are always miracles. "</i></h5>**
+**<h5><i>" The best thing in every noble dream is the dreamer... "</i></h5>**
 
-*<b>___ Willa Cather ___</b>*
+*<b>___ Moncure D. Conway ___</b>*
 
 -----
 
