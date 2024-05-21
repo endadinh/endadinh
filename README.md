@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind. "</i></h5>**
+**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
