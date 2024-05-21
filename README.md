@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
+**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
