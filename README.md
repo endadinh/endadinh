@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
+**<h5><i>" Most folks are as happy as they make up their minds to be. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
