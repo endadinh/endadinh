@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging. "</i></h5>**
+**<h5><i>" Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!' "</i></h5>**
 
-*<b>___ Hank Aaron ___</b>*
+*<b>___ Bill Bradley ___</b>*
 
 -----
 
