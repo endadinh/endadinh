@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
