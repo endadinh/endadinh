@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what you look at that matters, it's what you see. "</i></h5>**
+**<h5><i>" I am an optimist. It does not seem too much use being anything else. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
