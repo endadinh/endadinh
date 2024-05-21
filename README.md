@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
