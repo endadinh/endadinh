@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not so important to know everything as to appreciate what we learn. "</i></h5>**
+**<h5><i>" Where there is great love, there are always miracles. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Willa Cather ___</b>*
 
 -----
 
