@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
+**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
