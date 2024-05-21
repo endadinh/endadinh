@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
+**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
