@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can conquer who believe they can. "</i></h5>**
+**<h5><i>" Silence is a source of great strength. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
