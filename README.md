@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" Fans don't boo nobodies. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Reggie Jackson (basketball, born 1990) ___</b>*
 
 -----
 
