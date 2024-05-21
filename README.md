@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
+**<h5><i>" But at any rate, the point is that God is what nobody admits to being, and everybody really is. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
