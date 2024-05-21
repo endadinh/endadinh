@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am an optimist. It does not seem too much use being anything else. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
