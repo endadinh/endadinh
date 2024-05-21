@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Skill to do comes of doing. "</i></h5>**
+**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
