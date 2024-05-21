@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fans don't boo nobodies. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ Reggie Jackson (basketball, born 1990) ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
