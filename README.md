@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
+**<h5><i>" There are no secrets to success. It is the result of preparation, hard work, and learning from failure. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
