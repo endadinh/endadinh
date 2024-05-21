@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
+**<h5><i>" Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Dale Turner ___</b>*
 
 -----
 
