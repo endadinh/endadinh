@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
+**<h5><i>" My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Hank Aaron ___</b>*
 
 -----
 
