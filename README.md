@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
+**<h5><i>" Nothing diminishes anxiety faster than action. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Walter Inglis Anderson ___</b>*
 
 -----
 
