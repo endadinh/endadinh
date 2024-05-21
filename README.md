@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
+**<h5><i>" We can change our lives. We can do, have, and be exactly what we wish. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
