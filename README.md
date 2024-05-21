@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideals are an imaginative understanding of that which is desirable in that which is possible. "</i></h5>**
+**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
