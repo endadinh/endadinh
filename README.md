@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
 
 *<b>___ Wayne Dyer ___</b>*
 
