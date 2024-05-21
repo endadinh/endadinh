@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is a source of great strength. "</i></h5>**
+**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
