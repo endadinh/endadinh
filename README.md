@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But at any rate, the point is that God is what nobody admits to being, and everybody really is. "</i></h5>**
+**<h5><i>" Time stays long enough for anyone who will use it. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
