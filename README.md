@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
+**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
