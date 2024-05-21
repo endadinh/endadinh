@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
+**<h5><i>" My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind. "</i></h5>**
 
 *<b>___ Albert Einstein ___</b>*
 
