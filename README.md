@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing in every noble dream is the dreamer... "</i></h5>**
+**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
 
-*<b>___ Moncure D. Conway ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
