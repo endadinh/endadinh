@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
