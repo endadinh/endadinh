@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things do not change; we change. "</i></h5>**
+**<h5><i>" Do not go where the path may lead, go instead where there is no path and leave a trail. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
