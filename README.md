@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
