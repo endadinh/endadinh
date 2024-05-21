@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. "</i></h5>**
+**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
