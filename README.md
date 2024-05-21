@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
+**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
 
-*<b>___ Thomas Aquinas ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
