@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
