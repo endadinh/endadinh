@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A creative man is motivated by the desire to achieve, not by the desire to beat others. "</i></h5>**
+**<h5><i>" They can do all because they think they can. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
