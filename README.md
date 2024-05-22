@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest remedy for anger is delay. "</i></h5>**
+**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
