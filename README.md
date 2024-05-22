@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cleverness is not wisdom. "</i></h5>**
+**<h5><i>" I had three chairs in my house; one for solitude, two for friendship, three for society. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
