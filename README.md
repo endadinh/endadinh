@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jon Kabat-Zinn ___</b>*
 
 -----
 
