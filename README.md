@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
+**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
