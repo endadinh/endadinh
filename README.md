@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
