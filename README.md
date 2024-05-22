@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
