@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. "</i></h5>**
+**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Theophrastus ___</b>*
 
 -----
 
