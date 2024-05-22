@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is more shameful to distrust our friends than to be deceived by them. "</i></h5>**
+**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
