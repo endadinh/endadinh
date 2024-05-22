@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
+**<h5><i>" Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing. "</i></h5>**
 
-*<b>___ Robert Fulghum ___</b>*
+*<b>___ Elie Wiesel ___</b>*
 
 -----
 
