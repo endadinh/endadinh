@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
+**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
 
-*<b>___ Henry Miller ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
