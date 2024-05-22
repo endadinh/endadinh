@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. "</i></h5>**
+**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
