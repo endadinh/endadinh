@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
+**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
 
-*<b>___ Vernon Cooper ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
