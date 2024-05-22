@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own. "</i></h5>**
+**<h5><i>" Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. "</i></h5>**
 
-*<b>___ Jessamyn West ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
