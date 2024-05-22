@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
+**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
 
-*<b>___ A. A. Milne ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
