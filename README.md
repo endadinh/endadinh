@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things change; nothing perishes. "</i></h5>**
+**<h5><i>" The greatest remedy for anger is delay. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
