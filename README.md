@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
+**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
