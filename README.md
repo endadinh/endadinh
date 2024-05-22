@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fans don't boo nobodies. "</i></h5>**
+**<h5><i>" It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own. "</i></h5>**
 
-*<b>___ Reggie Jackson (basketball, born 1990) ___</b>*
+*<b>___ Jessamyn West ___</b>*
 
 -----
 
