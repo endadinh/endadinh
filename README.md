@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
+**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
