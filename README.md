@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yeah, we all shine on, like the moon, and the stars, and the sun. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
