@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fortune befriends the bold. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
