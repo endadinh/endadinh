@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
+**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
