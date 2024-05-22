@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
+**<h5><i>" To fly, we have to have resistance. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Maya Lin ___</b>*
 
 -----
 
