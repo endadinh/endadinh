@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you think, so shall you become. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
