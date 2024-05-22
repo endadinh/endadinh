@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To fly, we have to have resistance. "</i></h5>**
+**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
 
-*<b>___ Maya Lin ___</b>*
+*<b>___ Joyce Brothers ___</b>*
 
 -----
 
