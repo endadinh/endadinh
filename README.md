@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
+**<h5><i>" Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. "</i></h5>**
 
-*<b>___ E. E. Cummings ___</b>*
+*<b>___ Billie Jean King ___</b>*
 
 -----
 
