@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
+**<h5><i>" Happiness resides not in possessions, and not in gold, happiness dwells in the soul. "</i></h5>**
 
-*<b>___ Jon Kabat-Zinn ___</b>*
+*<b>___ Democritus ___</b>*
 
 -----
 
