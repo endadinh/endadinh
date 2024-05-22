@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
+**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
