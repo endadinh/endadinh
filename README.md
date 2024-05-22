@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It always seems impossible until it's done. "</i></h5>**
+**<h5><i>" Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Amy Bloom ___</b>*
 
 -----
 
