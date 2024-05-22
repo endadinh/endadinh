@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a travelling to the edge of knowledge, then a leap taken. "</i></h5>**
+**<h5><i>" If there is such a thing as a good marriage, it is because it resembles friendship rather than love. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
