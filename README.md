@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
+**<h5><i>" We can change our lives. We can do, have, and be exactly what we wish. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
