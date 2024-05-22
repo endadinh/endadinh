@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
+**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
