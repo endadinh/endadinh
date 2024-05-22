@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
