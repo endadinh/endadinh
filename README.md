@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time stays long enough for anyone who will use it. "</i></h5>**
+**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
