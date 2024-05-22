@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. "</i></h5>**
+**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
 
-*<b>___ Marcia Fudge ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
