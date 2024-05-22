@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
+**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
