@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
+**<h5><i>" All things change; nothing perishes. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
