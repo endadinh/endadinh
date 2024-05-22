@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
+**<h5><i>" Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
