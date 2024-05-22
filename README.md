@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If there is such a thing as a good marriage, it is because it resembles friendship rather than love. "</i></h5>**
+**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Jimmy Dean ___</b>*
 
 -----
 
