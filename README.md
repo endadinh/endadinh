@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
+**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ A. A. Milne ___</b>*
 
 -----
 
