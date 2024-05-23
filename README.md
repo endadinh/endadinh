@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
+**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
