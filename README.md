@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
+**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Ted Williams ___</b>*
 
 -----
 
