@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
+**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Paul Cézanne ___</b>*
 
 -----
 
