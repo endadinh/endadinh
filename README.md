@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
+**<h5><i>" I believe that every person is born with talent. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
