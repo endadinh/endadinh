@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
+**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
 
-*<b>___ Josh Billings ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
