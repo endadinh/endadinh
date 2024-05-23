@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded. "</i></h5>**
+**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
