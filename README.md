@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
