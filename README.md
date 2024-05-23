@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
+**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
