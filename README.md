@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
+**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ William Sloane Coffin ___</b>*
 
 -----
 
