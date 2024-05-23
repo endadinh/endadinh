@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that every person is born with talent. "</i></h5>**
+**<h5><i>" Step with care and great tact and remember that Life's a Great Balancing Act. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
