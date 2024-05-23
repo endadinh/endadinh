@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
+**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
 
-*<b>___ Ezra Stiles ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
