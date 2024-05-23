@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
+**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
