@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
+**<h5><i>" Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
