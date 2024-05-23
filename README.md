@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
+**<h5><i>" An ant on the move does more than a dozing ox "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
