@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do all things with love. "</i></h5>**
+**<h5><i>" Listen to what you know instead of what you fear. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
