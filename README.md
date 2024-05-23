@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
+**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Reinhold Niebuhr ___</b>*
 
 -----
 
