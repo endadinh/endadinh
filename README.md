@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
+**<h5><i>" Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
