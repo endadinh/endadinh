@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
