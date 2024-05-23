@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Wolfgang Amadeus Mozart ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
