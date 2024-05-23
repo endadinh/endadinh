@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What worries you masters you. "</i></h5>**
+**<h5><i>" Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right. "</i></h5>**
 
-*<b>___ Haddon Robinson ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
