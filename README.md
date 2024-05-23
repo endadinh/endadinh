@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
+**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
 
-*<b>___ Reinhold Niebuhr ___</b>*
+*<b>___ Mao Zedong ___</b>*
 
 -----
 
