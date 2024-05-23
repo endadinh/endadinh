@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't stop playing because we grow old; we grow old because we stop playing. "</i></h5>**
+**<h5><i>" When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
