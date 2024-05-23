@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
+**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
 
 *<b>___ Marcus Aurelius ___</b>*
 
