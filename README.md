@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
+**<h5><i>" There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
