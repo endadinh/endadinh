@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
+**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
