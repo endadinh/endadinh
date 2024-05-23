@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
