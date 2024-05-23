@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thoughts we choose to think are the tools we use to paint the canvas of our lives. "</i></h5>**
+**<h5><i>" Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement. "</i></h5>**
 
-*<b>___ Louise Hay ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
