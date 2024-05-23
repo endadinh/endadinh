@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
+**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
 
-*<b>___ Ray Bradbury ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
