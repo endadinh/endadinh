@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
+**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
