@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless. "</i></h5>**
+**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
