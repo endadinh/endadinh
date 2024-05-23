@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The cautious seldom err. "</i></h5>**
+**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Josh Billings ___</b>*
 
 -----
 
