@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ Mao Zedong ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
