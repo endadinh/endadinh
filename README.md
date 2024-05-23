@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
+**<h5><i>" Remember always that you not only have the right to be an individual, you have an obligation to be one. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
