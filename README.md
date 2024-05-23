@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. "</i></h5>**
+**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
