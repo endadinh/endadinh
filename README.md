@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
+**<h5><i>" Do all things with love. "</i></h5>**
 
-*<b>___ Havelock Ellis ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
