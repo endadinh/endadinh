@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Programs must be written for people to read, and only incidentally for machines to execute. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Hal Abelson ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
