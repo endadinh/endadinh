@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ant on the move does more than a dozing ox "</i></h5>**
+**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
