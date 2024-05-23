@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" When something is important enough, you do it even if the odds are not in your favor. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Elon Musk ___</b>*
 
 -----
 
