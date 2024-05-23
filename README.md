@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When something is important enough, you do it even if the odds are not in your favor. "</i></h5>**
+**<h5><i>" The best way to predict your future is to create it. "</i></h5>**
 
-*<b>___ Elon Musk ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
