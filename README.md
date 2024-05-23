@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
+**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Charles Darwin ___</b>*
 
 -----
 
