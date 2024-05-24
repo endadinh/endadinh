@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
