@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
+**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
