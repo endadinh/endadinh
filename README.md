@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When your desires are strong enough you will appear to possess superhuman powers to achieve. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
