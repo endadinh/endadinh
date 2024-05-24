@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember always that you not only have the right to be an individual, you have an obligation to be one. "</i></h5>**
+**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
