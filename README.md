@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
+**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
