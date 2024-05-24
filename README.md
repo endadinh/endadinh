@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
+**<h5><i>" We must become the change we want to see. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
