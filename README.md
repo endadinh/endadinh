@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
+**<h5><i>" You can't put a limit on anything. The more you dream, the farther you get. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Michael Phelps ___</b>*
 
 -----
 
