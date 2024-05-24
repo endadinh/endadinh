@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
+**<h5><i>" Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. "</i></h5>**
 
-*<b>___ May Sarton ___</b>*
+*<b>___ Samuel Richardson ___</b>*
 
 -----
 
