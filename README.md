@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man is free who is not master of himself. "</i></h5>**
+**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
