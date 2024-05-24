@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
+**<h5><i>" We've got to have a dream if we are going to make a dream come true. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
