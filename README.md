@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
