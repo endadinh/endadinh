@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How is it possible to find meaning in a finite world, given my waist and shirt size? "</i></h5>**
+**<h5><i>" If you do what you've always done, you'll get what you've always gotten. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
