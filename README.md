@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
