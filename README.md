@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. "</i></h5>**
+**<h5><i>" Football is football and talent is talent. But the mindset of your team makes all the difference. "</i></h5>**
 
-*<b>___ William Saroyan ___</b>*
+*<b>___ Robert Griffin III ___</b>*
 
 -----
 
