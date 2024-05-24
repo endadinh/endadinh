@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
+**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
