@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
+**<h5><i>" How is it possible to find meaning in a finite world, given my waist and shirt size? "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
