@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
+**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Tom Peters ___</b>*
 
 -----
 
