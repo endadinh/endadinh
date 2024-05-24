@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Ralph Abernathy ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
