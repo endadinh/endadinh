@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
+**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
