@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
+**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Margaret Fuller ___</b>*
 
 -----
 
