@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. "</i></h5>**
+**<h5><i>" As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
