@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
+**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
