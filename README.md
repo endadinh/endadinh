@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
