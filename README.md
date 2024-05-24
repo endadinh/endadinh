@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Football is football and talent is talent. But the mindset of your team makes all the difference. "</i></h5>**
+**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
 
-*<b>___ Robert Griffin III ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
