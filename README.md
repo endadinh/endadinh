@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ May Sarton ___</b>*
 
 -----
 
