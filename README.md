@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone. "</i></h5>**
+**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
