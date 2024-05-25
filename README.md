@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
+**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
