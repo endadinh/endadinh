@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
+**<h5><i>" The greatest minds are capable of the greatest vices as well as of the greatest virtues. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
