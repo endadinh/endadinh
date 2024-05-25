@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
+**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
