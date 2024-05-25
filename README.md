@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" I think and that is all that I am. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
