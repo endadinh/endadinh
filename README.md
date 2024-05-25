@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To improve is to change; to be perfect is to change often. "</i></h5>**
+**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
