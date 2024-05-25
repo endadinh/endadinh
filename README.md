@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. "</i></h5>**
+**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
