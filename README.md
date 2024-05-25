@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appearances are often deceiving. "</i></h5>**
+**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Forrest Church ___</b>*
 
 -----
 
