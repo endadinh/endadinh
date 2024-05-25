@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
+**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Alfred North Whitehead ___</b>*
 
 -----
 
