@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you smile when no one else is around, you really mean it. "</i></h5>**
+**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
 
-*<b>___ Andy Rooney ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
