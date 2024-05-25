@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
+**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
