@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The poor man is not he who is without a cent, but he who is without a dream. "</i></h5>**
+**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
 
-*<b>___ Harry Kemp ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
