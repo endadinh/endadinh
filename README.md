@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
+**<h5><i>" When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
