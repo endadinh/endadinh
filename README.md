@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
+**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
