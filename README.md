@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
+**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
 
-*<b>___ Paulo Coelho ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
