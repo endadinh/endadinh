@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Eknath Easwaran ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
