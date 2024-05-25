@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
+**<h5><i>" Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
