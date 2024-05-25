@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" Miracles come in moments. Be ready and willing. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
