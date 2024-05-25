@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Epicurus ___</b>*
 
 -----
 
