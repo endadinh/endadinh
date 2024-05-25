@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man acts before he speaks, and afterwards speaks according to his action. "</i></h5>**
+**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Jared Diamond ___</b>*
 
 -----
 
