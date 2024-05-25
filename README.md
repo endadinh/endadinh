@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
