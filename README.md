@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
