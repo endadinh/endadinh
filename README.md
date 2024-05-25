@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is Love without his wings! "</i></h5>**
+**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
