@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
+**<h5><i>" The truest wisdom is a resolute determination. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
