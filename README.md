@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not engaging in ignorance is wisdom. "</i></h5>**
+**<h5><i>" Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. "</i></h5>**
 
-*<b>___ Bodhidharma ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
