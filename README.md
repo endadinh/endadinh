@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
+**<h5><i>" If you smile when no one else is around, you really mean it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Andy Rooney ___</b>*
 
 -----
 
