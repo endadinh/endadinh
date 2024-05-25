@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Joe Paterno ___</b>*
 
 -----
 
