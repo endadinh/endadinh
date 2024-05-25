@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To bring anything into your life, imagine that it's already there. "</i></h5>**
+**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
