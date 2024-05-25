@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
+**<h5><i>" The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world. "</i></h5>**
 
-*<b>___ Jared Diamond ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
