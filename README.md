@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who sows virtue reaps honor. "</i></h5>**
+**<h5><i>" You always have two choices: your commitment versus your fear. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Sammy Davis Jr. ___</b>*
 
 -----
 
