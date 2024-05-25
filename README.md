@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ Forrest Church ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
