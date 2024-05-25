@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Carol Burnett ___</b>*
 
 -----
 
