@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
+**<h5><i>" Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Eknath Easwaran ___</b>*
 
 -----
 
