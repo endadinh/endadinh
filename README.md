@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
+**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Alfred North Whitehead ___</b>*
 
 -----
 
