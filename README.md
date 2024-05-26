@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Warren Bennis ___</b>*
 
 -----
 
