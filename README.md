@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
