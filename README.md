@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
