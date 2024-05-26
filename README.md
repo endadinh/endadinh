@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
+**<h5><i>" He who hath many friends hath none. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
