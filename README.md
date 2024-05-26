@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
+**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
