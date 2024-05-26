@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ Jonathan Swift ___</b>*
 
 -----
 
