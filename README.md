@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it. "</i></h5>**
+**<h5><i>" To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
