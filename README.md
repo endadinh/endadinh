@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great are they who see that spiritual is stronger than any material force, that thoughts rule the world. "</i></h5>**
+**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
