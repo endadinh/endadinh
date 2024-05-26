@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
+**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
 
-*<b>___ Theophrastus ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
