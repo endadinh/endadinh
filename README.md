@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
+**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
