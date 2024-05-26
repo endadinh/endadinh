@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who hath many friends hath none. "</i></h5>**
+**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
