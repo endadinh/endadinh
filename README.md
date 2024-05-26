@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do more than dream: work. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
