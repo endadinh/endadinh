@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
