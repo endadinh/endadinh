@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you aren't going all the way, why go at all? "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ Joe Namath ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
