@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
+**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
