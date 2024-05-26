@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
+**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
