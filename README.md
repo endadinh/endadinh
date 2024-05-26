@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
+**<h5><i>" Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ John Cleese ___</b>*
 
 -----
 
