@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
+**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
