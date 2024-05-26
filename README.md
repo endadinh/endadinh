@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
+**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Phil Jackson ___</b>*
 
 -----
 
