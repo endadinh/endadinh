@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
+**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
