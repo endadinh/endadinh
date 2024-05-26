@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster. "</i></h5>**
+**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
 
-*<b>___ Joe Adcock ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
