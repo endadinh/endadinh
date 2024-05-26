@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
+**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Simon Mainwaring ___</b>*
 
 -----
 
