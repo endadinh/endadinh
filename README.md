@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. "</i></h5>**
+**<h5><i>" I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. "</i></h5>**
 
-*<b>___ John Cleese ___</b>*
+*<b>___ Ken Venturi ___</b>*
 
 -----
 
