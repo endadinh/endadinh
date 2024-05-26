@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
