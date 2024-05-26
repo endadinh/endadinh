@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
+**<h5><i>" Time stays long enough for anyone who will use it. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
