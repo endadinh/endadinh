@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust yourself. You know more than you think you do. "</i></h5>**
+**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
 
-*<b>___ Benjamin Spock ___</b>*
+*<b>___ Bernice Reagon ___</b>*
 
 -----
 
