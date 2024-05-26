@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Smile, breathe and go slowly. "</i></h5>**
+**<h5><i>" If you aren't going all the way, why go at all? "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Joe Namath ___</b>*
 
 -----
 
