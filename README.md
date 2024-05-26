@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
