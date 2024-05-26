@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
+**<h5><i>" He is no fool who gives what he cannot keep to gain what he cannot lose. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Jim Elliot ___</b>*
 
 -----
 
