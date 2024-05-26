@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
+**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
 
-*<b>___ Jonathan Swift ___</b>*
+*<b>___ Theodore H. White ___</b>*
 
 -----
 
