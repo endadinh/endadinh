@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
+**<h5><i>" The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Charles Lamb ___</b>*
 
 -----
 
