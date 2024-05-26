@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. "</i></h5>**
+**<h5><i>" It always seems impossible until it's done. "</i></h5>**
 
 *<b>___ Nelson Mandela ___</b>*
 
