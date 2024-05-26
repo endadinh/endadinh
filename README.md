@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. "</i></h5>**
+**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
