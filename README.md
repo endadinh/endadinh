@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
