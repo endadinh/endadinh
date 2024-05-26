@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love demands infinitely less than friendship. "</i></h5>**
+**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
 
-*<b>___ George Jean Nathan ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
