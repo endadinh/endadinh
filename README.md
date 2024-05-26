@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
+**<h5><i>" Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
