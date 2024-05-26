@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things must come to the soul from its roots, from where it is planted. "</i></h5>**
+**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
 
-*<b>___ Teresa of Ávila ___</b>*
+*<b>___ Doris Day ___</b>*
 
 -----
 
