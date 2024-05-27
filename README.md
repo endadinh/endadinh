@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
