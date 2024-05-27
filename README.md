@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
+**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
 
-*<b>___ Frederick Douglass ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
