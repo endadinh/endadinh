@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" When I do good I feel good, when I do bad I feel bad, and that's my religion. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
