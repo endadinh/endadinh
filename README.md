@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port one is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Ansel Adams ___</b>*
 
 -----
 
