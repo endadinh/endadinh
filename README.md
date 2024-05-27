@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
+**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
