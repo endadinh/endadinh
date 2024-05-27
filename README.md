@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ Annie Dillard ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
