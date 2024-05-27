@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is a wisdom of the head, and a wisdom of the heart. "</i></h5>**
+**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
