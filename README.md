@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
+**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
