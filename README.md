@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
+**<h5><i>" When your desires are strong enough you will appear to possess superhuman powers to achieve. "</i></h5>**
 
-*<b>___ Pierre-Auguste Renoir ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
