@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be. "</i></h5>**
+**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
