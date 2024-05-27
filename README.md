@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
+**<h5><i>" But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
