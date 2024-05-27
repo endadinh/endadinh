@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
+**<h5><i>" By failing to prepare, you are preparing to fail. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
