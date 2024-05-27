@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship always benefits; love sometimes injures. "</i></h5>**
+**<h5><i>" The heart has eyes which the brain knows nothing of. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Charles Henry Parkhurst ___</b>*
 
 -----
 
