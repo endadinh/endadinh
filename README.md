@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
+**<h5><i>" History will be kind to me for I intend to write it. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
