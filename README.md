@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. "</i></h5>**
+**<h5><i>" How far that little candle throws its beams! So shines a good deed in a naughty world. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
