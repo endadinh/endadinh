@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All great achievements require time. "</i></h5>**
+**<h5><i>" Friendship always benefits; love sometimes injures. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
