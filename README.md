@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
+**<h5><i>" Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
