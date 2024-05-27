@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I do good I feel good, when I do bad I feel bad, and that's my religion. "</i></h5>**
+**<h5><i>" No one has ever become poor by giving. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
