@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
+**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Alexis Carrel ___</b>*
 
 -----
 
