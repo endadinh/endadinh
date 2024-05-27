@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always bear in mind that your own resolution to succeed is more important than any one thing. "</i></h5>**
+**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Ted Williams ___</b>*
 
 -----
 
