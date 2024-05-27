@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a friendship set to music. "</i></h5>**
+**<h5><i>" There is a wisdom of the head, and a wisdom of the heart. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
