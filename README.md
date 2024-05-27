@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One loyal friend is worth ten thousand relatives. "</i></h5>**
+**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Franz Kafka ___</b>*
 
 -----
 
