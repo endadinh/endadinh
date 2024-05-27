@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is better to understand a little than to misunderstand a lot. "</i></h5>**
+**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ William Sloane Coffin ___</b>*
 
 -----
 
