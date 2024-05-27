@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
+**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
