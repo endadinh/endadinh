@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How far that little candle throws its beams! So shines a good deed in a naughty world. "</i></h5>**
+**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
