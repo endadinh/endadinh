@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
+**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
