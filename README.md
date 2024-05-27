@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
+**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
