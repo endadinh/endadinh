@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. "</i></h5>**
+**<h5><i>" With age comes wisdom and a high sex drive. And the wisdom to enjoy it. "</i></h5>**
 
-*<b>___ Rollo May ___</b>*
+*<b>___ Amber Valletta ___</b>*
 
 -----
 
