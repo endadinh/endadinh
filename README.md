@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
+**<h5><i>" If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Rollo May ___</b>*
 
 -----
 
