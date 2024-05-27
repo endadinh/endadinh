@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
