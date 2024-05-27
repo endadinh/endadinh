@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
+**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
 
-*<b>___ Rose Kennedy ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
