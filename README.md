@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
+**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
 
-*<b>___ Northrop Frye ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
