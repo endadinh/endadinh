@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
+**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Jean Cocteau ___</b>*
 
 -----
 
