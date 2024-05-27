@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality is merely an illusion, albeit a very persistent one. "</i></h5>**
+**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
