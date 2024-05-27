@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
