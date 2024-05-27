@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
