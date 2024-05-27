@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
+**<h5><i>" Kind words do not cost much. Yet they accomplish much. "</i></h5>**
 
-*<b>___ Jean Cocteau ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
