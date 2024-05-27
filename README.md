@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History will be kind to me for I intend to write it. "</i></h5>**
+**<h5><i>" Love is a friendship set to music. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
