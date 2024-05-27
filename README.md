@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom begins in wonder. "</i></h5>**
+**<h5><i>" Always bear in mind that your own resolution to succeed is more important than any one thing. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
