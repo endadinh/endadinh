@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
+**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ John Lasseter ___</b>*
 
 -----
 
