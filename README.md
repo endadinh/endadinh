@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
