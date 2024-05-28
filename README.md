@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
+**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
