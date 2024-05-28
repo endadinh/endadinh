@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
+**<h5><i>" The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
