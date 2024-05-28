@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
+**<h5><i>" Ethics change with technology. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Larry Niven ___</b>*
 
 -----
 
