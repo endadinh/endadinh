@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success. "</i></h5>**
+**<h5><i>" Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. "</i></h5>**
 
-*<b>___ Swami Vivekananda ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
