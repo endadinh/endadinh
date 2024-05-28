@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
+**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
 
-*<b>___ Annie Dillard ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
