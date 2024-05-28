@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is fatal to enter any war without the will to win it. "</i></h5>**
+**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
 
-*<b>___ Douglas MacArthur ___</b>*
+*<b>___ Ralph Abernathy ___</b>*
 
 -----
 
