@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
+**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
