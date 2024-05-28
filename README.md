@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you love someone, set them free. If they come back, they're yours; if they don't, they never were. "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
