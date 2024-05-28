@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever has the nature of arising has the nature of ceasing. "</i></h5>**
+**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
