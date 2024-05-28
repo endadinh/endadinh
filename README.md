@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
+**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
