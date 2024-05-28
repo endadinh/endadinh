@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
+**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
