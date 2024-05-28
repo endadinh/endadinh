@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
+**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
 
-*<b>___ Nargis Fakhri ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
