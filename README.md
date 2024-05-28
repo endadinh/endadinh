@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
+**<h5><i>" We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Barbara De Angelis ___</b>*
 
 -----
 
