@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone. "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
