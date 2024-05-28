@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
+**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Annie Dillard ___</b>*
 
 -----
 
