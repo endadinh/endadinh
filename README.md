@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
+**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ John Lasseter ___</b>*
 
 -----
 
