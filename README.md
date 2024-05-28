@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I allow my intuition to lead my path. "</i></h5>**
+**<h5><i>" The most effective way to do it, is to do it. "</i></h5>**
 
-*<b>___ Manuel Puig ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
