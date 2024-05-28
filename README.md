@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
+**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
