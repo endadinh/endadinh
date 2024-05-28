@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to predict your future is to create it. "</i></h5>**
+**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
