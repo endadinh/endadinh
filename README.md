@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ethics change with technology. "</i></h5>**
+**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
 
-*<b>___ Larry Niven ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
