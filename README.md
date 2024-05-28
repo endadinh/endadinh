@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be content with your lot; one cannot be first in everything. "</i></h5>**
+**<h5><i>" Happiness depends upon ourselves. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
