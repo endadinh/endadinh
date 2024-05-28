@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope. "</i></h5>**
+**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
