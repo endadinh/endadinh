@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
+**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
