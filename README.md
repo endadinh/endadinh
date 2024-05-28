@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" Good advice is always certain to be ignored, but that's no reason not to give it. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Agatha Christie ___</b>*
 
 -----
 
