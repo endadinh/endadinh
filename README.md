@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
+**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
