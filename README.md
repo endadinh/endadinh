@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep silence for the most part, and speak only when you must, and then briefly. "</i></h5>**
+**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Doug Horton ___</b>*
 
 -----
 
