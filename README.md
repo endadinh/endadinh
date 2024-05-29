@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
+**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
 
-*<b>___ Philip Sidney ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
