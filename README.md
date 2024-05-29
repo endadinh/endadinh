@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adopt the pace of nature: her secret is patience. "</i></h5>**
+**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Salman Rushdie ___</b>*
 
 -----
 
