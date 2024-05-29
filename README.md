@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way you see people is the way you treat them, and the way you treat them is what they become. "</i></h5>**
+**<h5><i>" We must learn our limits. We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
