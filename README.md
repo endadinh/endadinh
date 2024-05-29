@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's easy to make a buck. It's a lot tougher to make a difference. "</i></h5>**
+**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
 
-*<b>___ Tom Brokaw ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
