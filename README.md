@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ Margaret Fuller ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
