@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
+**<h5><i>" If you want your life to be more rewarding, you have to change the way you think. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
