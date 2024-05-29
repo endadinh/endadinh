@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal. "</i></h5>**
+**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Archimedes ___</b>*
 
 -----
 
