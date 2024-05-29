@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
+**<h5><i>" It's easy to make a buck. It's a lot tougher to make a difference. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Tom Brokaw ___</b>*
 
 -----
 
