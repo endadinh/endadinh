@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What other people may find in poetry or art museums, I find in the flight of a good drive. "</i></h5>**
+**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
 
-*<b>___ Arnold Palmer ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
