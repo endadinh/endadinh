@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
+**<h5><i>" No one has ever become poor by giving. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
