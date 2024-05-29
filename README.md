@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
+**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
