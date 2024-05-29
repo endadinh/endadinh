@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
+**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Margaret Fuller ___</b>*
 
 -----
 
