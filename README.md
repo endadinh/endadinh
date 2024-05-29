@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Salman Rushdie ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
