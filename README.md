@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great acts are made up of small deeds. "</i></h5>**
+**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
