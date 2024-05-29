@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
+**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
