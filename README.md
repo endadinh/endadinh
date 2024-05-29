@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" What other people may find in poetry or art museums, I find in the flight of a good drive. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Arnold Palmer ___</b>*
 
 -----
 
