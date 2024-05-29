@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
+**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
