@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
