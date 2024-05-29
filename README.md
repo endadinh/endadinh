@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
+**<h5><i>" It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Edward de Bono ___</b>*
 
 -----
 
