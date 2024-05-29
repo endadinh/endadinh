@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. "</i></h5>**
+**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
