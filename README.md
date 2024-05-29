@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
+**<h5><i>" But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. "</i></h5>**
 
-*<b>___ Archimedes ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
