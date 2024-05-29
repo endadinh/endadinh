@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
+**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
