@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
+**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
 
-*<b>___ Léon Blum ___</b>*
+*<b>___ Edwin Markham ___</b>*
 
 -----
 
