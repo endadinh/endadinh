@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
+**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
