@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
+**<h5><i>" Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
