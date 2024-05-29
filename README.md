@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
