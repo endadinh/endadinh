@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
+**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
 
-*<b>___ Joseph Joubert ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
