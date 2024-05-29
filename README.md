@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
+**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
