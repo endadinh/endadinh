@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. "</i></h5>**
+**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
