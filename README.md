@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all. "</i></h5>**
+**<h5><i>" Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal. "</i></h5>**
 
-*<b>___ Edward de Bono ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
