@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people are born on third base and go through life thinking they hit a triple. "</i></h5>**
+**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
 
-*<b>___ Barry Switzer ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
