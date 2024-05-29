@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
+**<h5><i>" What other people may find in poetry or art museums, I find in the flight of a good drive. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Arnold Palmer ___</b>*
 
 -----
 
