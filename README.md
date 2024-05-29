@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
+**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
