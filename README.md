@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
