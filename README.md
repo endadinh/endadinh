@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
+**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Joseph Joubert ___</b>*
 
 -----
 
