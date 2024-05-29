@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
+**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
