@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
