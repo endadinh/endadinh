@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
+**<h5><i>" Time stays long enough for anyone who will use it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
