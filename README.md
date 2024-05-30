@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ J. Paul Getty ___</b>*
 
 -----
 
