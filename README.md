@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
+**<h5><i>" Love and friendship exclude each other. "</i></h5>**
 
-*<b>___ Ezra Stiles ___</b>*
+*<b>___ Jean de La Bruyère ___</b>*
 
 -----
 
