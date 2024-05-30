@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. "</i></h5>**
+**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
