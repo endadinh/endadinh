@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it. "</i></h5>**
+**<h5><i>" Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. "</i></h5>**
 
-*<b>___ Charlotte Perkins Gilman ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
