@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
+**<h5><i>" Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
