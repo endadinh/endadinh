@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
+**<h5><i>" I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
