@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
+**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
