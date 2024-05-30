@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you surrender to the wind, you can ride it. "</i></h5>**
+**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Toni Morrison ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
