@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is generally the best vindication against slander. "</i></h5>**
+**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Doris Mortman ___</b>*
 
 -----
 
