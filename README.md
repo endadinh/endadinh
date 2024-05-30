@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and friendship exclude each other. "</i></h5>**
+**<h5><i>" If you surrender to the wind, you can ride it. "</i></h5>**
 
-*<b>___ Jean de La Bruyère ___</b>*
+*<b>___ Toni Morrison ___</b>*
 
 -----
 
