@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning is always today. "</i></h5>**
+**<h5><i>" Joy is the best makeup. "</i></h5>**
 
-*<b>___ Mary Wollstonecraft ___</b>*
+*<b>___ Anne Lamott ___</b>*
 
 -----
 
