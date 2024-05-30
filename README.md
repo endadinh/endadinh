@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
