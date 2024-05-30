@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
 *<b>___ Laozi ___</b>*
 
