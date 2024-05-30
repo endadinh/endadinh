@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery. "</i></h5>**
+**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
