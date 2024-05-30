@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" Do not go where the path may lead, go instead where there is no path and leave a trail. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
