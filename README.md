@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest part of our happiness depends on our dispositions, not our circumstances. "</i></h5>**
+**<h5><i>" Be yourself; everyone else is already taken. "</i></h5>**
 
-*<b>___ Martha Washington ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
