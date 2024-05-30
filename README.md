@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most formidable weapon against errors of every kind is reason. "</i></h5>**
+**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Ezra Stiles ___</b>*
 
 -----
 
