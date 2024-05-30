@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" When fate hands us a lemon, let's try to make lemonade. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
