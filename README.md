@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
+**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Uta Hagen ___</b>*
 
 -----
 
