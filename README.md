@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
+**<h5><i>" It is not so important to know everything as to appreciate what we learn. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
