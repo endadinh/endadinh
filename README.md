@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
+**<h5><i>" Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
