@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is the best makeup. "</i></h5>**
+**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
 
-*<b>___ Anne Lamott ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
