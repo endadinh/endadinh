@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not so important to know everything as to appreciate what we learn. "</i></h5>**
+**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
