@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
+**<h5><i>" It is not in the stars to hold our destiny but in ourselves. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
