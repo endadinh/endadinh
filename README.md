@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
+**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
 
-*<b>___ Uta Hagen ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
