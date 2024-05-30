@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
+**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
 
 *<b>___ Confucius ___</b>*
 
