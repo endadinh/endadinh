@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most people because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
