@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
+**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
