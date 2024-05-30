@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. "</i></h5>**
+**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
