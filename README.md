@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
