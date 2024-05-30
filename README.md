@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
