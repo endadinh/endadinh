@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
+**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
