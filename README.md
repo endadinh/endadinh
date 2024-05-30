@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good advice is always certain to be ignored, but that's no reason not to give it. "</i></h5>**
+**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
 
-*<b>___ Agatha Christie ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
