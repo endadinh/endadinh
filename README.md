@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Whoopi Goldberg ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
