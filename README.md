@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Brooks Adams ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
