@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. "</i></h5>**
+**<h5><i>" I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun. "</i></h5>**
 
-*<b>___ Katherine Mansfield ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
