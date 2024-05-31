@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
+**<h5><i>" Those who dream by day are cognizant of many things which escape those who dream only by night. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
