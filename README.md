@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
+**<h5><i>" To improve is to change; to be perfect is to change often. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
