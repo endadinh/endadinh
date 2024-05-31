@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
+**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
 
-*<b>___ Margaret Fuller ___</b>*
+*<b>___ Ansel Adams ___</b>*
 
 -----
 
