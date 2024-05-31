@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To improve is to change; to be perfect is to change often. "</i></h5>**
+**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Margaret Fuller ___</b>*
 
 -----
 
