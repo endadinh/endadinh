@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
+**<h5><i>" For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Audrey Hepburn ___</b>*
 
 -----
 
