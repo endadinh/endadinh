@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
+**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ John Muir ___</b>*
 
 -----
 
