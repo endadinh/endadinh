@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anybody can make history. Only a great man can write it. "</i></h5>**
+**<h5><i>" I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
