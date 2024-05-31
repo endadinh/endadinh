@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
+**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
