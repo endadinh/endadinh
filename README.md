@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smaller the mind the greater the conceit. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
