@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
+**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
