@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I hear and I forget. I see and I remember. I do and I understand. "</i></h5>**
+**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
