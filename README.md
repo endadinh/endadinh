@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must never forget that it is through our actions, words, and thoughts that we have a choice. "</i></h5>**
+**<h5><i>" The secret of success is constancy to purpose. "</i></h5>**
 
-*<b>___ Sogyal Rinpoche ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
