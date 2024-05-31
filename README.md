@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
