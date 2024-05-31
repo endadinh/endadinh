@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The secret of success is constancy to purpose. "</i></h5>**
+**<h5><i>" Get busy living or get busy dying. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Stephen King ___</b>*
 
 -----
 
