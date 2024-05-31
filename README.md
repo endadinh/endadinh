@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
+**<h5><i>" Meetings are indispensable when you don't want to do anything. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ John Kenneth Galbraith ___</b>*
 
 -----
 
