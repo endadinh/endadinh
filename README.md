@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
