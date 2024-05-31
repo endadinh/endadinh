@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
+**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
