@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
+**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
