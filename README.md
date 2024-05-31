@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
+**<h5><i>" Anybody can make history. Only a great man can write it. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
