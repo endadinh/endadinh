@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
+**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
