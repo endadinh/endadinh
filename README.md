@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meetings are indispensable when you don't want to do anything. "</i></h5>**
+**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
 
-*<b>___ John Kenneth Galbraith ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
