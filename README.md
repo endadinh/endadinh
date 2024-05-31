@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
