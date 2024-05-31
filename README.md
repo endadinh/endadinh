@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
+**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Havelock Ellis ___</b>*
 
 -----
 
