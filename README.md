@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
+**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Betty Friedan ___</b>*
 
 -----
 
