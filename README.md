@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
+**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
