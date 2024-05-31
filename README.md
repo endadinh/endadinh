@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you love someone, set them free. If they come back, they're yours; if they don't, they never were. "</i></h5>**
+**<h5><i>" We must never forget that it is through our actions, words, and thoughts that we have a choice. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Sogyal Rinpoche ___</b>*
 
 -----
 
