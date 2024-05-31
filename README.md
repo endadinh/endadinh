@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
+**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
