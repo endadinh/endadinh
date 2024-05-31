@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
