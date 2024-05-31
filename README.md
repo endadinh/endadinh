@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't know a millionth of one percent about anything. "</i></h5>**
+**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ P. G. Wodehouse ___</b>*
 
 -----
 
