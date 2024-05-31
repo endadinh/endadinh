@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sincere friends of this world are as ship lights in the stormiest of nights. "</i></h5>**
+**<h5><i>" The smaller the mind the greater the conceit. "</i></h5>**
 
-*<b>___ Giotto ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
