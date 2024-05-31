@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
