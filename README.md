@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dream by day are cognizant of many things which escape those who dream only by night. "</i></h5>**
+**<h5><i>" A disciplined mind brings happiness. "</i></h5>**
 
-*<b>___ Edgar Allan Poe ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
