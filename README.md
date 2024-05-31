@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a miracle that curiosity survives formal education. "</i></h5>**
+**<h5><i>" Nothing will work unless you do. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
