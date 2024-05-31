@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
+**<h5><i>" A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
