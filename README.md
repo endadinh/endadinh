@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Price is what you pay. Value is what you get. "</i></h5>**
+**<h5><i>" The secret of success is constancy to purpose. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
