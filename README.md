@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
+**<h5><i>" It is a miracle that curiosity survives formal education. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
