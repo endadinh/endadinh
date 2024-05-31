@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
+**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
