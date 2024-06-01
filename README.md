@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" I begin with an idea and then it becomes something else. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
