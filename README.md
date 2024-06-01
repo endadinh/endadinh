@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
+**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
