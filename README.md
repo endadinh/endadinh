@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to win, you must expect to win. "</i></h5>**
+**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
