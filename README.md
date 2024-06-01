@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
