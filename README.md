@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To listen well is as powerful a means of communication and influence as to talk well. "</i></h5>**
+**<h5><i>" Imagination will often carry us to worlds that never were. But without it we go nowhere. "</i></h5>**
 
-*<b>___ John Marshall ___</b>*
+*<b>___ Carl Sagan ___</b>*
 
 -----
 
