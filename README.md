@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
+**<h5><i>" What lies behind us and what lies before us are tiny matters compared to what lies within us. "</i></h5>**
 
-*<b>___ Ludwig van Beethoven ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
