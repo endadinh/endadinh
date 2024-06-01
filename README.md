@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Babatunde Olatunji ___</b>*
 
 -----
 
