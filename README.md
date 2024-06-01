@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
