@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I begin with an idea and then it becomes something else. "</i></h5>**
+**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
