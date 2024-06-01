@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The human spirit must prevail over technology. "</i></h5>**
+**<h5><i>" True friends stab you in the front. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
