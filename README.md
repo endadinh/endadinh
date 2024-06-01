@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is the fairest blossom which springs from the soul. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Henry K. Beecher ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
