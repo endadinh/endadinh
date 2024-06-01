@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
