@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" To listen well is as powerful a means of communication and influence as to talk well. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ John Marshall ___</b>*
 
 -----
 
