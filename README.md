@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
+**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
