@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
+**<h5><i>" You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand. "</i></h5>**
 
-*<b>___ Brooks Adams ___</b>*
+*<b>___ Woodrow Wilson ___</b>*
 
 -----
 
