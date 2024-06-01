@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Rabindranath Tagore ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
