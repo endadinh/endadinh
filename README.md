@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Farhan Akhtar ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
