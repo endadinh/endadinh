@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. "</i></h5>**
+**<h5><i>" It's a good thing to be satisfied with what one has. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
