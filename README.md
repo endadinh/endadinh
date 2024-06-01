@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
+**<h5><i>" Be kind whenever possible. It is always possible. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
