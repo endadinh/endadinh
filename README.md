@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Set your goals high, and don't stop till you get there. "</i></h5>**
+**<h5><i>" Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. "</i></h5>**
 
-*<b>___ Bo Jackson ___</b>*
+*<b>___ Joan Rivers ___</b>*
 
 -----
 
