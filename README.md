@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" Miracles come in moments. Be ready and willing. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
