@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. "</i></h5>**
+**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Christopher Morley ___</b>*
 
 -----
 
