@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be kind whenever possible. It is always possible. "</i></h5>**
+**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
