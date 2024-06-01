@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
+**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
