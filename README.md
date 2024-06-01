@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination will often carry us to worlds that never were. But without it we go nowhere. "</i></h5>**
+**<h5><i>" When watching after yourself, you watch after others. When watching after others, you watch after yourself. "</i></h5>**
 
-*<b>___ Carl Sagan ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
