@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
+**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
