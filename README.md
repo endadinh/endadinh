@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" The human spirit must prevail over technology. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
