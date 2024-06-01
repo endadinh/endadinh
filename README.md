@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
+**<h5><i>" Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
