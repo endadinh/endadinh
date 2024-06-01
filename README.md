@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
+**<h5><i>" To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Margaret Thatcher ___</b>*
 
 -----
 
