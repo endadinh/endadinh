@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
+**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
 
-*<b>___ Tom Lehrer ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
