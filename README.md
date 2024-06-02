@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never promise more than you can perform. "</i></h5>**
+**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Rose Kennedy ___</b>*
 
 -----
 
