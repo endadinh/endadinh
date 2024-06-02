@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ P. Chidambaram ___</b>*
 
 -----
 
