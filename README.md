@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
+**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
