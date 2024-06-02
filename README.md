@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
