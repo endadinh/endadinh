@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
+**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Pericles ___</b>*
 
 -----
 
