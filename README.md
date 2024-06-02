@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not so much our friends' help that helps us, as the confidence of their help. "</i></h5>**
+**<h5><i>" The world has the habit of making room for the man whose actions show that he knows where he is going. "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
