@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. "</i></h5>**
+**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
 
-*<b>___ G. K. Chesterton ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
