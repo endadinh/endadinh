@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
+**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
