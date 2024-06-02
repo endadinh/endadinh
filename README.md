@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
+**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
