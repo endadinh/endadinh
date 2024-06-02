@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are many ways of going forward, but only one way of standing still. "</i></h5>**
+**<h5><i>" In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
