@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
+**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
