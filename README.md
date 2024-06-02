@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
+**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
