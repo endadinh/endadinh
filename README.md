@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to make sense out of change is to plunge into it, move with it, and join the dance. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
