@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
