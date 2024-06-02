@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
+**<h5><i>" The only way to make sense out of change is to plunge into it, move with it, and join the dance. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
