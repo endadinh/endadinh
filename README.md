@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
+**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
