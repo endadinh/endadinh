@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
+**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
