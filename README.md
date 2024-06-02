@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
