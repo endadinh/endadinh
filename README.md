@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
