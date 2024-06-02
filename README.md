@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
+**<h5><i>" The more light you allow within you, the brighter the world you live in will be. "</i></h5>**
 
-*<b>___ P. Chidambaram ___</b>*
+*<b>___ Shakti Gawain ___</b>*
 
 -----
 
