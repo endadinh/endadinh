@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
+**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ John Quincy Adams ___</b>*
 
 -----
 
