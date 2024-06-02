@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
+**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
 
-*<b>___ James Oppenheim ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
