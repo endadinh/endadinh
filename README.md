@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right. "</i></h5>**
+**<h5><i>" Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
