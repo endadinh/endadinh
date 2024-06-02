@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world has the habit of making room for the man whose actions show that he knows where he is going. "</i></h5>**
+**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
