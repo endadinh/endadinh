@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
+**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
