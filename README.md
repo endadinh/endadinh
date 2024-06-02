@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination. "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
