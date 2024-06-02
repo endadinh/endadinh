@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
