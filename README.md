@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
+**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
 
 *<b>___ Laozi ___</b>*
 
