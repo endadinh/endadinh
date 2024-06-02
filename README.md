@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
+**<h5><i>" I begin with an idea and then it becomes something else. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
