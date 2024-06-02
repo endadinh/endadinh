@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
+**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
