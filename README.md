@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest obstacle to connecting with our joy is resentment. "</i></h5>**
+**<h5><i>" Do not go where the path may lead, go instead where there is no path and leave a trail. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
