@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in the nature of things that joy arises in a person free from remorse. "</i></h5>**
+**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
