@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" It is in the nature of things that joy arises in a person free from remorse. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
