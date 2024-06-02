@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. "</i></h5>**
+**<h5><i>" A really great talent finds its happiness in execution. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
