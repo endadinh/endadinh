@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
