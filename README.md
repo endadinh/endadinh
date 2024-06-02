@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
+**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
