@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Independence is happiness. "</i></h5>**
+**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
 
-*<b>___ Susan B. Anthony ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
