@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
+**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
