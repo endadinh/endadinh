@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
+**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
