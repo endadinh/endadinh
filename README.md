@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ Rita Mae Brown ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
