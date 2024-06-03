@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The real problem is not whether machines think but whether men do. "</i></h5>**
+**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
 
-*<b>___ B. F. Skinner ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
