@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. "</i></h5>**
+**<h5><i>" Without some goals and some efforts to reach it, no man can live. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
