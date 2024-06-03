@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
