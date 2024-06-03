@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without some goals and some efforts to reach it, no man can live. "</i></h5>**
+**<h5><i>" The most certain sign of wisdom is cheerfulness. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
