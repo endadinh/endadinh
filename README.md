@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
+**<h5><i>" Reality is merely an illusion, albeit a very persistent one. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
