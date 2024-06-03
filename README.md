@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
+**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
