@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
+**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Lewis Carroll ___</b>*
 
 -----
 
