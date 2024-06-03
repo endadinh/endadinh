@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
+**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
