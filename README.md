@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. "</i></h5>**
+**<h5><i>" I will prepare and some day my chance will come. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
