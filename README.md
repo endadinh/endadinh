@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
+**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
