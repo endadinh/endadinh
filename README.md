@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
+**<h5><i>" All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Anne Brontë ___</b>*
 
 -----
 
