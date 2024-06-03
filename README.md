@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. "</i></h5>**
+**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
