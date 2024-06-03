@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
+**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
 
-*<b>___ Calvin Coolidge ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
