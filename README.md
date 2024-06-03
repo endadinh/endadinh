@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more light you allow within you, the brighter the world you live in will be. "</i></h5>**
+**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
 
-*<b>___ Shakti Gawain ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
