@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
+**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
