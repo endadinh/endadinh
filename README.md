@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
+**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Epicurus ___</b>*
 
 -----
 
