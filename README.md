@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So much technology, so little talent. "</i></h5>**
+**<h5><i>" The real problem is not whether machines think but whether men do. "</i></h5>**
 
-*<b>___ Vernor Vinge ___</b>*
+*<b>___ B. F. Skinner ___</b>*
 
 -----
 
