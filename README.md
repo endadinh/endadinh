@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
+**<h5><i>" To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
