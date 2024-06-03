@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
+**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Lewis Carroll ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
