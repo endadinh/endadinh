@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
+**<h5><i>" Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that. "</i></h5>**
 
-*<b>___ Pericles ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
