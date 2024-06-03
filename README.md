@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men make more opportunities than they find. "</i></h5>**
+**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
