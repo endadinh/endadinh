@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
