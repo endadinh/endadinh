@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
