@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love cures people - both the ones who give it and the ones who receive it. "</i></h5>**
+**<h5><i>" If you smile when no one else is around, you really mean it. "</i></h5>**
 
-*<b>___ Karl Menninger ___</b>*
+*<b>___ Andy Rooney ___</b>*
 
 -----
 
