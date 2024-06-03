@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
+**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
 
-*<b>___ Murray Gell-Mann ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
