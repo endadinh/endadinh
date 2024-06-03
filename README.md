@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
+**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
