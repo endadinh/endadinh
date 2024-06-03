@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
+**<h5><i>" Decision is a risk rooted in the courage of being free. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Paul Tillich ___</b>*
 
 -----
 
