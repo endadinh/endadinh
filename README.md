@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
+**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
