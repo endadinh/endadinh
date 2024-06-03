@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
+**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
