@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart. "</i></h5>**
+**<h5><i>" We know the truth, not only by the reason, but by the heart. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
