@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
+**<h5><i>" Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Paul Theroux ___</b>*
 
 -----
 
