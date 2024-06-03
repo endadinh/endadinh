@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. "</i></h5>**
+**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
 
-*<b>___ Anne Brontë ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
