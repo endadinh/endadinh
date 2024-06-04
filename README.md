@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Continuous effort - not strength or intelligence - is the key to unlocking our potential. "</i></h5>**
+**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
