@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our passion is our strength. "</i></h5>**
+**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
 
-*<b>___ Billie Armstrong ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
