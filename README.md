@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
+**<h5><i>" There is no greater harm than that of time wasted. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
