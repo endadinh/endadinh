@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" Listen to what you know instead of what you fear. "</i></h5>**
 
 *<b>___ Richard Bach ___</b>*
 
