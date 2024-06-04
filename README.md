@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
+**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Julie Morgenstern ___</b>*
 
 -----
 
