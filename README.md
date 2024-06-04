@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So is cheerfulness, or a good temper, the more it is spent, the more remains. "</i></h5>**
+**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
