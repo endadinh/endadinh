@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no greater harm than that of time wasted. "</i></h5>**
+**<h5><i>" I allow my intuition to lead my path. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Manuel Puig ___</b>*
 
 -----
 
