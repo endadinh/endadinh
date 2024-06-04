@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoyed wasting was not wasted. "</i></h5>**
+**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
