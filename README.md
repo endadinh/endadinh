@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
