@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I had only known, I would have been a locksmith. "</i></h5>**
+**<h5><i>" Work while you have the light. You are responsible for the talent that has been entrusted to you. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
