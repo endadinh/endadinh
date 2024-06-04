@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
+**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
