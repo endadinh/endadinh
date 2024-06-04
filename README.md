@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality is merely an illusion, albeit a very persistent one. "</i></h5>**
+**<h5><i>" This is the final test of a gentleman: his respect for those who can be of no possible value to him. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Lyon Phelps ___</b>*
 
 -----
 
