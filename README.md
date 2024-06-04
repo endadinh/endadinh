@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle. "</i></h5>**
+**<h5><i>" So is cheerfulness, or a good temper, the more it is spent, the more remains. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
