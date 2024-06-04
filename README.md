@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
+**<h5><i>" One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
