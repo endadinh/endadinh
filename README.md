@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Julie Morgenstern ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
