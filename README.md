@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
+**<h5><i>" Our passion is our strength. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Billie Armstrong ___</b>*
 
 -----
 
