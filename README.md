@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
