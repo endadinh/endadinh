@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
+**<h5><i>" When watching after yourself, you watch after others. When watching after others, you watch after yourself. "</i></h5>**
 
-*<b>___ Philip Sidney ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
