@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
+**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
