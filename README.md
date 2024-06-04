@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
+**<h5><i>" Dreams come true. Without that possibility, nature would not incite us to have them. "</i></h5>**
 
-*<b>___ Pericles ___</b>*
+*<b>___ John Updike ___</b>*
 
 -----
 
