@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" When watching after yourself, you watch after others. When watching after others, you watch after yourself. "</i></h5>**
+**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
 
 *<b>___ The Buddha ___</b>*
 
