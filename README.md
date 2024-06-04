@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Champions keep playing until they get it right. "</i></h5>**
+**<h5><i>" Nine-tenths of wisdom is being wise in time. "</i></h5>**
 
-*<b>___ Billie Jean King ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
