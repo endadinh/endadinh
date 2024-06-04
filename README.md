@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
+**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
