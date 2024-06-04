@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
+**<h5><i>" Always be a first-rate version of yourself, instead of a second-rate version of somebody else. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Judy Garland ___</b>*
 
 -----
 
