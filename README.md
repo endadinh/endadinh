@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. "</i></h5>**
+**<h5><i>" The only journey is the one within. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Rainer Maria Rilke ___</b>*
 
 -----
 
