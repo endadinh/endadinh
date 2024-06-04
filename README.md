@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
+**<h5><i>" The essence of true friendship is to make allowance for another's little lapses. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
