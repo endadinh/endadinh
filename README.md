@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Havelock Ellis ___</b>*
 
 -----
 
