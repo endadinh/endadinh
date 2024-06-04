@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
+**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
