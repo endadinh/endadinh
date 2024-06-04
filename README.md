@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
+**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
