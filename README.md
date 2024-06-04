@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
+**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
 
-*<b>___ Joseph Wood Krutch ___</b>*
+*<b>___ Thomas à Kempis ___</b>*
 
 -----
 
