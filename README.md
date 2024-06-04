@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" Time you enjoyed wasting was not wasted. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
