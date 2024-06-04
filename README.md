@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer. "</i></h5>**
+**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
 
-*<b>___ Colette ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
