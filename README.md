@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work while you have the light. You are responsible for the talent that has been entrusted to you. "</i></h5>**
+**<h5><i>" If only wed stop trying to be happy wed have a pretty good time. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
