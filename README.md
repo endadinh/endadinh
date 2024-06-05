@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
+**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
