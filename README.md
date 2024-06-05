@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
