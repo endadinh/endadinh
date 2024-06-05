@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
+**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Laurie Anderson ___</b>*
 
 -----
 
