@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world. "</i></h5>**
+**<h5><i>" If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others. "</i></h5>**
 
-*<b>___ Judy Collins ___</b>*
+*<b>___ Anne Lindbergh ___</b>*
 
 -----
 
