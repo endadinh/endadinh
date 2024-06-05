@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
