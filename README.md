@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others. "</i></h5>**
+**<h5><i>" Keep your eyes on the stars and your feet on the ground. "</i></h5>**
 
-*<b>___ Anne Lindbergh ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
