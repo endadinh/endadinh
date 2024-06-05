@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
+**<h5><i>" By living deeply in the present moment we can understand the past better and we can prepare for a better future. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
