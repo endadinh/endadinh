@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By living deeply in the present moment we can understand the past better and we can prepare for a better future. "</i></h5>**
+**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Bill Watterson ___</b>*
 
 -----
 
