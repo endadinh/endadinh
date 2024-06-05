@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
+**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
