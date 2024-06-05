@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
