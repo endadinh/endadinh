@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the power to put our time and our knowledge to the proper use. "</i></h5>**
+**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
 
-*<b>___ Thomas J. Watson ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
