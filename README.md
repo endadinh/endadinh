@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single lamp may light hundreds of thousands of lamps without itself being diminished. "</i></h5>**
+**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
