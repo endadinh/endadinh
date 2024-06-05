@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Setting goals is the first step in turning the invisible into the visible. "</i></h5>**
+**<h5><i>" Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
