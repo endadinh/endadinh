@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties increase the nearer we get to the goal. "</i></h5>**
+**<h5><i>" You can't cross the sea merely by standing and staring at the water. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
