@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
+**<h5><i>" Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Doug Larson ___</b>*
 
 -----
 
