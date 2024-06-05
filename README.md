@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Joan Rivers ___</b>*
 
 -----
 
