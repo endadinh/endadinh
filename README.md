@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
+**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Kin Hubbard ___</b>*
 
 -----
 
