@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
+**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
