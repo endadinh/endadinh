@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
