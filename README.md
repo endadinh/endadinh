@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
+**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
 
-*<b>___ William Penn ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
