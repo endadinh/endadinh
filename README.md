@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. "</i></h5>**
+**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ William Penn ___</b>*
 
 -----
 
