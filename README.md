@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
+**<h5><i>" Setting goals is the first step in turning the invisible into the visible. "</i></h5>**
 
-*<b>___ Bill Watterson ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
