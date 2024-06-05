@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the neglect of timely repair that makes rebuilding necessary. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Richard Whately ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
