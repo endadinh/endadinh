@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We know the truth, not only by the reason, but by the heart. "</i></h5>**
+**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
