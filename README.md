@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only journey is the one within. "</i></h5>**
+**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
 
-*<b>___ Rainer Maria Rilke ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
