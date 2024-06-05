@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cleverness is not wisdom. "</i></h5>**
+**<h5><i>" There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
