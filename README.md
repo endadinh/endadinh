@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
+**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
