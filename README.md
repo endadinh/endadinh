@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
+**<h5><i>" Difficulties increase the nearer we get to the goal. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
