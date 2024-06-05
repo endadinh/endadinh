@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can do it. "</i></h5>**
+**<h5><i>" Positive thinking will let you do everything better than negative thinking will. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
