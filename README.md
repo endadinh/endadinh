@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" Memory is the mother of all wisdom. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
