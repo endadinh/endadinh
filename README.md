@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
+**<h5><i>" The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
