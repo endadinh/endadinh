@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
+**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Maureen Dowd ___</b>*
 
 -----
 
