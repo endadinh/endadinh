@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
+**<h5><i>" Excellence is not a skill. It is an attitude. "</i></h5>**
 
-*<b>___ Thomas Dewar ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
