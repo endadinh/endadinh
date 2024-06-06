@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
+**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Christopher Reeve ___</b>*
 
 -----
 
