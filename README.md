@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
+**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
