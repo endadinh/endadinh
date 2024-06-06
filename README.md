@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
+**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
 
-*<b>___ Arthur M. Schlesinger Jr. ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
