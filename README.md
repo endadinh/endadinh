@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
+**<h5><i>" Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
