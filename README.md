@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
