@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
+**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Hubert Humphrey ___</b>*
 
 -----
 
