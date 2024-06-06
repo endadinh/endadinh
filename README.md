@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
