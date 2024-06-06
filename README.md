@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
