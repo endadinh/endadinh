@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
