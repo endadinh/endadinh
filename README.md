@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
+**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
