@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You know you're in love when you can't fall asleep because reality is finally better than your dreams. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
