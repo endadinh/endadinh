@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
+**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Tony Blair ___</b>*
 
 -----
 
