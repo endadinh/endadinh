@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
+**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
