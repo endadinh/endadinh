@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" I think and that is all that I am. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
