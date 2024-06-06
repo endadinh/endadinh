@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
+**<h5><i>" To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. "</i></h5>**
 
-*<b>___ Joyce Meyer ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
