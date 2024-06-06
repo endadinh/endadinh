@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's a good thing to be satisfied with what one has. "</i></h5>**
+**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
