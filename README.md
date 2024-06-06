@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
+**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
 
-*<b>___ Bernice Reagon ___</b>*
+*<b>___ Charlotte Brontë ___</b>*
 
 -----
 
