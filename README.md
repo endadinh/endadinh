@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" True friends stab you in the front. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
