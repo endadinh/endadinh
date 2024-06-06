@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
+**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
