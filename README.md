@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
