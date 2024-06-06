@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
