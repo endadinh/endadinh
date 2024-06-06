@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
+**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
