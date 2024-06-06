@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination rules the world. "</i></h5>**
+**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
