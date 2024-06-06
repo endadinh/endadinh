@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
+**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
