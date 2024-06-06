@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Tony Blair ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
