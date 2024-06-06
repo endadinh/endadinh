@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
