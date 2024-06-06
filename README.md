@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
