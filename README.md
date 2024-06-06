@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
+**<h5><i>" God always takes the simplest way. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
