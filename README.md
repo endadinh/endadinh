@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
+**<h5><i>" Imagination rules the world. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
