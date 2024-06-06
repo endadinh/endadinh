@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
+**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
 
 *<b>___ Sophocles ___</b>*
 
