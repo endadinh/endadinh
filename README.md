@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
+**<h5><i>" Much wisdom often goes with fewest words. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
