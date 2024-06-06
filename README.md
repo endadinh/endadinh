@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
+**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
