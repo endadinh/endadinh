@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
+**<h5><i>" Even if you're on the right track, you'll get run over if you just sit there. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
