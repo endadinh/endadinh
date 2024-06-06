@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much wisdom often goes with fewest words. "</i></h5>**
+**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
