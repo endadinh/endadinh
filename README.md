@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
+**<h5><i>" There are no failures. Just experiences and your reactions to them. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Tom Krause ___</b>*
 
 -----
 
