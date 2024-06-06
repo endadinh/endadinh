@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
+**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
 
-*<b>___ Pierre-Auguste Renoir ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
