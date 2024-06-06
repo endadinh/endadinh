@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
