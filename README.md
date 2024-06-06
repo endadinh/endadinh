@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
