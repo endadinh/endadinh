@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
