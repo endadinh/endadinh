@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
+**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
 
-*<b>___ Warren Bennis ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
