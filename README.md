@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
+**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
