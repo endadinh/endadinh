@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For everything that lives is holy, life delights in life. "</i></h5>**
+**<h5><i>" I begin with an idea and then it becomes something else. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
