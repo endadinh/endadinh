@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
