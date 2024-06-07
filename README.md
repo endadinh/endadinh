@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
+**<h5><i>" Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. "</i></h5>**
 
-*<b>___ Václav Havel ___</b>*
+*<b>___ Diogenes ___</b>*
 
 -----
 
