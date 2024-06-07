@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure doesn't mean you are a failure it just means you haven't succeeded yet. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
