@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
+**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
 
-*<b>___ Sam Rayburn ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
