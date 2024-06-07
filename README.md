@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
+**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Jean-Jacques Rousseau ___</b>*
 
 -----
 
