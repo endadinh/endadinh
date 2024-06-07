@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
+**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Theodore H. White ___</b>*
 
 -----
 
