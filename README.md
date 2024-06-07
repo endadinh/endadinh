@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
+**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
 
-*<b>___ Ernest Hemingway ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
