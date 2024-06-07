@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
+**<h5><i>" You and I are all as much continuous with the physical universe as a wave is continuous with the ocean. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
