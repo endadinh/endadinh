@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
+**<h5><i>" We can only be said to be alive in those moments when our hearts are conscious of our treasures. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Thornton Wilder ___</b>*
 
 -----
 
