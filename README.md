@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The energy of the mind is the essence of life. "</i></h5>**
+**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
