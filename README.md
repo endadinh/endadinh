@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend to all is a friend to none. "</i></h5>**
+**<h5><i>" Inspiration exists, but it has to find us working. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
