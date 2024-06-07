@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
