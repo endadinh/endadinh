@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear makes strangers of people who would be friends. "</i></h5>**
+**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
 
-*<b>___ Shirley MacLaine ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
