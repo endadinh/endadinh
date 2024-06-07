@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
+**<h5><i>" For everything that lives is holy, life delights in life. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
