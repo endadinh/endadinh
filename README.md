@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
+**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
