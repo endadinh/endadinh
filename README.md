@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
+**<h5><i>" You yourself must strive. The Buddhas only point the way. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
