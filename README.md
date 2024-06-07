@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. "</i></h5>**
+**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
 
-*<b>___ Diogenes ___</b>*
+*<b>___ Sam Rayburn ___</b>*
 
 -----
 
