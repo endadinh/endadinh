@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
+**<h5><i>" Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ John McCain ___</b>*
 
 -----
 
