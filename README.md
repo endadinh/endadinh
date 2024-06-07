@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Choose a job you love, and you will never have to work a day in your life. "</i></h5>**
+**<h5><i>" Get busy living or get busy dying. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Stephen King ___</b>*
 
 -----
 
