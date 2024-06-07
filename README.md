@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing in every noble dream is the dreamer... "</i></h5>**
+**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
 
-*<b>___ Moncure D. Conway ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
