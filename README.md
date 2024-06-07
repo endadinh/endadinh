@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
