@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. "</i></h5>**
+**<h5><i>" A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ David Brinkley ___</b>*
 
 -----
 
