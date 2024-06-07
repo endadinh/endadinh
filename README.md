@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
+**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
