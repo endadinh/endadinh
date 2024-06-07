@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
+**<h5><i>" I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Elizabeth Montagu ___</b>*
 
 -----
 
