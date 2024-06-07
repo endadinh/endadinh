@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
+**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
