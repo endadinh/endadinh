@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
+**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
