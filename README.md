@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our dreams can come true, if we have the courage to pursue them. "</i></h5>**
+**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
