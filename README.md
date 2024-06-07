@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
+**<h5><i>" A friend to all is a friend to none. "</i></h5>**
 
-*<b>___ Jean-Jacques Rousseau ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
