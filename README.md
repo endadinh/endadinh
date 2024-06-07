@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
+**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
 
-*<b>___ Ellen Glasgow ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
