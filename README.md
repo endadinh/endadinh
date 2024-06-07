@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
+**<h5><i>" All truths are easy to understand once they are discovered; the point is to discover them. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Galileo Galilei ___</b>*
 
 -----
 
