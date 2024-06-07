@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can only be said to be alive in those moments when our hearts are conscious of our treasures. "</i></h5>**
+**<h5><i>" The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed. "</i></h5>**
 
-*<b>___ Thornton Wilder ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
