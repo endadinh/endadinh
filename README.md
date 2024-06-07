@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
+**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
