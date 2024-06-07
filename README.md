@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All truths are easy to understand once they are discovered; the point is to discover them. "</i></h5>**
+**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
 
-*<b>___ Galileo Galilei ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
