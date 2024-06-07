@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
+**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
