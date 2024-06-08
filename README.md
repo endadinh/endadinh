@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
