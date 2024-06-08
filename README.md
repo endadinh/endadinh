@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
+**<h5><i>" Always do your best. What you plant now, you will harvest later. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
