@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. "</i></h5>**
+**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
