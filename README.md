@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom begins in wonder. "</i></h5>**
+**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
