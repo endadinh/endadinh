@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Indira Gandhi ___</b>*
 
 -----
 
