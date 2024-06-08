@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
+**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
