@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
