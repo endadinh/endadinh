@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
+**<h5><i>" Wisdom begins in wonder. "</i></h5>**
 
-*<b>___ Norman Douglas ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
