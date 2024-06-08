@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is so exhilarating as to be shot at without result. "</i></h5>**
+**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
