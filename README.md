@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
+**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Sai Baba ___</b>*
 
 -----
 
