@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
+**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
