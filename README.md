@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How is it possible to find meaning in a finite world, given my waist and shirt size? "</i></h5>**
+**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Alfred Tennyson ___</b>*
 
 -----
 
