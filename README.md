@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and friendship exclude each other. "</i></h5>**
+**<h5><i>" So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. "</i></h5>**
 
-*<b>___ Jean de La Bruyère ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
