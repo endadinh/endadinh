@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
 *<b>___ Confucius ___</b>*
 
