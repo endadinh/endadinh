@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
+**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Kin Hubbard ___</b>*
 
 -----
 
