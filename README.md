@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
+**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
 
-*<b>___ Holly Near ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
