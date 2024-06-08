@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
+**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
 
-*<b>___ Indira Gandhi ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
