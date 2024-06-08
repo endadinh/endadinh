@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
+**<h5><i>" I am a man of fixed and unbending principles, the first of which is to be flexible at all times. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Everett Dirksen ___</b>*
 
 -----
 
