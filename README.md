@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Honesty is the best policy. "</i></h5>**
+**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
