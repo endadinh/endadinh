@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
