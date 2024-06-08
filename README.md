@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
+**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
 
 *<b>___ Confucius ___</b>*
 
