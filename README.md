@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
+**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
