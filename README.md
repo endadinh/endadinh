@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
