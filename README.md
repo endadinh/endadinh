@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
+**<h5><i>" All I can say about life is, Oh God, enjoy it! "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Bob Newhart ___</b>*
 
 -----
 
