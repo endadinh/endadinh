@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
+**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
 
-*<b>___ Phyllis Grissim-Theroux ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
