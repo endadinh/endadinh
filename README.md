@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
+**<h5><i>" Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other. "</i></h5>**
 
-*<b>___ Sai Baba ___</b>*
+*<b>___ Carrie Snow ___</b>*
 
 -----
 
