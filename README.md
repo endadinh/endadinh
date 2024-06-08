@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either you run the day or the day runs you. "</i></h5>**
+**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
