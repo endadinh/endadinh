@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
