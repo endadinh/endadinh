@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to love and to be wise. "</i></h5>**
+**<h5><i>" You can't put a limit on anything. The more you dream, the farther you get. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Michael Phelps ___</b>*
 
 -----
 
