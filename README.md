@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
+**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
