@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
+**<h5><i>" I believe that every person is born with talent. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
