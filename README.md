@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No yesterdays are ever wasted for those who give themselves to today. "</i></h5>**
+**<h5><i>" Nothing in life is so exhilarating as to be shot at without result. "</i></h5>**
 
-*<b>___ Brendan Behan ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
