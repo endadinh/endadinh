@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
+**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
