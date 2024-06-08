@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ Augustine of Hippo ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
