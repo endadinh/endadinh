@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
+**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
 
-*<b>___ Uta Hagen ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
