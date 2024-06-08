@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
+**<h5><i>" How is it possible to find meaning in a finite world, given my waist and shirt size? "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
