@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
+**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Norman Douglas ___</b>*
 
 -----
 
