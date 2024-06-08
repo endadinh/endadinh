@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. "</i></h5>**
+**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Holly Near ___</b>*
 
 -----
 
