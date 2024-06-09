@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
+**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
