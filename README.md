@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
+**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
 
-*<b>___ Franz Kafka ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
