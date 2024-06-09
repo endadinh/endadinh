@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
