@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
+**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
 
-*<b>___ James F. Byrnes ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
