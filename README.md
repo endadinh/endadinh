@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
