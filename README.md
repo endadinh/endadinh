@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
+**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
