@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
