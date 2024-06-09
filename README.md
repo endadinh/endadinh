@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. "</i></h5>**
+**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
 
-*<b>___ Sidney Hook ___</b>*
+*<b>___ Farhan Akhtar ___</b>*
 
 -----
 
