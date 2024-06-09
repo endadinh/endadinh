@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is modest in his speech but exceeds in his actions. "</i></h5>**
+**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
