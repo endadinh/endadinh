@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ethical axioms are found and tested not very differently from the axioms of science. Truth is what stands the test of experience. "</i></h5>**
+**<h5><i>" Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
