@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
+**<h5><i>" Let us sacrifice our today so that our children can have a better tomorrow. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
