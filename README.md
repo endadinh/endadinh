@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
+**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
 
-*<b>___ Jimmy Dean ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
