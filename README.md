@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In every walk with nature, one receives far more than he seeks. "</i></h5>**
+**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Franz Kafka ___</b>*
 
 -----
 
