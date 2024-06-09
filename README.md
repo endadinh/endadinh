@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your worst enemy cannot harm you as much as your own unguarded thoughts. "</i></h5>**
+**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
