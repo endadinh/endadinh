@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
+**<h5><i>" The superior man is modest in his speech but exceeds in his actions. "</i></h5>**
 
-*<b>___ Ellen Glasgow ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
