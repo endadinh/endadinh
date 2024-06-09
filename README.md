@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
+**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ James F. Byrnes ___</b>*
 
 -----
 
