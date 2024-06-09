@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
