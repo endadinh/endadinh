@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
+**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Mother Angelica ___</b>*
 
 -----
 
