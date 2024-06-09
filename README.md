@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone. "</i></h5>**
+**<h5><i>" Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Sidney Hook ___</b>*
 
 -----
 
