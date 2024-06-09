@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can only be said to be alive in those moments when our hearts are conscious of our treasures. "</i></h5>**
+**<h5><i>" The secret of success is constancy to purpose. "</i></h5>**
 
-*<b>___ Thornton Wilder ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
