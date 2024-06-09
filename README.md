@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
+**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
