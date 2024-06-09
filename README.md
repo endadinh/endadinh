@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful. "</i></h5>**
+**<h5><i>" Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
