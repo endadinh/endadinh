@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
