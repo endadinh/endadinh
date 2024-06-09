@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
+**<h5><i>" Your worst enemy cannot harm you as much as your own unguarded thoughts. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
