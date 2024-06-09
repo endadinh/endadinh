@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ Jimmy Dean ___</b>*
 
 -----
 
