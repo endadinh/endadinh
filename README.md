@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
+**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Henry Moore ___</b>*
 
 -----
 
