@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. "</i></h5>**
+**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Doug Larson ___</b>*
 
 -----
 
