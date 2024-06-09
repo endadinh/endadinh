@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
+**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
 
-*<b>___ Arthur Rubinstein ___</b>*
+*<b>___ Ellen Glasgow ___</b>*
 
 -----
 
