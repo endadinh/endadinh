@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
+**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Henry Moore ___</b>*
 
 -----
 
