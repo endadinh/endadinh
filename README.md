@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
+**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Charles Lindbergh ___</b>*
 
 -----
 
