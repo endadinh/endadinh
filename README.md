@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
