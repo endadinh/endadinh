@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
+**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
 
-*<b>___ Robert Fulghum ___</b>*
+*<b>___ Arthur Rubinstein ___</b>*
 
 -----
 
