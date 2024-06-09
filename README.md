@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can only learn to love by loving. "</i></h5>**
+**<h5><i>" When you reach the end of your rope, tie a knot in it and hang on. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
