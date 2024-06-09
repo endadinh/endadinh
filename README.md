@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
+**<h5><i>" When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
