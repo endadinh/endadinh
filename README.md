@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
+**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Mother Angelica ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
