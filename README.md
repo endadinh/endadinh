@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ William Penn ___</b>*
 
 -----
 
