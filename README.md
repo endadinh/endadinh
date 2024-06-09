@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. "</i></h5>**
+**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
