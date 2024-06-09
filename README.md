@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" Ethical axioms are found and tested not very differently from the axioms of science. Truth is what stands the test of experience. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
