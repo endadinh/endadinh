@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Ted Williams ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
