@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
+**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
