@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
+**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
