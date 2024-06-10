@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
+**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Morris West ___</b>*
 
 -----
 
