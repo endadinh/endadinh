@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
