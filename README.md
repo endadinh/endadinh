@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
