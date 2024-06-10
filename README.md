@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
+**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
