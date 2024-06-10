@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Value your friendship. Value your relationships. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Barbara Bush ___</b>*
 
 -----
 
