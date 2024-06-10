@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. "</i></h5>**
+**<h5><i>" Important principles may, and must, be inflexible. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
