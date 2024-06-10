@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. "</i></h5>**
+**<h5><i>" It's the little details that are vital. Little things make big things happen. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
