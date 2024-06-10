@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're changing the world, you're working on important things. You're excited to get up in the morning. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Larry Page ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
