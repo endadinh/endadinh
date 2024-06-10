@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's the little details that are vital. Little things make big things happen. "</i></h5>**
+**<h5><i>" We can do no great things, only small things with great love. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
