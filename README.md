@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Doris Day ___</b>*
 
 -----
 
