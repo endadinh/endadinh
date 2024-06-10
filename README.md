@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
