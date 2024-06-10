@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. "</i></h5>**
+**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
