@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
