@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
