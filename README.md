@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can do no great things, only small things with great love. "</i></h5>**
+**<h5><i>" Don't watch the clock; do what it does. Keep going. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
