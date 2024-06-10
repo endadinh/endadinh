@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
