@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ Lena Horne ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
