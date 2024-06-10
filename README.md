@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
+**<h5><i>" We should not give up and we should not allow the problem to defeat us. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
