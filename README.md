@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
+**<h5><i>" Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. "</i></h5>**
 
-*<b>___ Margaret Cousins ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
