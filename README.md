@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
