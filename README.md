@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness. "</i></h5>**
+**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
 
-*<b>___ Vusi Mahlasela ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
