@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
+**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Salman Rushdie ___</b>*
 
 -----
 
