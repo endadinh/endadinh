@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
+**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
