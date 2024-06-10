@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is made of stories, not atoms. "</i></h5>**
+**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
 
-*<b>___ Muriel Rukeyser ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
