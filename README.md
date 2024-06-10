@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When a thing is done, it's done. Don't look back. Look forward to your next objective. "</i></h5>**
+**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
 
-*<b>___ George Marshall ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
