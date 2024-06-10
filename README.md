@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
+**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
