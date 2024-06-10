@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. "</i></h5>**
+**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Farhan Akhtar ___</b>*
 
 -----
 
