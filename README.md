@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Pierre-Auguste Renoir ___</b>*
 
 -----
 
