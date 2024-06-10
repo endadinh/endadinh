@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to make sense out of change is to plunge into it, move with it, and join the dance. "</i></h5>**
+**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Hubert Humphrey ___</b>*
 
 -----
 
