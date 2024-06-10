@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" Love is the attempt to form a friendship inspired by beauty. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
