@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
+**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
 
-*<b>___ Farhan Akhtar ___</b>*
+*<b>___ Lena Horne ___</b>*
 
 -----
 
