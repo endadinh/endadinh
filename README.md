@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not give up and we should not allow the problem to defeat us. "</i></h5>**
+**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ A. P. J. Abdul Kalam ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
