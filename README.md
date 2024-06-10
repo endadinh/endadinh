@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
+**<h5><i>" When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
