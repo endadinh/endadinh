@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
+**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
