@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
