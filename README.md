@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Can you imagine what I would do if I could do all I can? "</i></h5>**
+**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Mao Zedong ___</b>*
 
 -----
 
