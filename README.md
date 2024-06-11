@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
+**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
