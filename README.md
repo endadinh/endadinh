@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
+**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Sam Rayburn ___</b>*
 
 -----
 
