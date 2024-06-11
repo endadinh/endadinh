@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work while you have the light. You are responsible for the talent that has been entrusted to you. "</i></h5>**
+**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
