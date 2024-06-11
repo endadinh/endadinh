@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful. "</i></h5>**
+**<h5><i>" Ignorance and bungling with love are better than wisdom and skill without. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
