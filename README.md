@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
+**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
