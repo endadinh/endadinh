@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
+**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
 
-*<b>___ Christie Brinkley ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
