@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in the nature of things that joy arises in a person free from remorse. "</i></h5>**
+**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Fawn M. Brodie ___</b>*
 
 -----
 
