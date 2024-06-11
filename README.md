@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All children are artists. The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
