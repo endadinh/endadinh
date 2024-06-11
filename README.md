@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
+**<h5><i>" Do not worry about your difficulties in Mathematics. I can assure you mine are still greater. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
