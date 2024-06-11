@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
+**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ James F. Byrnes ___</b>*
 
 -----
 
