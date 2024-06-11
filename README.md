@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not so much our friends' help that helps us, as the confidence of their help. "</i></h5>**
+**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
