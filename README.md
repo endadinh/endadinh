@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" We cannot do everything at once, but we can do something at once. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
