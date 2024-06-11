@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
+**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
 
 *<b>___ Albert Einstein ___</b>*
 
