@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be ignorant of a matter than half know it. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
