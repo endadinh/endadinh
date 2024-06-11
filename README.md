@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" He who angers you conquers you. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
