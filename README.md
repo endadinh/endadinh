@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is what the heart needs all the time. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
