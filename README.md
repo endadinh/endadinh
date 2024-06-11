@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
