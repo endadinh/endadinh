@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
+**<h5><i>" Make the most of yourself, for that is all there is of you. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
