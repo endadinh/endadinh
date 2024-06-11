@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cleverness is not wisdom. "</i></h5>**
+**<h5><i>" We lost because we told ourselves we lost. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Leo Tolstoy ___</b>*
 
 -----
 
