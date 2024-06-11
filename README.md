@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Ignorance and bungling with love are better than wisdom and skill without. "</i></h5>**
+**<h5><i>" If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours. "</i></h5>**
 
 *<b>___ Henry David Thoreau ___</b>*
 
