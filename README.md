@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? "</i></h5>**
+**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
