@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!' "</i></h5>**
+**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
 
-*<b>___ Bill Bradley ___</b>*
+*<b>___ Arthur M. Schlesinger Jr. ___</b>*
 
 -----
 
