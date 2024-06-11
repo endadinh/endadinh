@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
+**<h5><i>" Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
