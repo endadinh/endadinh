@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
+**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
 
-*<b>___ Lena Horne ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
