@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I hope we shall crush in its birth the aristocracy of our monied corporations which dare already to challenge our government to a trial by strength, and bid defiance to the laws of our country. "</i></h5>**
+**<h5><i>" I want my friend to miss me as long as I miss him. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
