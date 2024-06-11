@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
+**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
 
-*<b>___ Dag Hammarskjöld ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
