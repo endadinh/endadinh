@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
+**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
