@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
+**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Alfred Adler ___</b>*
 
 -----
 
