@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
