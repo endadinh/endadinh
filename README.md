@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
+**<h5><i>" We must embrace pain and burn it as fuel for our journey. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Kenji Miyazawa ___</b>*
 
 -----
 
