@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
+**<h5><i>" It is in the nature of things that joy arises in a person free from remorse. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
