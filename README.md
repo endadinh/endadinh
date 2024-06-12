@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
+**<h5><i>" The best cure for the body is a quiet mind. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
