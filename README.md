@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
+**<h5><i>" It is more shameful to distrust our friends than to be deceived by them. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
