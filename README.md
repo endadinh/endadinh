@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
+**<h5><i>" The universe is made of stories, not atoms. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Muriel Rukeyser ___</b>*
 
 -----
 
