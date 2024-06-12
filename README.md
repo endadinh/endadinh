@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
+**<h5><i>" If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
