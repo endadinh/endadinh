@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
+**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
