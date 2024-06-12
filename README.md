@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
+**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
 
-*<b>___ Henry Reed ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
