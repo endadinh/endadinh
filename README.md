@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Perfection of means and confusion of ends seems to characterize our age. "</i></h5>**
+**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Betty Friedan ___</b>*
 
 -----
 
