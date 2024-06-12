@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" Much wisdom often goes with fewer words. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
