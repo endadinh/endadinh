@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
+**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
 
-*<b>___ Rita Mae Brown ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
