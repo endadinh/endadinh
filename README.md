@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
+**<h5><i>" They can conquer who believe they can. "</i></h5>**
 
-*<b>___ Augustine of Hippo ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
