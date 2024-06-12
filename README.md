@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
+**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
