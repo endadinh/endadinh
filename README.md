@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
