@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing your own darkness is the best method for dealing with the darkness of other people. "</i></h5>**
+**<h5><i>" A true friend is the most precious of all possessions and the one we take the least thought about acquiring. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
