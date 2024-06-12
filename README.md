@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
+**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Christie Brinkley ___</b>*
 
 -----
 
