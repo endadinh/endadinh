@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. "</i></h5>**
+**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
