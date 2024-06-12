@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
