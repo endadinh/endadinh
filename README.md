@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
+**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
