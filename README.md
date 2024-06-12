@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things that I have done than the things that I have not done. "</i></h5>**
+**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
