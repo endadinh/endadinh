@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without hard work, nothing grows but weeds. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
