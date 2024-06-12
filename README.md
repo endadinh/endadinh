@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
