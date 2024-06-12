@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
+**<h5><i>" The only journey is the one within. "</i></h5>**
 
-*<b>___ John Brunner ___</b>*
+*<b>___ Rainer Maria Rilke ___</b>*
 
 -----
 
