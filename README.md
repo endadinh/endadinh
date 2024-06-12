@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character develops itself in the stream of life. "</i></h5>**
+**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Rita Mae Brown ___</b>*
 
 -----
 
