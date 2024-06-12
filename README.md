@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
+**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Loretta Young ___</b>*
 
 -----
 
