@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is the most precious of all possessions and the one we take the least thought about acquiring. "</i></h5>**
+**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
