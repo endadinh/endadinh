@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
+**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
 
-*<b>___ Walter Winchell ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
