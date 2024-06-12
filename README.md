@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" From wonder into wonder existence opens. "</i></h5>**
+**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
