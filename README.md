@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
