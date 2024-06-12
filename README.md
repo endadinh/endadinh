@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
+**<h5><i>" The best way to predict your future is to create it. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
