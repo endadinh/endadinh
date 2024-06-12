@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
+**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ John Brunner ___</b>*
 
 -----
 
