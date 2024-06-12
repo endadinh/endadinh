@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
+**<h5><i>" Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth. "</i></h5>**
 
-*<b>___ Christie Brinkley ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
