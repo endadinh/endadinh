@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
+**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
