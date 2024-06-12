@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never live; we are always in the expectation of living. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
