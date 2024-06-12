@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is made of stories, not atoms. "</i></h5>**
+**<h5><i>" From wonder into wonder existence opens. "</i></h5>**
 
-*<b>___ Muriel Rukeyser ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
