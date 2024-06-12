@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
+**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Sydney J. Harris ___</b>*
 
 -----
 
