@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
+**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
 
-*<b>___ Sandy Koufax ___</b>*
+*<b>___ Jim Morrison ___</b>*
 
 -----
 
