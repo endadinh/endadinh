@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When times are bad is when the real entrepreneurs emerge. "</i></h5>**
+**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
 
-*<b>___ Robert Kiyosaki ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
