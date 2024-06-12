@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How is it possible that a being with such sensitive jewels as the eyes, such enchanted musical instruments as the ears, and such fabulous arabesque of nerves as the brain can experience itself anything less than a god. "</i></h5>**
+**<h5><i>" A goal without a plan is just a wish. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Larry Elder ___</b>*
 
 -----
 
