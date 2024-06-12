@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much wisdom often goes with fewer words. "</i></h5>**
+**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
