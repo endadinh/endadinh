@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. "</i></h5>**
+**<h5><i>" The invariable mark of wisdom is to see the miraculous in the common. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
