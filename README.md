@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be the chief but never the lord. "</i></h5>**
+**<h5><i>" To invent, you need a good imagination and a pile of junk. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
