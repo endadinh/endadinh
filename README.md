@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
+**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
