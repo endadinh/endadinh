@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Reinhold Niebuhr ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
