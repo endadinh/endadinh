@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wrinkles should merely indicate where smiles have been. "</i></h5>**
+**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Holly Near ___</b>*
 
 -----
 
