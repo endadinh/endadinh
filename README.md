@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
