@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
