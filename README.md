@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
+**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
