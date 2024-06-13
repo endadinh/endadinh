@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
+**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
