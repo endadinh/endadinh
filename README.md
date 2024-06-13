@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
+**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Maria Shriver ___</b>*
 
 -----
 
