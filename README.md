@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You really can change the world if you care enough. "</i></h5>**
+**<h5><i>" To be great is to be misunderstood. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
