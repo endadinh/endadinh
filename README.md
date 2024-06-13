@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
+**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
