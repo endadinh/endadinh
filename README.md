@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" Difficulties increase the nearer we get to the goal. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
