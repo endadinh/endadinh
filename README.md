@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
