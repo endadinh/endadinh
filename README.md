@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
+**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
