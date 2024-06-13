@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
