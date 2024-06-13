@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
+**<h5><i>" Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! "</i></h5>**
 
-*<b>___ Henry Miller ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
