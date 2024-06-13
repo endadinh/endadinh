@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No garden is without its weeds. "</i></h5>**
+**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
