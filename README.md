@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
+**<h5><i>" We aim above the mark to hit the mark. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
