@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
+**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
