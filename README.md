@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
+**<h5><i>" No garden is without its weeds. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
