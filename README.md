@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Edward Young ___</b>*
 
 -----
 
