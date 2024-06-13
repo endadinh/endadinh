@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. "</i></h5>**
+**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
