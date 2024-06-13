@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle. "</i></h5>**
+**<h5><i>" Football is football and talent is talent. But the mindset of your team makes all the difference. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Robert Griffin III ___</b>*
 
 -----
 
