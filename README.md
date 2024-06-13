@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
+**<h5><i>" One of the advantages of being disorderly is that one is constantly making exciting discoveries. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ A. A. Milne ___</b>*
 
 -----
 
