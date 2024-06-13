@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Bad times have a scientific value. These are occasions a good learner would not miss. "</i></h5>**
+**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
