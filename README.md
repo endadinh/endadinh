@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ Frederick Douglass ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
