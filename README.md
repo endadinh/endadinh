@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change in all things is sweet. "</i></h5>**
+**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
