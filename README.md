@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
+**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
