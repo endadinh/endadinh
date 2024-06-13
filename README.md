@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
+**<h5><i>" I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
