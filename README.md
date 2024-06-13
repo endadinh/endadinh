@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
+**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
