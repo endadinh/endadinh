@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
+**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
