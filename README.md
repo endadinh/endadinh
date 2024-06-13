@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is contented is rich. "</i></h5>**
+**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
