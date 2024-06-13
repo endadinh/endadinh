@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
+**<h5><i>" Don't turn away from possible futures before you're certain you don't have anything to learn from them. "</i></h5>**
 
-*<b>___ Holly Near ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
