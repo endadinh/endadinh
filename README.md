@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
+**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
 
-*<b>___ Maria Shriver ___</b>*
+*<b>___ John Lasseter ___</b>*
 
 -----
 
