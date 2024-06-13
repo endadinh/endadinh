@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't turn away from possible futures before you're certain you don't have anything to learn from them. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
