@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
+**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
 
-*<b>___ Edward Young ___</b>*
+*<b>___ Sam Keen ___</b>*
 
 -----
 
