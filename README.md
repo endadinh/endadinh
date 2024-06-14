@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. "</i></h5>**
+**<h5><i>" Ideas are the beginning points of all fortunes. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
