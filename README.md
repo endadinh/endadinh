@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
+**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
