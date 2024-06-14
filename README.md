@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
+**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
 
-*<b>___ Sam Keen ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
