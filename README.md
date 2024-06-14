@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
+**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ George Foreman ___</b>*
 
 -----
 
