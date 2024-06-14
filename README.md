@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
+**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
