@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
+**<h5><i>" That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Lisa Alther ___</b>*
 
 -----
 
