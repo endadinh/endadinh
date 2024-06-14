@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
