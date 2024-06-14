@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
+**<h5><i>" Wise men make more opportunities than they find. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
