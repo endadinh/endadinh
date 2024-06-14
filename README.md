@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
+**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
