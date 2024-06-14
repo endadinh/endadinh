@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you are against weakens you. Everything you are for empowers you. "</i></h5>**
+**<h5><i>" Our greatest glory is not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
