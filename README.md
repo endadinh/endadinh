@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
+**<h5><i>" One's friends are that part of the human race with which one can be human. "</i></h5>**
 
-*<b>___ Etty Hillesum ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
