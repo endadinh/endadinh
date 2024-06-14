@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
+**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
