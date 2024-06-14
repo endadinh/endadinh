@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The gambling known as business looks with austere disfavor upon the business known as gambling. "</i></h5>**
+**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
