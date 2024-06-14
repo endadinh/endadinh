@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
+**<h5><i>" It's just a job. Grass grows, birds fly, waves pound the sand. I beat people up. "</i></h5>**
 
-*<b>___ George Foreman ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
