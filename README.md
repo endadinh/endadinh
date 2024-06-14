@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
+**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
