@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
