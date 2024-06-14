@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Error is discipline through which we advance. "</i></h5>**
+**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
