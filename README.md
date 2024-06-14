@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas are the beginning points of all fortunes. "</i></h5>**
+**<h5><i>" True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Akhenaten ___</b>*
 
 -----
 
