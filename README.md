@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man is not old as long as he is seeking something. "</i></h5>**
+**<h5><i>" Everything you are against weakens you. Everything you are for empowers you. "</i></h5>**
 
-*<b>___ Edmond Rostand ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
