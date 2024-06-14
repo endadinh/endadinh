@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
+**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
 
-*<b>___ Richard Garriott ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
