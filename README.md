@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
+**<h5><i>" Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
