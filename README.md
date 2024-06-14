@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I violated the Noah rule: Predicting rain doesn't count; building arks does. "</i></h5>**
+**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
