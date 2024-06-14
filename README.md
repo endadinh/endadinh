@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
+**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ J. Willard Marriott ___</b>*
 
 -----
 
