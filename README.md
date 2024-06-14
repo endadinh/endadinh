@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. "</i></h5>**
+**<h5><i>" Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
