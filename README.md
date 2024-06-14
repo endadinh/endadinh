@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
+**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Simon Mainwaring ___</b>*
 
 -----
 
