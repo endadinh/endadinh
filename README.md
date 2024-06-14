@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If there is such a thing as a good marriage, it is because it resembles friendship rather than love. "</i></h5>**
+**<h5><i>" There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
