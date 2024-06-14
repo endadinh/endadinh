@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. "</i></h5>**
+**<h5><i>" Avoid having your ego so close to your position that when your position falls, your ego goes with it. "</i></h5>**
 
-*<b>___ Anne Brontë ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
