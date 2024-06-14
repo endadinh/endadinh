@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
+**<h5><i>" Love is a friendship set to music. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
