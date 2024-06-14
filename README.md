@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
-*<b>___ Lisa Alther ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
