@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
+**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
