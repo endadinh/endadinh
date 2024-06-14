@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with our passions, as it is with fire and water, they are good servants but bad masters. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
