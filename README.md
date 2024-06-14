@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
+**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
