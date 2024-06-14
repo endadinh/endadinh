@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
+**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Richard Garriott ___</b>*
 
 -----
 
