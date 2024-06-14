@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be wise by the misfortunes of others than by your own. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
