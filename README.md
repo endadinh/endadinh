@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
+**<h5><i>" Every day I remind myself that my inner and outer life are based on the labors of other men, living and dead, and that I must exert myself in order to give in the same measure as I have received and am still receiving. "</i></h5>**
 
-*<b>___ Mignon McLaughlin ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
