@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
+**<h5><i>" Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
