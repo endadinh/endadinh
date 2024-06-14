@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a friendship set to music. "</i></h5>**
+**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
