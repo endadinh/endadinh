@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
+**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
 
-*<b>___ Viktor Frankl ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
