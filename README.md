@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
+**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
 
-*<b>___ Janis Joplin ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
