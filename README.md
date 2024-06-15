@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot be lonely if you like the person you're alone with. "</i></h5>**
+**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
