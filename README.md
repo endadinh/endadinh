@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ Marcia Fudge ___</b>*
 
 -----
 
