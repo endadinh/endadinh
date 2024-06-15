@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
+**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
 
-*<b>___ W. H. Auden ___</b>*
+*<b>___ Tony Blair ___</b>*
 
 -----
 
