@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. "</i></h5>**
+**<h5><i>" Train up a fig tree in the way it should go, and when you are old sit under the shade of it. "</i></h5>**
 
-*<b>___ Doug Larson ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
