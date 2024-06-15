@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
+**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
 
-*<b>___ Ralph Abernathy ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
