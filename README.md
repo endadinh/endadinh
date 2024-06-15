@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
+**<h5><i>" Do more than dream: work. "</i></h5>**
 
-*<b>___ H. G. Wells ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
