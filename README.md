@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
+**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Janis Joplin ___</b>*
 
 -----
 
