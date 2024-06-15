@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
+**<h5><i>" I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Mia Hamm ___</b>*
 
 -----
 
