@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
+**<h5><i>" When fate hands us a lemon, let's try to make lemonade. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
