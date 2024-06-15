@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. "</i></h5>**
+**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
 
-*<b>___ Nikola Tesla ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
