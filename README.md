@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
+**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
 
-*<b>___ Thomas Haynes Bayly ___</b>*
+*<b>___ Jim Morrison ___</b>*
 
 -----
 
