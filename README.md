@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
+**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ J. M. Barrie ___</b>*
 
 -----
 
