@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
+**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
