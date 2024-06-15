@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
+**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Henri Poincaré ___</b>*
 
 -----
 
