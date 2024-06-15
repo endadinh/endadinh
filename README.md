@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
+**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Viktor Frankl ___</b>*
 
 -----
 
