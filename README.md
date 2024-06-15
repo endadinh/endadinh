@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
+**<h5><i>" The higher we are placed, the more humbly we should walk. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
