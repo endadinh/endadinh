@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
+**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
 
-*<b>___ Benjamin Haydon ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
