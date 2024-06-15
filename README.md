@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Joyce Brothers ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
