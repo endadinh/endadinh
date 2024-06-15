@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
