@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. "</i></h5>**
+**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
 
-*<b>___ Marcia Fudge ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
