@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
