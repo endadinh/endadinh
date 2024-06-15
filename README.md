@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
