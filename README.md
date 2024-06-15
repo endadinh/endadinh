@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When fate hands us a lemon, let's try to make lemonade. "</i></h5>**
+**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
