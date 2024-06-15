@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. "</i></h5>**
+**<h5><i>" Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. "</i></h5>**
 
-*<b>___ David Rockefeller ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
