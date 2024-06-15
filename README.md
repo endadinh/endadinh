@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
+**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
