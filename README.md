@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do more than dream: work. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
