@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
+**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
 
-*<b>___ Henri Poincaré ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
