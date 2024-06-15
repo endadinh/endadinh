@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The years teach much which the days never know. "</i></h5>**
+**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Benjamin Haydon ___</b>*
 
 -----
 
