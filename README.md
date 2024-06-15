@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
