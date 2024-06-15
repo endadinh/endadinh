@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ Tony Blair ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
