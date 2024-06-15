@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever you go, go with all your heart. "</i></h5>**
+**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ H. G. Wells ___</b>*
 
 -----
 
