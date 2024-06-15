@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never understand how little we need in this world until we know the loss of it. "</i></h5>**
+**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
 
-*<b>___ J. M. Barrie ___</b>*
+*<b>___ W. H. Auden ___</b>*
 
 -----
 
