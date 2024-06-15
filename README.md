@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part. "</i></h5>**
+**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
