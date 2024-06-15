@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The higher we are placed, the more humbly we should walk. "</i></h5>**
+**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
