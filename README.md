@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" TV and the Internet are good because they keep stupid people from spending too much time out in public. "</i></h5>**
+**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
 
-*<b>___ Douglas Coupland ___</b>*
+*<b>___ Lin Yutang ___</b>*
 
 -----
 
