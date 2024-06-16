@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" Technology presumes there's just one right way to do things and there never is. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
