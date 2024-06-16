@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows, does not speak. He who speaks, does not know. "</i></h5>**
+**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
