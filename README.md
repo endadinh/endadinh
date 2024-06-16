@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
+**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
