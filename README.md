@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" What worries you masters you. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Haddon Robinson ___</b>*
 
 -----
 
