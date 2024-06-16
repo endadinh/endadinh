@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What worries you masters you. "</i></h5>**
+**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
 
-*<b>___ Haddon Robinson ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
