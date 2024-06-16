@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're never a loser until you quit trying. "</i></h5>**
+**<h5><i>" Life is about timing. "</i></h5>**
 
-*<b>___ Mike Ditka ___</b>*
+*<b>___ Carl Lewis ___</b>*
 
 -----
 
