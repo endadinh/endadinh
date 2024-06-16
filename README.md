@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To invent, you need a good imagination and a pile of junk. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
