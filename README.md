@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Resolutely train yourself to attain peace. "</i></h5>**
+**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
