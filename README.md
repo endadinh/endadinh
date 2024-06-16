@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
+**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
 
-*<b>___ Jimi Hendrix ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
