@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" The best argument against democracy is a five-minute conversation with the average voter. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
