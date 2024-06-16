@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best argument against democracy is a five-minute conversation with the average voter. "</i></h5>**
+**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
