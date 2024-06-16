@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
