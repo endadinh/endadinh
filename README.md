@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One secret of success in life is for a man to be ready for his opportunity when it comes. "</i></h5>**
+**<h5><i>" To invent, you need a good imagination and a pile of junk. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
