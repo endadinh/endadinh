@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
+**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Pericles ___</b>*
 
 -----
 
