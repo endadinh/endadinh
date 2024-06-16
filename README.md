@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Well done is better than well said. "</i></h5>**
+**<h5><i>" A friend to all is a friend to none. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
