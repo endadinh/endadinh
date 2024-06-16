@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beauty is not in the face; beauty is a light in the heart. "</i></h5>**
+**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
