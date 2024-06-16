@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
+**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Rita Mae Brown ___</b>*
 
 -----
 
