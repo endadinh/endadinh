@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
+**<h5><i>" Well done is better than well said. "</i></h5>**
 
-*<b>___ Pericles ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
