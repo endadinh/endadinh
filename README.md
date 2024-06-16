@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
+**<h5><i>" If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Rollo May ___</b>*
 
 -----
 
