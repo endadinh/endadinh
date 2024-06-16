@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is about timing. "</i></h5>**
+**<h5><i>" Science gives us knowledge, but only philosophy can give us wisdom. "</i></h5>**
 
-*<b>___ Carl Lewis ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
