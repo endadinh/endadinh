@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
