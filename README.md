@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
+**<h5><i>" It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Charles Kingsley ___</b>*
 
 -----
 
