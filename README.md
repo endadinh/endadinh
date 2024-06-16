@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend to all is a friend to none. "</i></h5>**
+**<h5><i>" In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Harold Geneen ___</b>*
 
 -----
 
