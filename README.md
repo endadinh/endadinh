@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" There is nothing permanent except change. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
