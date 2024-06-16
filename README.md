@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
+**<h5><i>" Life is a travelling to the edge of knowledge, then a leap taken. "</i></h5>**
 
-*<b>___ Jean Cocteau ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
