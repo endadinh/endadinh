@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. "</i></h5>**
+**<h5><i>" Don't turn away from possible futures before you're certain you don't have anything to learn from them. "</i></h5>**
 
-*<b>___ Rollo May ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
