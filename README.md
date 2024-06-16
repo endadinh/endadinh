@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Jimi Hendrix ___</b>*
 
 -----
 
