@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
