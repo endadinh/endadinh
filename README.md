@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can do no great things, only small things with great love. "</i></h5>**
+**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
