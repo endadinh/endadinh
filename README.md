@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
+**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
