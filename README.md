@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
