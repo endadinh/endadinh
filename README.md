@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
+**<h5><i>" Resolutely train yourself to attain peace. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
