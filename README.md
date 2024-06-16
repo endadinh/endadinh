@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
