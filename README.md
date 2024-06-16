@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
+**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jean Cocteau ___</b>*
 
 -----
 
