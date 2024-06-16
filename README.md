@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a travelling to the edge of knowledge, then a leap taken. "</i></h5>**
+**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
