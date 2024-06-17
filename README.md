@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work. "</i></h5>**
+**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
