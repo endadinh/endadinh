@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul. "</i></h5>**
+**<h5><i>" What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk. "</i></h5>**
 
-*<b>___ Judy Garland ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
