@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to you and 90% how you react to it. "</i></h5>**
+**<h5><i>" Always do your best. What you plant now, you will harvest later. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
