@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
+**<h5><i>" There are many ways of going forward, but only one way of standing still. "</i></h5>**
 
-*<b>___ Lin Yutang ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
