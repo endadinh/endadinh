@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Light tomorrow with today! "</i></h5>**
+**<h5><i>" Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Henry James ___</b>*
 
 -----
 
