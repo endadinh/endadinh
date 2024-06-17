@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
+**<h5><i>" Light tomorrow with today! "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
