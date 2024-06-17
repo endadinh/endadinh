@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater our knowledge increases the more our ignorance unfolds. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
