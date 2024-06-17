@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
+**<h5><i>" We don't know a millionth of one percent about anything. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
