@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. "</i></h5>**
+**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Lin Yutang ___</b>*
 
 -----
 
