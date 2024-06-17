@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Joseph Prince ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
