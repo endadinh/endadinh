@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
+**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
