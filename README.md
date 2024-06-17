@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
+**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
