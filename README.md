@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" Memory is the mother of all wisdom. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
