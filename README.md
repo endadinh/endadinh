@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
+**<h5><i>" Our work is the presentation of our capabilities. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Edward Gibbon ___</b>*
 
 -----
 
