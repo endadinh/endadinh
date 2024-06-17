@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. "</i></h5>**
+**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
 
-*<b>___ Will Durant ___</b>*
+*<b>___ Marilyn vos Savant ___</b>*
 
 -----
 
