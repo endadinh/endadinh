@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible. "</i></h5>**
+**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
