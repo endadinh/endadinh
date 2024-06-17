@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
