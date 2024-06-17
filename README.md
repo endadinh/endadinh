@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
+**<h5><i>" Life without love is like a tree without blossoms or fruit. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
