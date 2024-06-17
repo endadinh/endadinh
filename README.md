@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friends stab you in the front. "</i></h5>**
+**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
