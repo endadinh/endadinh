@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
