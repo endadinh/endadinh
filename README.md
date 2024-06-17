@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" Life is 10% what happens to you and 90% how you react to it. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
