@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Fawn M. Brodie ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
