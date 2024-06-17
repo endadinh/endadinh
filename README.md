@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are many ways of going forward, but only one way of standing still. "</i></h5>**
+**<h5><i>" Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
