@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Thomas Hardy ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
