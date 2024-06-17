@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
+**<h5><i>" The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
