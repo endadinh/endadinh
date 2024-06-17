@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it. "</i></h5>**
+**<h5><i>" Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
