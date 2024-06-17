@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
+**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
 
-*<b>___ Ben Hogan ___</b>*
+*<b>___ Stewart Brand ___</b>*
 
 -----
 
