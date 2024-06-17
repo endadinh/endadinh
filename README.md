@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
+**<h5><i>" This is the final test of a gentleman: his respect for those who can be of no possible value to him. "</i></h5>**
 
-*<b>___ Marilyn vos Savant ___</b>*
+*<b>___ William Lyon Phelps ___</b>*
 
 -----
 
