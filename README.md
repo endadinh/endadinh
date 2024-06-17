@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
