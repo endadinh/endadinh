@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Memory is the mother of all wisdom. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
