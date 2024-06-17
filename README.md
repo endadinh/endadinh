@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
+**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
 
-*<b>___ Stewart Brand ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
