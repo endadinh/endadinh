@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
+**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Ben Hogan ___</b>*
 
 -----
 
