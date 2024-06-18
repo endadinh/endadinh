@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
