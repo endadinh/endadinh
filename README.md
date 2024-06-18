@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't cry because it's over. Smile because it happened. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
