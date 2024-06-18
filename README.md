@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
+**<h5><i>" Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
