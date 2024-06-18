@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
