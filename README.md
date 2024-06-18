@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
+**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Dwight D. Eisenhower ___</b>*
 
 -----
 
