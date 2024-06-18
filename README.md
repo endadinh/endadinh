@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things that I have done than the things that I have not done. "</i></h5>**
+**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ H. G. Wells ___</b>*
 
 -----
 
