@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ John C. Maxwell ___</b>*
 
 -----
 
