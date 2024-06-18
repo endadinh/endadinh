@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
+**<h5><i>" Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that. "</i></h5>**
 
-*<b>___ Theodore H. White ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
