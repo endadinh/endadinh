@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Paavo Nurmi ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
