@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
+**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
