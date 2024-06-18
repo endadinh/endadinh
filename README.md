@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most complicated achievements of thought are possible without the assistance of consciousness. "</i></h5>**
+**<h5><i>" Never idealize others. They will never live up to your expectations. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
