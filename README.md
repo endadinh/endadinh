@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
