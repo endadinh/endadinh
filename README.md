@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
+**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
