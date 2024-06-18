@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" We must become the change we want to see. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
