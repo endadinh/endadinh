@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
+**<h5><i>" In wartime, truth is so precious that she should always be attended by a bodyguard of lies. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
