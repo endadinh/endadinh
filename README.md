@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
+**<h5><i>" Miracles come in moments. Be ready and willing. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
