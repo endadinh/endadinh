@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Miracles come in moments. Be ready and willing. "</i></h5>**
+**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Bobby Unser ___</b>*
 
 -----
 
