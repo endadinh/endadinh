@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him. "</i></h5>**
+**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
