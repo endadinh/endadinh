@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
+**<h5><i>" I'd rather regret the things that I have done than the things that I have not done. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
