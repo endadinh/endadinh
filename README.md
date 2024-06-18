@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
