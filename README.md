@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
+**<h5><i>" Every gift from a friend is a wish for your happiness. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
