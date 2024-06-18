@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one happiness in life, to love and be loved. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ George Sand ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
