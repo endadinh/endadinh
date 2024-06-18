@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom. "</i></h5>**
+**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
 
-*<b>___ William Hurt ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
