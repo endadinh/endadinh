@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
+**<h5><i>" Don't cry because it's over. Smile because it happened. "</i></h5>**
 
-*<b>___ William Wordsworth ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
