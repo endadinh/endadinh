@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
+**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
 
-*<b>___ Bobby Unser ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
