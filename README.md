@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a problem to be solved, but a reality to be experienced. "</i></h5>**
+**<h5><i>" A business that makes nothing but money is a poor business. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
