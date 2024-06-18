@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you fell down yesterday, stand up today. "</i></h5>**
+**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
 
-*<b>___ H. G. Wells ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
