@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You always have two choices: your commitment versus your fear. "</i></h5>**
+**<h5><i>" A thing well said will be wit in all languages. "</i></h5>**
 
-*<b>___ Sammy Davis Jr. ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
