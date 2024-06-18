@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them. "</i></h5>**
+**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
 
-*<b>___ John C. Maxwell ___</b>*
+*<b>___ Theodore H. White ___</b>*
 
 -----
 
