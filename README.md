@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
+**<h5><i>" Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
