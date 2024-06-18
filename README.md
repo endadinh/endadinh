@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" Price is what you pay. Value is what you get. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
