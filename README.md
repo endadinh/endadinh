@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
