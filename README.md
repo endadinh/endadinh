@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
