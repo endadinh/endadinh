@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cunning... is but the low mimic of wisdom. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
