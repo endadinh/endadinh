@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man cannot be said to succeed in this life who does not satisfy one friend. "</i></h5>**
+**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
