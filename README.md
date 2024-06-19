@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
+**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
