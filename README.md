@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
+**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
