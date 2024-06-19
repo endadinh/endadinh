@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
+**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
