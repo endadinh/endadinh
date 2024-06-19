@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
+**<h5><i>" It is not so important to know everything as to appreciate what we learn. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
