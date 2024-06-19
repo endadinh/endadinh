@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
