@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
