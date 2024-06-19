@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
+**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Adams ___</b>*
 
 -----
 
