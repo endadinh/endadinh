@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
