@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
+**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
