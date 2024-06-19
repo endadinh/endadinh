@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
+**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
