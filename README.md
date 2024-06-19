@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Act as if what you do makes a difference. It does. "</i></h5>**
+**<h5><i>" Make it your habit not to be critical about small things. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Edward Everett Hale ___</b>*
 
 -----
 
