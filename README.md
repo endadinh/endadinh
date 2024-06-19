@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
+**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Harriet Woods ___</b>*
 
 -----
 
