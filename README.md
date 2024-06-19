@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
+**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
