@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
+**<h5><i>" Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Hannah Arendt ___</b>*
 
 -----
 
