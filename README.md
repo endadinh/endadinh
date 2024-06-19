@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
+**<h5><i>" And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Rowan Williams ___</b>*
 
 -----
 
