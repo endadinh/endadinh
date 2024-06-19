@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ John Adams ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
