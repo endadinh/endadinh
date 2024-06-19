@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
+**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
