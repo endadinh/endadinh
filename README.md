@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
+**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
