@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. "</i></h5>**
+**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
