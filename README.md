@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth of the matter is that you always know the right thing to do. The hard part is doing it. "</i></h5>**
+**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
 
-*<b>___ Norman Schwarzkopf ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
