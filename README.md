@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
+**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
 
-*<b>___ John C. Maxwell ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
