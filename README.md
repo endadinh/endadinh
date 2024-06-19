@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm. "</i></h5>**
+**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
 
-*<b>___ Rowan Williams ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
