@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
+**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
