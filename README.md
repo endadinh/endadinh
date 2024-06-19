@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
+**<h5><i>" The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
