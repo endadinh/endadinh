@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
+**<h5><i>" Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Theodore Isaac Rubin ___</b>*
 
 -----
 
