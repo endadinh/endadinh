@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
