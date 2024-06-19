@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
