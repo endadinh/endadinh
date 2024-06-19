@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
+**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
