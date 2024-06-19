@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. "</i></h5>**
+**<h5><i>" No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
