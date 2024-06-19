@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
+**<h5><i>" He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. "</i></h5>**
 
-*<b>___ Jawaharlal Nehru ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
