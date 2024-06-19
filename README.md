@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
+**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
 
-*<b>___ James F. Byrnes ___</b>*
+*<b>___ Bob Knight ___</b>*
 
 -----
 
