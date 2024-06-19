@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
+**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jawaharlal Nehru ___</b>*
 
 -----
 
