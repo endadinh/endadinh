@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
