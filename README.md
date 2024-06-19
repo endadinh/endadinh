@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Harriet Woods ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
