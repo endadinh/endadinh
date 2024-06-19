@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" Act as if what you do makes a difference. It does. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
