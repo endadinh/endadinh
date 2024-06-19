@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change in all things is sweet. "</i></h5>**
+**<h5><i>" Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
