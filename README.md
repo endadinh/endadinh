@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
