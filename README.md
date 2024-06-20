@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
+**<h5><i>" In the business world, the rearview mirror is always clearer than the windshield. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
