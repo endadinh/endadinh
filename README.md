@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
+**<h5><i>" It is a miracle that curiosity survives formal education. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
