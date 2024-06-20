@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
+**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
