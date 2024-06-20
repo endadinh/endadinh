@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There never was a good knife made of bad steel. "</i></h5>**
+**<h5><i>" If you wish to be a writer, write. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
