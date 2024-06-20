@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
+**<h5><i>" Build a better mousetrap and the world will beat a path to your door. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
