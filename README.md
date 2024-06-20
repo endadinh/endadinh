@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The self is not something ready-made, but something in continuous formation through choice of action. "</i></h5>**
+**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Laurie Anderson ___</b>*
 
 -----
 
