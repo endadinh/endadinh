@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
+**<h5><i>" No alibi will save you from accepting the responsibility. "</i></h5>**
 
-*<b>___ Michael Jordan ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
