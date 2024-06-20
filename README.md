@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all inclined to judge ourselves by our ideals; others, by their acts. "</i></h5>**
+**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
 
-*<b>___ Harold Nicolson ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
