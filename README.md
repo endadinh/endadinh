@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
+**<h5><i>" It is only with the heart that one can see rightly, what is essential is invisible to the eye. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
