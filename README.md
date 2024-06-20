@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
+**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
