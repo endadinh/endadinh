@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
+**<h5><i>" The self is not something ready-made, but something in continuous formation through choice of action. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
