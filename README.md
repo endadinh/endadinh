@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun. "</i></h5>**
+**<h5><i>" The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
