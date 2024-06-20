@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief. "</i></h5>**
+**<h5><i>" I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
