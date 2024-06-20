@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. "</i></h5>**
+**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
