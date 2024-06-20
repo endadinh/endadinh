@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
+**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
 
-*<b>___ Marianne Williamson ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
