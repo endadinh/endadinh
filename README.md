@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before you put on a frown, make absolutely sure there are no smiles available. "</i></h5>**
+**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
 
-*<b>___ James M. Beggs ___</b>*
+*<b>___ Kurt Vonnegut ___</b>*
 
 -----
 
