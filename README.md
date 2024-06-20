@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
+**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
