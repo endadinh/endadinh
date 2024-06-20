@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. "</i></h5>**
+**<h5><i>" Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats. "</i></h5>**
 
-*<b>___ Kurt Vonnegut ___</b>*
+*<b>___ Howard H. Aiken ___</b>*
 
 -----
 
