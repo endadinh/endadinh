@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
+**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Michael Jordan ___</b>*
 
 -----
 
