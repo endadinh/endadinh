@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. "</i></h5>**
+**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
