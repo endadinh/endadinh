@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. "</i></h5>**
+**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
