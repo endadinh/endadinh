@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A creative man is motivated by the desire to achieve, not by the desire to beat others. "</i></h5>**
+**<h5><i>" Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Ben Fountain ___</b>*
 
 -----
 
