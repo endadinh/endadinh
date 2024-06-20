@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the business world, the rearview mirror is always clearer than the windshield. "</i></h5>**
+**<h5><i>" A man cannot be said to succeed in this life who does not satisfy one friend. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
