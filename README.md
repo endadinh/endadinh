@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
+**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
