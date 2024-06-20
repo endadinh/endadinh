@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
+**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
