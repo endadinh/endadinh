@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
+**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
 
-*<b>___ Pierre Teilhard de Chardin ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
