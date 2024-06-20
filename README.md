@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
+**<h5><i>" To fly as fast as thought, you must begin by knowing that you have already arrived. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
