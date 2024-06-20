@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a progress, and not a station. "</i></h5>**
+**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
