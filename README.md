@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man cannot be said to succeed in this life who does not satisfy one friend. "</i></h5>**
+**<h5><i>" Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
