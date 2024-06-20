@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
