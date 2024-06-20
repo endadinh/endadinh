@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
+**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
