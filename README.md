@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
