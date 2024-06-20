@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
+**<h5><i>" A creative man is motivated by the desire to achieve, not by the desire to beat others. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
