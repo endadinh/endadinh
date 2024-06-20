@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men speak because they have something to say; Fools because they have to say something. "</i></h5>**
+**<h5><i>" I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Harbhajan Singh ___</b>*
 
 -----
 
