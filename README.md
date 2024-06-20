@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many of life's failures are people who did not realize how close they were to success when they gave up. "</i></h5>**
+**<h5><i>" Well done is better than well said. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
