@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
+**<h5><i>" I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
