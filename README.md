@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
+**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
