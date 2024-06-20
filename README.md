@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
