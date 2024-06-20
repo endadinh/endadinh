@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Howard H. Aiken ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
