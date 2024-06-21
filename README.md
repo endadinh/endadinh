@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ James Freeman Clarke ___</b>*
 
 -----
 
