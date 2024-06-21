@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
+**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
