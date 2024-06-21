@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
