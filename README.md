@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
