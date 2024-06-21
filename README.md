@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life. "</i></h5>**
+**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
 
-*<b>___ James Freeman Clarke ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
