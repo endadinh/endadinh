@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!' "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Bill Bradley ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
