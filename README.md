@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do in life, surround yourself with smart people who'll argue with you. "</i></h5>**
+**<h5><i>" All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Anne Brontë ___</b>*
 
 -----
 
