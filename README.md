@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
