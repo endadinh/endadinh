@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The wisdom of the wise, and the experience of ages, may be preserved by quotation. "</i></h5>**
+**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
 
-*<b>___ Isaac D'Israeli ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
