@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
+**<h5><i>" Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over. "</i></h5>**
 
-*<b>___ Indira Gandhi ___</b>*
+*<b>___ Octavia E. Butler ___</b>*
 
 -----
 
