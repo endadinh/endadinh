@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Short words are best and the old words when short are best of all. "</i></h5>**
+**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
