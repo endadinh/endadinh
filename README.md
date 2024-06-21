@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Positive thinking will let you do everything better than negative thinking will. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
