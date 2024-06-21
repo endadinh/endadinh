@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. "</i></h5>**
+**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
