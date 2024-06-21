@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
+**<h5><i>" Friendship is the marriage of the soul, and this marriage is liable to divorce. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
