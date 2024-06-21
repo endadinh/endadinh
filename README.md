@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. "</i></h5>**
+**<h5><i>" Science gives us knowledge, but only philosophy can give us wisdom. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
