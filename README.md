@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
+**<h5><i>" Don't be afraid to go out on a limb. That's where the fruit is. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
