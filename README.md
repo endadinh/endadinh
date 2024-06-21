@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Walter Winchell ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
