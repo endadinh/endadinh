@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
+**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
