@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
