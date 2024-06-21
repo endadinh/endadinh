@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
+**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Walter Winchell ___</b>*
 
 -----
 
