@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Walter Winchell ___</b>*
 
 -----
 
