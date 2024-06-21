@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
+**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
