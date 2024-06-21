@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to prove that you're a good sport is to lose. "</i></h5>**
+**<h5><i>" To get the full value of joy you must have someone to divide it with. "</i></h5>**
 
-*<b>___ Ernie Banks ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
