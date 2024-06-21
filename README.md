@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
+**<h5><i>" To be great is to be misunderstood. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
