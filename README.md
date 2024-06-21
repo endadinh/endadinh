@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. "</i></h5>**
+**<h5><i>" It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
