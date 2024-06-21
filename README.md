@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Alice Walker ___</b>*
 
 -----
 
