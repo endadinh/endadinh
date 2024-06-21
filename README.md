@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
+**<h5><i>" It is not in the stars to hold our destiny but in ourselves. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
