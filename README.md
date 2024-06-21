@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
+**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Indira Gandhi ___</b>*
 
 -----
 
