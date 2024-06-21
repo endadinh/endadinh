@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" Short words are best and the old words when short are best of all. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
