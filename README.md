@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
