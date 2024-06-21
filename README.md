@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just because something doesn't do what you planned it to do doesn't mean it's useless. "</i></h5>**
+**<h5><i>" Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
