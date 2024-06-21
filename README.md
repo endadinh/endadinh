@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
+**<h5><i>" Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. "</i></h5>**
 
-*<b>___ Thomas à Kempis ___</b>*
+*<b>___ Samuel Beckett ___</b>*
 
 -----
 
