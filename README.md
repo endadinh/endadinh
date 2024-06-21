@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
+**<h5><i>" Should someone do good, let them do it again and again. They should develop this habit, for the accumulation of goodness brings joy. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
