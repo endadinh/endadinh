@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Samuel Beckett ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
