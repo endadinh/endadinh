@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To get the full value of joy you must have someone to divide it with. "</i></h5>**
+**<h5><i>" As you think, so shall you become. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
