@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
+**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
