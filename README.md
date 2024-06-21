@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you think, so shall you become. "</i></h5>**
+**<h5><i>" Just because something doesn't do what you planned it to do doesn't mean it's useless. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
