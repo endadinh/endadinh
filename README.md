@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The real problem is not whether machines think but whether men do. "</i></h5>**
+**<h5><i>" You can't win unless you learn how to lose. "</i></h5>**
 
-*<b>___ B. F. Skinner ___</b>*
+*<b>___ Kareem Abdul-Jabbar ___</b>*
 
 -----
 
