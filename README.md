@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
+**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
