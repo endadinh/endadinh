@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
+**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
 
-*<b>___ Arthur Rubinstein ___</b>*
+*<b>___ Sydney J. Harris ___</b>*
 
 -----
 
