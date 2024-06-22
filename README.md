@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
+**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
 
-*<b>___ William Wordsworth ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
