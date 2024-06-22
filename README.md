@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't win unless you learn how to lose. "</i></h5>**
+**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
 
-*<b>___ Kareem Abdul-Jabbar ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
