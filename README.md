@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
