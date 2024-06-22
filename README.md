@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart. "</i></h5>**
+**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
