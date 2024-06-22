@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
+**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ William Wordsworth ___</b>*
 
 -----
 
