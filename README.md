@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
+**<h5><i>" Commitment is an act, not a word. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
