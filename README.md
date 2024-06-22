@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All great achievements require time. "</i></h5>**
+**<h5><i>" Do you want to know who you are? Don't ask. Act! Action will delineate and define you. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
