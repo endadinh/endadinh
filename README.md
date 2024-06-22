@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
+**<h5><i>" You cannot escape the responsibility of tomorrow by evading it today. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
