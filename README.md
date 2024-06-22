@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. "</i></h5>**
+**<h5><i>" Things do not change; we change. "</i></h5>**
 
-*<b>___ Steven Van Zandt ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
