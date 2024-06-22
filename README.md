@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
+**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
