@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
+**<h5><i>" All great achievements require time. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
