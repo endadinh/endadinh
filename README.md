@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things do not change; we change. "</i></h5>**
+**<h5><i>" I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
