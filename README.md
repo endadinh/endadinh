@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
