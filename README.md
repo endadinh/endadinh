@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
