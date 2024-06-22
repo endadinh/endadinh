@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you want to know who you are? Don't ask. Act! Action will delineate and define you. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
