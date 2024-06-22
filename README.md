@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever we expect with confidence becomes our own self-fulfilling prophecy. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
