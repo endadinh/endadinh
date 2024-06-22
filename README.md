@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
