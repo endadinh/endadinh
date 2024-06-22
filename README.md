@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot escape the responsibility of tomorrow by evading it today. "</i></h5>**
+**<h5><i>" Whatever we expect with confidence becomes our own self-fulfilling prophecy. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
