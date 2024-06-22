@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like credit, is highest when it is not used. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
