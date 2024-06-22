@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
+**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
