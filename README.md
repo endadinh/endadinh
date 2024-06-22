@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
