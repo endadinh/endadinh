@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You yourself must strive. The Buddhas only point the way. "</i></h5>**
+**<h5><i>" Most folks are as happy as they make up their minds to be. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
