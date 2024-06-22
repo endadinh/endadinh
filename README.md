@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. "</i></h5>**
+**<h5><i>" Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
