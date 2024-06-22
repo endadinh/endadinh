@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
+**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
