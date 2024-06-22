@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest part of our happiness depends on our dispositions, not our circumstances. "</i></h5>**
+**<h5><i>" A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. "</i></h5>**
 
-*<b>___ Martha Washington ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
