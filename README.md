@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. "</i></h5>**
+**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
