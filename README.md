@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't let praise or criticism get to you. It's a weakness to get caught up in either one. "</i></h5>**
+**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
