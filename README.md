@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
+**<h5><i>" The calmed say that what is well-spoken is best; second, that one should say what is right, not unrighteous; third, what's pleasing, not displeasing; fourth, what is true, not false. "</i></h5>**
 
-*<b>___ Frank Abagnale ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
