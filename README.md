@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm. "</i></h5>**
+**<h5><i>" If you spend too much time thinking about a thing, you'll never get it done. "</i></h5>**
 
-*<b>___ Rowan Williams ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
