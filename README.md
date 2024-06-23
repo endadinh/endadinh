@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
