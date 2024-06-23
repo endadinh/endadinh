@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
+**<h5><i>" Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
