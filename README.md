@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not say every mistake is a foolish one. "</i></h5>**
+**<h5><i>" Error is discipline through which we advance. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
