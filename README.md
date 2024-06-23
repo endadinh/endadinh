@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
+**<h5><i>" Love demands infinitely less than friendship. "</i></h5>**
 
-*<b>___ Thomas Hardy ___</b>*
+*<b>___ George Jean Nathan ___</b>*
 
 -----
 
