@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
