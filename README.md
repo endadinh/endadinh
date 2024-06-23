@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
+**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Janis Joplin ___</b>*
 
 -----
 
