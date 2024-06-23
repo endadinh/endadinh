@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
+**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
 
-*<b>___ Janis Joplin ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
