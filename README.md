@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
+**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
 
-*<b>___ Charles Péguy ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
