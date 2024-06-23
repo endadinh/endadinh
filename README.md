@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The road of excess leads to the palace of wisdom. "</i></h5>**
+**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
