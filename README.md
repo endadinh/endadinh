@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To want to be what one can be is purpose in life. "</i></h5>**
+**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
 
-*<b>___ Cynthia Ozick ___</b>*
+*<b>___ Annie Dillard ___</b>*
 
 -----
 
