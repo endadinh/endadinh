@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
