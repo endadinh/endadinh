@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ Joseph Joubert ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
