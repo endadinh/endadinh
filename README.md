@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love demands infinitely less than friendship. "</i></h5>**
+**<h5><i>" Set your goals high, and don't stop till you get there. "</i></h5>**
 
-*<b>___ George Jean Nathan ___</b>*
+*<b>___ Bo Jackson ___</b>*
 
 -----
 
