@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
+**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
