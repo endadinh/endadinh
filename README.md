@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are things that show a person what they are. "</i></h5>**
+**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Phyllis Grissim-Theroux ___</b>*
 
 -----
 
