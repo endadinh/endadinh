@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First-rate people hire first-rate people; second-rate people hire third-rate people. "</i></h5>**
+**<h5><i>" If you are out to describe the truth, leave elegance to the tailor. "</i></h5>**
 
-*<b>___ Leo Rosten ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
