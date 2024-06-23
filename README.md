@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
+**<h5><i>" The road of excess leads to the palace of wisdom. "</i></h5>**
 
-*<b>___ Dag Hammarskjöld ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
