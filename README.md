@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Set your goals high, and don't stop till you get there. "</i></h5>**
+**<h5><i>" All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out. "</i></h5>**
 
-*<b>___ Bo Jackson ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
