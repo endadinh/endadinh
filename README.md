@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is like sound health; the value of it is seldom known until it is lost. "</i></h5>**
+**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
 
-*<b>___ Charles Caleb Colton ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
