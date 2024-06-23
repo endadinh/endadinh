@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" Difficulties are things that show a person what they are. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
