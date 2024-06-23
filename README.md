@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
+**<h5><i>" We must not say every mistake is a foolish one. "</i></h5>**
 
-*<b>___ Nargis Fakhri ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
