@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It always seems impossible until it's done. "</i></h5>**
+**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
