@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" From wonder into wonder existence opens. "</i></h5>**
+**<h5><i>" Nothing strengthens authority so much as silence. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
