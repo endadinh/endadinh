@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each misfortune you encounter will carry in it the seed of tomorrows good luck. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
