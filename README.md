@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
+**<h5><i>" Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Charles Eastman ___</b>*
 
 -----
 
