@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
+**<h5><i>" There are no failures. Just experiences and your reactions to them. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Tom Krause ___</b>*
 
 -----
 
