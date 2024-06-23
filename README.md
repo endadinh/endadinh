@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
+**<h5><i>" The philosophy of the school room in one generation will be the philosophy of government in the next. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
