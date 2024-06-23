@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
+**<h5><i>" Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. "</i></h5>**
 
-*<b>___ Annie Dillard ___</b>*
+*<b>___ Amy Bloom ___</b>*
 
 -----
 
