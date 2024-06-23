@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ideals which have lighted my way, and time after time have given me new courage to face life cheerfully, have been Kindness, Beauty, and Truth. The trite subjects of human efforts, possessions, outward success, luxury have always seemed to me contemptible. "</i></h5>**
+**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
