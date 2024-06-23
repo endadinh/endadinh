@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
+**<h5><i>" First-rate people hire first-rate people; second-rate people hire third-rate people. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Leo Rosten ___</b>*
 
 -----
 
