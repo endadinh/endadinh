@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
+**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Christie Brinkley ___</b>*
 
 -----
 
