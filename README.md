@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ Farhan Akhtar ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
