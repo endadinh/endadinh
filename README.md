@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
+**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
 
-*<b>___ Man Ray ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
