@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Farhan Akhtar ___</b>*
 
 -----
 
