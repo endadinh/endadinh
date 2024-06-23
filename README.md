@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As a cure for worrying, work is better than whisky. "</i></h5>**
+**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
