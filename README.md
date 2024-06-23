@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
+**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
 
-*<b>___ Phyllis Grissim-Theroux ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
