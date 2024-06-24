@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
+**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
