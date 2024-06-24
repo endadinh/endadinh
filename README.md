@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. "</i></h5>**
+**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
 
-*<b>___ G. K. Chesterton ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
