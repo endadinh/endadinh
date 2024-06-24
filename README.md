@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
