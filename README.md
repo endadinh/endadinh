@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
