@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cleverness is not wisdom. "</i></h5>**
+**<h5><i>" He who angers you conquers you. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
