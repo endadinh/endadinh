@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
-*<b>___ David Bader ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
