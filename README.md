@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
+**<h5><i>" When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Morihei Ueshiba ___</b>*
 
 -----
 
