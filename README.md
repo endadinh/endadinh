@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ P. G. Wodehouse ___</b>*
 
 -----
 
