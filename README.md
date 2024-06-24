@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
+**<h5><i>" Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
