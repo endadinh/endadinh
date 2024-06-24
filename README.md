@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
