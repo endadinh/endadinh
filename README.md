@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
+**<h5><i>" Friendship is essentially a partnership. "</i></h5>**
 
-*<b>___ Don Shula ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
