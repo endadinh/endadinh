@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
+**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Lewis Carroll ___</b>*
 
 -----
 
