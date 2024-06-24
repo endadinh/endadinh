@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
+**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
 
-*<b>___ Lewis Carroll ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
