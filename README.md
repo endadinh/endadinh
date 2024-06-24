@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ P. G. Wodehouse ___</b>*
 
 -----
 
