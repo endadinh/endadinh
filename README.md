@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I were two-faced, would I be wearing this one? "</i></h5>**
+**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
