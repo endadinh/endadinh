@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
+**<h5><i>" You give before you get. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
