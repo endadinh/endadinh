@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You teach best what you most need to learn. "</i></h5>**
+**<h5><i>" Don't talk about what you have done or what you are going to do. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
