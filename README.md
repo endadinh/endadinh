@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is divided into the horrible and the miserable. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
