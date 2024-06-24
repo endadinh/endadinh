@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
