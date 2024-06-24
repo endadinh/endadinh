@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. "</i></h5>**
+**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Alfred North Whitehead ___</b>*
 
 -----
 
