@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel. "</i></h5>**
+**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Josh Billings ___</b>*
 
 -----
 
