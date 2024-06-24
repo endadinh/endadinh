@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
+**<h5><i>" The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
