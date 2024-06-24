@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" Let your hook always be cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
