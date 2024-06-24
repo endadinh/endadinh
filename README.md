@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way. "</i></h5>**
+**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
 
-*<b>___ Morihei Ueshiba ___</b>*
+*<b>___ Don Shula ___</b>*
 
 -----
 
