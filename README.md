@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
+**<h5><i>" If I were two-faced, would I be wearing this one? "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
