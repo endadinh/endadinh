@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
+**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Lewis Carroll ___</b>*
 
 -----
 
