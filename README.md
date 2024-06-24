@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
+**<h5><i>" Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ Henry James ___</b>*
 
 -----
 
