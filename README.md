@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
+**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
