@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ David Bader ___</b>*
 
 -----
 
