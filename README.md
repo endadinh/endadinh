@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who angers you conquers you. "</i></h5>**
+**<h5><i>" Light tomorrow with today! "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
