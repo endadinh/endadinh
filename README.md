@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Independence is happiness. "</i></h5>**
+**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
 
-*<b>___ Susan B. Anthony ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
