@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Train up a fig tree in the way it should go, and when you are old sit under the shade of it. "</i></h5>**
+**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
 
 *<b>___ Charles Dickens ___</b>*
 
