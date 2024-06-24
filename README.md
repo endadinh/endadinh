@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
+**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
 
-*<b>___ Josh Billings ___</b>*
+*<b>___ Henry Moore ___</b>*
 
 -----
 
