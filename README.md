@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
+**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Joe Paterno ___</b>*
 
 -----
 
