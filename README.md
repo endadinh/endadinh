@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
 
-*<b>___ Jonathan Kozol ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
