@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
+**<h5><i>" Begin, be bold, and venture to be wise. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
