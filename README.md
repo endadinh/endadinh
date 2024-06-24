@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
+**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
