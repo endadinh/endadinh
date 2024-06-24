@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By failing to prepare, you are preparing to fail. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
