@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ Samuel Beckett ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
