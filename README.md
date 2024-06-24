@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all inclined to judge ourselves by our ideals; others, by their acts. "</i></h5>**
+**<h5><i>" You teach best what you most need to learn. "</i></h5>**
 
-*<b>___ Harold Nicolson ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
