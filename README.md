@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One is not called noble who harms living beings. By not harming living beings one is called noble. "</i></h5>**
+**<h5><i>" If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Margaret Thatcher ___</b>*
 
 -----
 
