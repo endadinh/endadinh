@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without courage, wisdom bears no fruit. "</i></h5>**
+**<h5><i>" Every gift from a friend is a wish for your happiness. "</i></h5>**
 
-*<b>___ Baltasar Gracián ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
