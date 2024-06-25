@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
+**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
