@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
+**<h5><i>" In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Harold Geneen ___</b>*
 
 -----
 
