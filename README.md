@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
