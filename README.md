@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
