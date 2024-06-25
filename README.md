@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
+**<h5><i>" Our intention creates our reality. "</i></h5>**
 
-*<b>___ Doug Larson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
