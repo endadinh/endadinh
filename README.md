@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
