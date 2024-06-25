@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatest glory is not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
