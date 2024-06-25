@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
+**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
