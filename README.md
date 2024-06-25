@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
