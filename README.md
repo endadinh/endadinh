@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our intention creates our reality. "</i></h5>**
+**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ John Keats ___</b>*
 
 -----
 
