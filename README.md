@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
+**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Marilyn vos Savant ___</b>*
 
 -----
 
