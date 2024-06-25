@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
+**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
