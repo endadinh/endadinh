@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An organization, no matter how well designed, is only as good as the people who live and work in it. "</i></h5>**
+**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
 
-*<b>___ Dee Hock ___</b>*
+*<b>___ Simon Mainwaring ___</b>*
 
 -----
 
