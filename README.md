@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All know the way; few actually walk it. "</i></h5>**
+**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
 
-*<b>___ Bodhidharma ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
