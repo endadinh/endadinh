@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
+**<h5><i>" All know the way; few actually walk it. "</i></h5>**
 
-*<b>___ Saul Alinsky ___</b>*
+*<b>___ Bodhidharma ___</b>*
 
 -----
 
