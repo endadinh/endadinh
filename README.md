@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. "</i></h5>**
+**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
 
-*<b>___ Harold Geneen ___</b>*
+*<b>___ Saul Alinsky ___</b>*
 
 -----
 
