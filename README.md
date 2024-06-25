@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History will be kind to me for I intend to write it. "</i></h5>**
+**<h5><i>" Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
