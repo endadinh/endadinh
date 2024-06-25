@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
+**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
 
-*<b>___ Marilyn vos Savant ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
