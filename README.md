@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is teaching us to be human again. "</i></h5>**
+**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
 
-*<b>___ Simon Mainwaring ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
