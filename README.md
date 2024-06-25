@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
+**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
