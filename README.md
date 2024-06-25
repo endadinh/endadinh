@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most people never run far enough on their first wind to find out they've got a second. "</i></h5>**
+**<h5><i>" But at any rate, the point is that God is what nobody admits to being, and everybody really is. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
