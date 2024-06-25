@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What lies behind us and what lies before us are tiny matters compared to what lies within us. "</i></h5>**
+**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
