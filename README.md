@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
