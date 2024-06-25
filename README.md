@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. "</i></h5>**
+**<h5><i>" Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
