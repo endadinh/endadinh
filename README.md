@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way you see people is the way you treat them, and the way you treat them is what they become. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
