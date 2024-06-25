@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" Most people never run far enough on their first wind to find out they've got a second. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
