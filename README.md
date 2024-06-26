@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" Fortune befriends the bold. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
