@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
+**<h5><i>" The real problem is not whether machines think but whether men do. "</i></h5>**
 
-*<b>___ Arthur Rubinstein ___</b>*
+*<b>___ B. F. Skinner ___</b>*
 
 -----
 
