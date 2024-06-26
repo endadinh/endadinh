@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of knowledge is the discovery of something we do not understand. "</i></h5>**
+**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
 
-*<b>___ Frank Herbert ___</b>*
+*<b>___ Jonathan Kozol ___</b>*
 
 -----
 
