@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
+**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
