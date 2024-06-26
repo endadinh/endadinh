@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. "</i></h5>**
+**<h5><i>" The truth of the matter is that you always know the right thing to do. The hard part is doing it. "</i></h5>**
 
-*<b>___ Carlos Castaneda ___</b>*
+*<b>___ Norman Schwarzkopf ___</b>*
 
 -----
 
