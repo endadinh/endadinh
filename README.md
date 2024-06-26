@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many of life's failures are people who did not realize how close they were to success when they gave up. "</i></h5>**
+**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Maria Shriver ___</b>*
 
 -----
 
