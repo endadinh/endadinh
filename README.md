@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
+**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Arthur Rubinstein ___</b>*
 
 -----
 
