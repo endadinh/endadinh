@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
