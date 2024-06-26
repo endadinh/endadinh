@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" Get busy living or get busy dying. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Stephen King ___</b>*
 
 -----
 
