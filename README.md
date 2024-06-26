@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
+**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Cowper ___</b>*
 
 -----
 
