@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never accept ultimatums, conventional wisdom, or absolutes. "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
