@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
