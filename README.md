@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
+**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
 
-*<b>___ Simone Weil ___</b>*
+*<b>___ Saul Alinsky ___</b>*
 
 -----
 
