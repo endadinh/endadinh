@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think and that is all that I am. "</i></h5>**
+**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
