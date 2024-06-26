@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. "</i></h5>**
+**<h5><i>" Some do not understand that we must die, But those who do realize this settle their quarrels. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
