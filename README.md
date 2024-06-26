@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
+**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
 
-*<b>___ Jim Morrison ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
