@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
+**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Thomas à Kempis ___</b>*
 
 -----
 
