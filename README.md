@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some do not understand that we must die, But those who do realize this settle their quarrels. "</i></h5>**
+**<h5><i>" Never find fault with the absent. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
