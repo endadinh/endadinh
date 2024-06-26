@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
+**<h5><i>" The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
