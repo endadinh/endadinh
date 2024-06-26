@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Get busy living or get busy dying. "</i></h5>**
+**<h5><i>" Any sufficiently advanced technology is equivalent to magic. "</i></h5>**
 
-*<b>___ Stephen King ___</b>*
+*<b>___ Arthur C. Clarke ___</b>*
 
 -----
 
