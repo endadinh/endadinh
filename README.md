@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Eric Hoffer ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
