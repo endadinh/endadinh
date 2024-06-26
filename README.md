@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom alone is the science of other sciences. "</i></h5>**
+**<h5><i>" I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
