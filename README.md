@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
+**<h5><i>" There is only one happiness in life, to love and be loved. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ George Sand ___</b>*
 
 -----
 
