@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The two most powerful warriors are patience and time. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
