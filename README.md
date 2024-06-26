@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
+**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
