@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
+**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
