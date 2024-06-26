@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" I think and that is all that I am. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
