@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Arriving at one point is the starting point to another. "</i></h5>**
+**<h5><i>" Unless one is able to live fully in the present, the future is a hoax. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
