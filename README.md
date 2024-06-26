@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people. "</i></h5>**
+**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
