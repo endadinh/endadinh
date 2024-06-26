@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" One should not hurt others if one loves oneself. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
