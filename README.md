@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never find fault with the absent. "</i></h5>**
+**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
