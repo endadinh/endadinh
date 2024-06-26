@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
