@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
+**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
