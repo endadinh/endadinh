@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Commitment is an act, not a word. "</i></h5>**
+**<h5><i>" In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Eric Hoffer ___</b>*
 
 -----
 
