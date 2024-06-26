@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
+**<h5><i>" Commitment is an act, not a word. "</i></h5>**
 
-*<b>___ Léon Blum ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
