@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
+**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
