@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
+**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
 
-*<b>___ Alfred Tennyson ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
