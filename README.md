@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
+**<h5><i>" The beginning of knowledge is the discovery of something we do not understand. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Frank Herbert ___</b>*
 
 -----
 
