@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater our knowledge increases the more our ignorance unfolds. "</i></h5>**
+**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
