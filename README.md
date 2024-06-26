@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. "</i></h5>**
+**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
