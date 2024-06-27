@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
