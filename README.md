@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
+**<h5><i>" It is good even for old men to learn wisdom. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Aeschylus ___</b>*
 
 -----
 
