@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
+**<h5><i>" A good plan violently executed now is better than a perfect plan executed next week. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
