@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
+**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
 
-*<b>___ James F. Byrnes ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
