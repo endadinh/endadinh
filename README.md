@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to have a friend is to be one. "</i></h5>**
+**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
