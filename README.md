@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust yourself. You know more than you think you do. "</i></h5>**
+**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
 
-*<b>___ Benjamin Spock ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
