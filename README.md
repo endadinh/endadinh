@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
+**<h5><i>" In wartime, truth is so precious that she should always be attended by a bodyguard of lies. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
