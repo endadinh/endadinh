@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
+**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
