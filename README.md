@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live. "</i></h5>**
+**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
 
-*<b>___ Bertrand Russell ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
