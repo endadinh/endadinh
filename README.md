@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
