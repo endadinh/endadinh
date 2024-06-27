@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
+**<h5><i>" God always takes the simplest way. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
