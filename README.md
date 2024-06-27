@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is going from failure to failure without losing enthusiasm. "</i></h5>**
+**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
