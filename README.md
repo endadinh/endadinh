@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
+**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
