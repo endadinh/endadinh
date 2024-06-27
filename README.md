@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
+**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
