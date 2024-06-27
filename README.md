@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
