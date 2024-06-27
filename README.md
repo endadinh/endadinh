@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
+**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Henry Moore ___</b>*
 
 -----
 
