@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
+**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
 
-*<b>___ Orson Welles ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
