@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not all those who wander are lost. "</i></h5>**
+**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
 
-*<b>___ J. R. R. Tolkien ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
