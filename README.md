@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you correct your mind, the rest of your life will fall into place. "</i></h5>**
+**<h5><i>" Avoid having your ego so close to your position that when your position falls, your ego goes with it. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
