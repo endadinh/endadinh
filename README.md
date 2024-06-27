@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One loyal friend is worth ten thousand relatives. "</i></h5>**
+**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
