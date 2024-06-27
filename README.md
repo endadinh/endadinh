@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place. "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ Nora Roberts ___</b>*
 
 -----
 
