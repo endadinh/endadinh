@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
+**<h5><i>" Friendship without self-interest is one of the rare and beautiful things of life. "</i></h5>**
 
-*<b>___ Stewart Brand ___</b>*
+*<b>___ James F. Byrnes ___</b>*
 
 -----
 
