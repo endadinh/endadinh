@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is about timing. "</i></h5>**
+**<h5><i>" The only way to have a friend is to be one. "</i></h5>**
 
-*<b>___ Carl Lewis ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
