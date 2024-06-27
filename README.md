@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is good even for old men to learn wisdom. "</i></h5>**
+**<h5><i>" One of the advantages of being disorderly is that one is constantly making exciting discoveries. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ A. A. Milne ___</b>*
 
 -----
 
