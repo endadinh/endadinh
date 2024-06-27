@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
+**<h5><i>" Error is discipline through which we advance. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
