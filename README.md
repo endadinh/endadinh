@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" To be tested is good. The challenged life may be the best therapist. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Gail Sheehy ___</b>*
 
 -----
 
