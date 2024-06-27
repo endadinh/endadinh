@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve. "</i></h5>**
+**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Orson Welles ___</b>*
 
 -----
 
