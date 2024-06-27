@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
+**<h5><i>" The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Bertrand Russell ___</b>*
 
 -----
 
