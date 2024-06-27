@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like the immortality of the soul, is too good to be believed. "</i></h5>**
+**<h5><i>" Life is about timing. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Carl Lewis ___</b>*
 
 -----
 
