@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
