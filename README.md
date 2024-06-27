@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Caroline Myss ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
