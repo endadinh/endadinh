@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
+**<h5><i>" Trust yourself. You know more than you think you do. "</i></h5>**
 
-*<b>___ Holly Near ___</b>*
+*<b>___ Benjamin Spock ___</b>*
 
 -----
 
