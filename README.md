@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be tested is good. The challenged life may be the best therapist. "</i></h5>**
+**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
 
-*<b>___ Gail Sheehy ___</b>*
+*<b>___ Bobby Unser ___</b>*
 
 -----
 
