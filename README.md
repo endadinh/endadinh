@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is a source of great strength. "</i></h5>**
+**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
