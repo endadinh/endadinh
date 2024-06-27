@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
+**<h5><i>" A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
