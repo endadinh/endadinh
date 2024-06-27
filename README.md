@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
+**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
