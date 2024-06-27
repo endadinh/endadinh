@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love doesn't make the world go round; love is what makes the ride worthwhile. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
