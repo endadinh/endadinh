@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Error is discipline through which we advance. "</i></h5>**
+**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
