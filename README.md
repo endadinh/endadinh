@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
+**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
