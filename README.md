@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
+**<h5><i>" If you correct your mind, the rest of your life will fall into place. "</i></h5>**
 
-*<b>___ Bobby Unser ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
