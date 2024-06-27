@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
+**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
