@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
+**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
