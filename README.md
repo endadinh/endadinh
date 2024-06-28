@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
+**<h5><i>" To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future. "</i></h5>**
 
-*<b>___ Salman Rushdie ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
