@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ John Adams ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
