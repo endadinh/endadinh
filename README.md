@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The important thing is this: to be able at any moment to sacrifice what we are for what we could become. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ Charles Du Bos ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
