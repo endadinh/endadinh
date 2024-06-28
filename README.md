@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not give up and we should not allow the problem to defeat us. "</i></h5>**
+**<h5><i>" As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. "</i></h5>**
 
-*<b>___ A. P. J. Abdul Kalam ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
