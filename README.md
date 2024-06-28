@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be sure you put your feet in the right place, then stand firm. "</i></h5>**
+**<h5><i>" Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Whoopi Goldberg ___</b>*
 
 -----
 
