@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
+**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Thomas à Kempis ___</b>*
 
 -----
 
