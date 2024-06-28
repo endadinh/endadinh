@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is Love without his wings! "</i></h5>**
+**<h5><i>" You and I are all as much continuous with the physical universe as a wave is continuous with the ocean. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
