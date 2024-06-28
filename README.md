@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ Bob Knight ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
