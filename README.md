@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
