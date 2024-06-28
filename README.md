@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing will work unless you do. "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
