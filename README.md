@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
+**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Mike Singletary (basketball) ___</b>*
 
 -----
 
