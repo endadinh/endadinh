@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
+**<h5><i>" The shoe that fits one person pinches another; there is no recipe for living that suits all cases. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
