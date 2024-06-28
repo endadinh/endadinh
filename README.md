@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" If you spend too much time thinking about a thing, you'll never get it done. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
