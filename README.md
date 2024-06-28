@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. "</i></h5>**
+**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
 
-*<b>___ Plotinus ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
