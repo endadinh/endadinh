@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship ought never to conceal what it thinks. "</i></h5>**
+**<h5><i>" I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Herbert Bayard Swope ___</b>*
 
 -----
 
