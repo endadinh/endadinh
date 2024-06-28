@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each day provides its own gifts. "</i></h5>**
+**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
