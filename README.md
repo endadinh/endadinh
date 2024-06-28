@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most people get interested in stocks when everyone else is. The time to get interested is when no one else is. You can't buy what is popular and do well. "</i></h5>**
+**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
