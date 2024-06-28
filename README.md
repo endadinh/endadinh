@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a problem to be solved, but a reality to be experienced. "</i></h5>**
+**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
