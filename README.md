@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend too much time thinking about a thing, you'll never get it done. "</i></h5>**
+**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ John Berry ___</b>*
 
 -----
 
