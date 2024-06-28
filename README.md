@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
+**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
