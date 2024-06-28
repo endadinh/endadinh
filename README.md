@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
+**<h5><i>" True friendship ought never to conceal what it thinks. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
