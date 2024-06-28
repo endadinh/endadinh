@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
+**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Thomas Hobbes ___</b>*
 
 -----
 
