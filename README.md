@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats. "</i></h5>**
+**<h5><i>" Nothing will work unless you do. "</i></h5>**
 
-*<b>___ Howard H. Aiken ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
