@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
+**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Bob Knight ___</b>*
 
 -----
 
