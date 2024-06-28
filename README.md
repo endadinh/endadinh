@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not all those who wander are lost. "</i></h5>**
+**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
 
-*<b>___ J. R. R. Tolkien ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
