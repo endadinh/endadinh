@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark. "</i></h5>**
+**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
 
-*<b>___ Whoopi Goldberg ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
