@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things do not happen. Things are made to happen. "</i></h5>**
+**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
