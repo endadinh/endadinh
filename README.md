@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. "</i></h5>**
+**<h5><i>" Be sure you put your feet in the right place, then stand firm. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
