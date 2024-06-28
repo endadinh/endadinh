@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
+**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
