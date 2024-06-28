@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
