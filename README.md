@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't want to achieve immortality through my work... I want to achieve it through not dying. "</i></h5>**
+**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ John Adams ___</b>*
 
 -----
 
