@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. "</i></h5>**
+**<h5><i>" To study and not think is a waste. To think and not study is dangerous. "</i></h5>**
 
-*<b>___ Thomas à Kempis ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
