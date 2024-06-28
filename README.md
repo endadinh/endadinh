@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
+**<h5><i>" Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Plotinus ___</b>*
 
 -----
 
