@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
+**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Holly Near ___</b>*
 
 -----
 
