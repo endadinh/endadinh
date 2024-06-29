@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
