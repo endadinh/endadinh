@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One fails forward toward success. "</i></h5>**
+**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
