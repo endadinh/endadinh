@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
+**<h5><i>" Fortune befriends the bold. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
