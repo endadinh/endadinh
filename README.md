@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The shoe that fits one person pinches another; there is no recipe for living that suits all cases. "</i></h5>**
+**<h5><i>" We must embrace pain and burn it as fuel for our journey. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Kenji Miyazawa ___</b>*
 
 -----
 
