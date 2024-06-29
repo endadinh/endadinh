@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
+**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
