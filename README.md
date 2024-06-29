@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
+**<h5><i>" It's the little details that are vital. Little things make big things happen. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
