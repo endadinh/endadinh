@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
+**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
