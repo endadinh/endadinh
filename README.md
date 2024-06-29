@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's the little details that are vital. Little things make big things happen. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
