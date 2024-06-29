@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
+**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Alfred Tennyson ___</b>*
 
 -----
 
