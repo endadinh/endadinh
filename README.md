@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must never forget that it is through our actions, words, and thoughts that we have a choice. "</i></h5>**
+**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
 
-*<b>___ Sogyal Rinpoche ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
