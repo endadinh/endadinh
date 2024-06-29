@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pick battles big enough to matter, small enough to win. "</i></h5>**
+**<h5><i>" Aim for the moon. If you miss, you may hit a star. "</i></h5>**
 
-*<b>___ Jonathan Kozol ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
