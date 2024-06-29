@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
+**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Alfred North Whitehead ___</b>*
 
 -----
 
