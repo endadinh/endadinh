@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
+**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
 
-*<b>___ Henry Wadsworth Longfellow ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
