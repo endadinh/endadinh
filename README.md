@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must embrace pain and burn it as fuel for our journey. "</i></h5>**
+**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
 
-*<b>___ Kenji Miyazawa ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
