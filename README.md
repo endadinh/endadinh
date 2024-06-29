@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only do what your heart tells you. "</i></h5>**
+**<h5><i>" There are people who have money and people who are rich. "</i></h5>**
 
-*<b>___ Princess Diana ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
