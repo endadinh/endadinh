@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
+**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
