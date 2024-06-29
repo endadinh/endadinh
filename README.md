@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. "</i></h5>**
+**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
 
-*<b>___ Will Durant ___</b>*
+*<b>___ Jimmy Dean ___</b>*
 
 -----
 
