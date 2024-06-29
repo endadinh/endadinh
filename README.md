@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
+**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ J. Willard Marriott ___</b>*
 
 -----
 
