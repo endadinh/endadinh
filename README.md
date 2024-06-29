@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
