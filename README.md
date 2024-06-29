@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
