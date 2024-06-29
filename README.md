@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Half the lies they tell about me aren't true. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
