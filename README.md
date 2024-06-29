@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
+**<h5><i>" I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Herbert Bayard Swope ___</b>*
 
 -----
 
