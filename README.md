@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
