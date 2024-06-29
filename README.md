@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
+**<h5><i>" Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health. "</i></h5>**
 
-*<b>___ Alfred Tennyson ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
