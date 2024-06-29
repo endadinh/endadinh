@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
+**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
