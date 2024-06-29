@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Aim for the moon. If you miss, you may hit a star. "</i></h5>**
+**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
