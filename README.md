@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
+**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
