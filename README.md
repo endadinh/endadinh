@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
+**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
