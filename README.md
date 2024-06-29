@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
+**<h5><i>" It is easier to live through someone else than to become complete yourself. "</i></h5>**
 
-*<b>___ Paul Cézanne ___</b>*
+*<b>___ Betty Friedan ___</b>*
 
 -----
 
