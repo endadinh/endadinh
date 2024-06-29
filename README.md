@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. "</i></h5>**
+**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
 
-*<b>___ Muhammad Ali ___</b>*
+*<b>___ Paul Cézanne ___</b>*
 
 -----
 
