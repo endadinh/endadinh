@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is essentially a partnership. "</i></h5>**
+**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
