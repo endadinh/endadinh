@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
