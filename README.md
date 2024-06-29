@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. "</i></h5>**
+**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ William Penn ___</b>*
 
 -----
 
