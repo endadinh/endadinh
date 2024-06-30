@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
+**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
