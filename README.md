@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest part of our happiness depends on our dispositions, not our circumstances. "</i></h5>**
+**<h5><i>" You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. "</i></h5>**
 
-*<b>___ Martha Washington ___</b>*
+*<b>___ Jim Bouton ___</b>*
 
 -----
 
