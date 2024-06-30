@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Salman Rushdie ___</b>*
 
 -----
 
