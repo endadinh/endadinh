@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Well begun is half done. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
