@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
+**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
