@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
+**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
