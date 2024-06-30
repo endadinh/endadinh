@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
