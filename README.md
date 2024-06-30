@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
+**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
