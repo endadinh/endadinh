@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure doesn't mean you are a failure it just means you haven't succeeded yet. "</i></h5>**
+**<h5><i>" The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
