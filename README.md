@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
+**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
