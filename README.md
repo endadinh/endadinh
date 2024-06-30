@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
+**<h5><i>" Our most intimate friend is not he to whom we show the worst, but the best of our nature. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
