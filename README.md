@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind. "</i></h5>**
+**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
 
-*<b>___ Henry James ___</b>*
+*<b>___ Sai Baba ___</b>*
 
 -----
 
