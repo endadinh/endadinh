@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
+**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Inge ___</b>*
 
 -----
 
