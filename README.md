@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
+**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ John Lubbock ___</b>*
 
 -----
 
