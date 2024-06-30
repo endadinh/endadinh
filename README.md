@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. "</i></h5>**
+**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Christopher Morley ___</b>*
 
 -----
 
