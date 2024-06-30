@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
+**<h5><i>" You cannot have what you do not want. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ John Acosta ___</b>*
 
 -----
 
