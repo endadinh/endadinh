@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
+**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
