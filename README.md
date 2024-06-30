@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good head and a good heart are always a formidable combination. "</i></h5>**
+**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Jonathan Swift ___</b>*
 
 -----
 
