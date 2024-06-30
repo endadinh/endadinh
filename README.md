@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. "</i></h5>**
+**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Sri Chinmoy ___</b>*
 
 -----
 
