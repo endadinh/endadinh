@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
