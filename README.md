@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
+**<h5><i>" We cannot do everything at once, but we can do something at once. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
