@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
+**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
