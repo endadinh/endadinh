@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
+**<h5><i>" No yesterdays are ever wasted for those who give themselves to today. "</i></h5>**
 
-*<b>___ Alexander the Great ___</b>*
+*<b>___ Brendan Behan ___</b>*
 
 -----
 
