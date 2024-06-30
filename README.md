@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
+**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
 
-*<b>___ Rose Kennedy ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
