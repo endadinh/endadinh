@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. "</i></h5>**
+**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
 
-*<b>___ Jim Bouton ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
