@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like the immortality of the soul, is too good to be believed. "</i></h5>**
+**<h5><i>" The more you care, the stronger you can be. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
