@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
+**<h5><i>" Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful. "</i></h5>**
 
-*<b>___ Sai Baba ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
