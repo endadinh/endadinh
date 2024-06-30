@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful. "</i></h5>**
+**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
