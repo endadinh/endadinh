@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
+**<h5><i>" A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. "</i></h5>**
 
-*<b>___ Sri Chinmoy ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
