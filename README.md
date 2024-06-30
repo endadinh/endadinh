@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of knowledge is the discovery of something we do not understand. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Frank Herbert ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
