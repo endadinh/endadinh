@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
+**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
 
-*<b>___ Salman Rushdie ___</b>*
+*<b>___ Lena Horne ___</b>*
 
 -----
 
