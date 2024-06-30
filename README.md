@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be smarter than the people who hire you. "</i></h5>**
+**<h5><i>" Friendship, like the immortality of the soul, is too good to be believed. "</i></h5>**
 
-*<b>___ Lena Horne ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
