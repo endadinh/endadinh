@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
+**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
 
-*<b>___ Salman Rushdie ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
