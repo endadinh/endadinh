@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All of our technology is completely unnecessary to a happy life. "</i></h5>**
+**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
 
-*<b>___ Tom Hodgkinson ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
