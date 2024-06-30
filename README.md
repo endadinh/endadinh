@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
+**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Forrest Church ___</b>*
 
 -----
 
