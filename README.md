@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly. "</i></h5>**
+**<h5><i>" I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
