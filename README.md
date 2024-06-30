@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never, never, never give up. "</i></h5>**
+**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
