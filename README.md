@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
+**<h5><i>" Before we acquire great power, we must acquire wisdom to use it well. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
