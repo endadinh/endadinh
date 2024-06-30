@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
+**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
