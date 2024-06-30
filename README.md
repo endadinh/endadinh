@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We cannot do everything at once, but we can do something at once. "</i></h5>**
+**<h5><i>" Wisdom begins in wonder. "</i></h5>**
 
-*<b>___ Calvin Coolidge ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
