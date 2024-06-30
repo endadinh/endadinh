@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
+**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Rose Kennedy ___</b>*
 
 -----
 
