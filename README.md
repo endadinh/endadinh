@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
