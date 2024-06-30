@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No yesterdays are ever wasted for those who give themselves to today. "</i></h5>**
+**<h5><i>" Well done is better than well said. "</i></h5>**
 
-*<b>___ Brendan Behan ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
