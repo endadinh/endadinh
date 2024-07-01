@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
+**<h5><i>" I violated the Noah rule: Predicting rain doesn't count; building arks does. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
