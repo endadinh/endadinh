@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trying to define yourself is like trying to bite your own teeth. "</i></h5>**
+**<h5><i>" The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ William Hurt ___</b>*
 
 -----
 
