@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People may doubt what you say, but they will believe what you do. "</i></h5>**
+**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
 
-*<b>___ Lewis Cass ___</b>*
+*<b>___ John Astin ___</b>*
 
 -----
 
