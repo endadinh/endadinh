@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Injuries may be forgiven, but not forgotten. "</i></h5>**
+**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
