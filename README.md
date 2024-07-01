@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do more than dream: work. "</i></h5>**
+**<h5><i>" It is no use saying, 'We are doing our best.' You have got to succeed in doing what is necessary. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
