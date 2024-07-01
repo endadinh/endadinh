@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
+**<h5><i>" They say that time changes things, but you actually have to change them yourself. "</i></h5>**
 
-*<b>___ Marianne Williamson ___</b>*
+*<b>___ Andy Warhol ___</b>*
 
 -----
 
