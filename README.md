@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Well begun is half done. "</i></h5>**
+**<h5><i>" The superior man acts before he speaks, and afterwards speaks according to his action. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
