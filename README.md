@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
