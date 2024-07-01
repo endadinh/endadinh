@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
+**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
