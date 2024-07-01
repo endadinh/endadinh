@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. "</i></h5>**
+**<h5><i>" What is a weed? A plant whose virtues have not yet been discovered. "</i></h5>**
 
-*<b>___ Billy Wilder ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
