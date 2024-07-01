@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
+**<h5><i>" Error is discipline through which we advance. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
