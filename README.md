@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. "</i></h5>**
+**<h5><i>" The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
