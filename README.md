@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
+**<h5><i>" Injuries may be forgiven, but not forgotten. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
