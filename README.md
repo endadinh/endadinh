@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Stay committed to your decisions, but stay flexible in your approach. "</i></h5>**
+**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
