@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not follow where the path may lead. Go, instead, where there is no path and leave a trail. "</i></h5>**
+**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
