@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
+**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
