@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others. "</i></h5>**
+**<h5><i>" Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. "</i></h5>**
 
-*<b>___ Anne Lindbergh ___</b>*
+*<b>___ John McCain ___</b>*
 
 -----
 
