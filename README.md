@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
+**<h5><i>" Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Hanya Yanagihara ___</b>*
 
 -----
 
