@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
+**<h5><i>" There is nothing on this earth more to be prized than true friendship. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
