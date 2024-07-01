@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
