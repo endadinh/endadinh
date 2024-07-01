@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning is always today. "</i></h5>**
+**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
 
-*<b>___ Mary Wollstonecraft ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
