@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who hath many friends hath none. "</i></h5>**
+**<h5><i>" Of all possessions a friend is the most precious. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Herodotus ___</b>*
 
 -----
 
