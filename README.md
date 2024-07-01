@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I violated the Noah rule: Predicting rain doesn't count; building arks does. "</i></h5>**
+**<h5><i>" The only real mistake is the one from which we learn nothing. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ John Powell ___</b>*
 
 -----
 
