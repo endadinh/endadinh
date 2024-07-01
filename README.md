@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
+**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
