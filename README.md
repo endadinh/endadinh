@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
+**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
 
-*<b>___ John Astin ___</b>*
+*<b>___ Reinhold Niebuhr ___</b>*
 
 -----
 
