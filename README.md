@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Skill to do comes of doing. "</i></h5>**
+**<h5><i>" I don't believe in failure. It's not failure if you enjoyed the process. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
