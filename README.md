@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" The beginning is always today. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Mary Wollstonecraft ___</b>*
 
 -----
 
