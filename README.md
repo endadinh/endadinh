@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only real mistake is the one from which we learn nothing. "</i></h5>**
+**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
 
-*<b>___ John Powell ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
