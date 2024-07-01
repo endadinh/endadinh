@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
+**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
 
-*<b>___ Reinhold Niebuhr ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
