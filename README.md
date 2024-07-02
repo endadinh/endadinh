@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Bad times have a scientific value. These are occasions a good learner would not miss. "</i></h5>**
+**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
