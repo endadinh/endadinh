@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
