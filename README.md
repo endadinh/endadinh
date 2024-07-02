@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never, never, never give up. "</i></h5>**
+**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
