@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
+**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
