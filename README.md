@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The winner ain't the one with the fastest car it's the one who refuses to lose. "</i></h5>**
+**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
 
-*<b>___ Dale Earnhardt ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
