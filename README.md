@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
+**<h5><i>" Wisdom begins in wonder. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
