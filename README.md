@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
+**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
 
-*<b>___ John Keats ___</b>*
+*<b>___ Joe Paterno ___</b>*
 
 -----
 
