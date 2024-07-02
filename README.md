@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
+**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
