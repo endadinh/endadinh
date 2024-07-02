@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
+**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
