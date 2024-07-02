@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
+**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
