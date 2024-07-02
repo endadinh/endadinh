@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is of no value unless you put it into practice. "</i></h5>**
+**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
