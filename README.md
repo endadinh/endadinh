@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
+**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
 
-*<b>___ Christian Dior ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
