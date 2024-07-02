@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
+**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
