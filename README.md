@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things change; nothing perishes. "</i></h5>**
+**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
