@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The wisdom of the wise, and the experience of ages, may be preserved by quotation. "</i></h5>**
+**<h5><i>" The past has no power to stop you from being present now. Only your grievance about the past can do that. "</i></h5>**
 
-*<b>___ Isaac D'Israeli ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
