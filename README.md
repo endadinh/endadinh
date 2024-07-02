@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge without justice ought to be called cunning rather than wisdom. "</i></h5>**
+**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ John Keats ___</b>*
 
 -----
 
