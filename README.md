@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
