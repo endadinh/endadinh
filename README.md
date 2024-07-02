@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
+**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
 
-*<b>___ Joe Paterno ___</b>*
+*<b>___ Bernice Reagon ___</b>*
 
 -----
 
