@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
