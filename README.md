@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
+**<h5><i>" Wisdom is found only in truth. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
