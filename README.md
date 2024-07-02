@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
+**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
