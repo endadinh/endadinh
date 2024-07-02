@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of all possessions a friend is the most precious. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ Herodotus ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
