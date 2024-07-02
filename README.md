@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
