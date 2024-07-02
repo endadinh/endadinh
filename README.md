@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science gives us knowledge, but only philosophy can give us wisdom. "</i></h5>**
+**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
 
-*<b>___ Will Durant ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
