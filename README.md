@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
+**<h5><i>" Of all possessions a friend is the most precious. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Herodotus ___</b>*
 
 -----
 
