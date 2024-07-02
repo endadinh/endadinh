@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The two most powerful warriors are patience and time. "</i></h5>**
+**<h5><i>" All things change; nothing perishes. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
