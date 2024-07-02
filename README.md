@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions. "</i></h5>**
+**<h5><i>" Your mind will answer most questions if you learn to relax and wait for the answer. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ William Burroughs ___</b>*
 
 -----
 
