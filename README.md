@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
