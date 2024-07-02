@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
