@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You teach best what you most need to learn. "</i></h5>**
+**<h5><i>" The winner ain't the one with the fastest car it's the one who refuses to lose. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Dale Earnhardt ___</b>*
 
 -----
 
