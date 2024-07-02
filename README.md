@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
+**<h5><i>" You teach best what you most need to learn. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
