@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom begins in wonder. "</i></h5>**
+**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
