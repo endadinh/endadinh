@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
+**<h5><i>" Never, never, never give up. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
