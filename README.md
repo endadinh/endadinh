@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not enough to have a good mind; the main thing is to use it well. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
