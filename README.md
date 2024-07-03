@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" TV and the Internet are good because they keep stupid people from spending too much time out in public. "</i></h5>**
+**<h5><i>" But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be. "</i></h5>**
 
-*<b>___ Douglas Coupland ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
