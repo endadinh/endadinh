@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" Be sure you put your feet in the right place, then stand firm. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
