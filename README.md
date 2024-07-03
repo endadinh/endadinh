@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness. "</i></h5>**
+**<h5><i>" One should not hurt others if one loves oneself. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
