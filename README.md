@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
