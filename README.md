@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
