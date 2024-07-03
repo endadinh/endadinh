@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
+**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Maureen Dowd ___</b>*
 
 -----
 
