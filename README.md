@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't cry because it's over. Smile because it happened. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
