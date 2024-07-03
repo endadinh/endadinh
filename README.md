@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle. "</i></h5>**
+**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
