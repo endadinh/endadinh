@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
