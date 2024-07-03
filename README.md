@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Chuck Norris ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
