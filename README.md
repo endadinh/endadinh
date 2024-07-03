@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep your face always toward the sunshine - and shadows will fall behind you. "</i></h5>**
+**<h5><i>" The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief. "</i></h5>**
 
-*<b>___ Walt Whitman ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
