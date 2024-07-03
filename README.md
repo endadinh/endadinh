@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
