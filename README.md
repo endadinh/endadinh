@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
