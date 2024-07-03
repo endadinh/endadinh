@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
