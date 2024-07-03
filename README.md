@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
+**<h5><i>" All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
