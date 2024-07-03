@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
