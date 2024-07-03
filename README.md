@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
+**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
