@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no fear for one whose mind is not filled with desires. "</i></h5>**
+**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Edward Young ___</b>*
 
 -----
 
