@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. "</i></h5>**
+**<h5><i>" I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Herbert Bayard Swope ___</b>*
 
 -----
 
