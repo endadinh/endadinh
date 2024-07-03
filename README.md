@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
+**<h5><i>" A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Isaac Asimov ___</b>*
 
 -----
 
