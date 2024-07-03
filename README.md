@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
+**<h5><i>" No snowflake in an avalanche ever feels responsible. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
