@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
