@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool. "</i></h5>**
+**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
