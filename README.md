@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
