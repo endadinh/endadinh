@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
+**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
 
-*<b>___ John Keats ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
