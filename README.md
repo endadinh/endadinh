@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One should not hurt others if one loves oneself. "</i></h5>**
+**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
