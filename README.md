@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
+**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
