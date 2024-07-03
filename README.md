@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
+**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
