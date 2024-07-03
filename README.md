@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
+**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
 
-*<b>___ Dag Hammarskjöld ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
