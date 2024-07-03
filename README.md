@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
+**<h5><i>" Avoid having your ego so close to your position that when your position falls, your ego goes with it. "</i></h5>**
 
-*<b>___ Maureen Dowd ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
