@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
+**<h5><i>" The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
