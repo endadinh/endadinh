@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha "</i></h5>**
+**<h5><i>" There is no fear for one whose mind is not filled with desires. "</i></h5>**
 
 *<b>___ The Buddha ___</b>*
 
