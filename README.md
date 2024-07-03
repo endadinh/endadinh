@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
+**<h5><i>" If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
