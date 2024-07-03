@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To me, it doesn't matter how good you are. Sport is all about playing and competing. Whatever you do in cricket and in sport, enjoy it, be positive and try to win. "</i></h5>**
+**<h5><i>" The truest wisdom is a resolute determination. "</i></h5>**
 
-*<b>___ Ian Botham ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
