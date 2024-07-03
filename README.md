@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
+**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
 
-*<b>___ Edward Young ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
