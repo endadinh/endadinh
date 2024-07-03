@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably. "</i></h5>**
+**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
