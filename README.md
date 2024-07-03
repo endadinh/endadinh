@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
+**<h5><i>" Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
