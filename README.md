@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
+**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
