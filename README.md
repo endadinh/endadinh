@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Robert Fulghum ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
