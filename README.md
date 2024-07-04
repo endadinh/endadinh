@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
+**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
