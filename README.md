@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be wrong is nothing unless you continue to remember it. "</i></h5>**
+**<h5><i>" May all beings have happy minds. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
