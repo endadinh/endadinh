@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
