@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
+**<h5><i>" There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
