@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
+**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
