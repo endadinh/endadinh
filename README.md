@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
+**<h5><i>" Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
