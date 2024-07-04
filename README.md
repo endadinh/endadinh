@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of lessons, which must be lived to be understood. "</i></h5>**
+**<h5><i>" Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
