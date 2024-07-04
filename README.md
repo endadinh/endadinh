@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May all beings have happy minds. "</i></h5>**
+**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
