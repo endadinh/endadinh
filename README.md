@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
