@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
+**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
 
-*<b>___ Ralph Abernathy ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
