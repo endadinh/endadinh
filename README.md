@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
+**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
