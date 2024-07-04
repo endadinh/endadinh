@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
+**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
