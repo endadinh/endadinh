@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is the most precious of all possessions and the one we take the least thought about acquiring. "</i></h5>**
+**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
