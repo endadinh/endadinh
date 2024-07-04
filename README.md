@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace. "</i></h5>**
+**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
