@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Watch the little things; a small leak will sink a great ship. "</i></h5>**
+**<h5><i>" 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
