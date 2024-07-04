@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" A true friend is the most precious of all possessions and the one we take the least thought about acquiring. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
