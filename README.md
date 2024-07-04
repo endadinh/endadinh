@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
+**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Edward Everett Hale ___</b>*
 
 -----
 
