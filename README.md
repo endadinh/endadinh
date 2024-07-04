@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest. "</i></h5>**
+**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
