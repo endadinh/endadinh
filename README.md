@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
+**<h5><i>" Reality leaves a lot to the imagination. "</i></h5>**
 
-*<b>___ Phyllis Grissim-Theroux ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
