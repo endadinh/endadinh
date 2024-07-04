@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Mariella Frostrup ___</b>*
 
 -----
 
