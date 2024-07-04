@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. "</i></h5>**
+**<h5><i>" Respect should be earned by actions, and not acquired by years. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
