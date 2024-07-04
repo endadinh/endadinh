@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
+**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
