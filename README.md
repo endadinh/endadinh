@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
+**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
