@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
+**<h5><i>" Imagination is not a talent of some men but is the health of every man. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
