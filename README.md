@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
