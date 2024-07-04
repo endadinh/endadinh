@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
+**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
