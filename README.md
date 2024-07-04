@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
+**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
