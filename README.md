@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
+**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
