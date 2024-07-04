@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fortune favors the brave. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
