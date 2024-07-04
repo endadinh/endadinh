@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is not a talent of some men but is the health of every man. "</i></h5>**
+**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Ralph Abernathy ___</b>*
 
 -----
 
