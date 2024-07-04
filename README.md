@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mountains cannot be surmounted except by winding paths. "</i></h5>**
+**<h5><i>" Remember that a gesture of friendship, no matter how small, is always appreciated. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
