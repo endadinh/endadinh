@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
+**<h5><i>" What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
