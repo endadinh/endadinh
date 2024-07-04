@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
