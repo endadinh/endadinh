@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are like bikinis. They save people a lot of guesswork. "</i></h5>**
+**<h5><i>" It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. "</i></h5>**
 
-*<b>___ Sam Ewing ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
