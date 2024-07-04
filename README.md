@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
+**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
