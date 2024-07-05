@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. "</i></h5>**
+**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Alfred Korzybski ___</b>*
 
 -----
 
