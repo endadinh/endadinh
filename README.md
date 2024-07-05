@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
+**<h5><i>" Doing what you love is the cornerstone of having abundance in your life. "</i></h5>**
 
 *<b>___ Wayne Dyer ___</b>*
 
