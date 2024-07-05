@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown. "</i></h5>**
+**<h5><i>" Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
