@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
+**<h5><i>" All truths are easy to understand once they are discovered; the point is to discover them. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Galileo Galilei ___</b>*
 
 -----
 
