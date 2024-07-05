@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
+**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
