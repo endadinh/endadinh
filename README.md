@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
+**<h5><i>" They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
