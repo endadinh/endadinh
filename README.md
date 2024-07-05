@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
