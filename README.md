@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who hath many friends hath none. "</i></h5>**
+**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
