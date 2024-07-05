@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
+**<h5><i>" All achievements, all earned riches, have their beginning in an idea. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
