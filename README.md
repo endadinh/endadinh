@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
+**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
 
-*<b>___ Francis de Sales ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
