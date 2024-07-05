@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends show their love in times of trouble, not in happiness. "</i></h5>**
+**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
