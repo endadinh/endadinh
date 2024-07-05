@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
