@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our intention creates our reality. "</i></h5>**
+**<h5><i>" It is one of the blessings of old friends that you can afford to be stupid with them. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
