@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
