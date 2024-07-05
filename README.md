@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
