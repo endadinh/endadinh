@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. "</i></h5>**
+**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
