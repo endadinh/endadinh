@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
+**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
 
-*<b>___ Pierre Teilhard de Chardin ___</b>*
+*<b>___ Alexander the Great ___</b>*
 
 -----
 
