@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
