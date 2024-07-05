@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
+**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ Pierre Teilhard de Chardin ___</b>*
 
 -----
 
