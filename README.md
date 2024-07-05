@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
+**<h5><i>" As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Joseph Prince ___</b>*
 
 -----
 
