@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All truths are easy to understand once they are discovered; the point is to discover them. "</i></h5>**
+**<h5><i>" Only two things are infinite, the universe and human stupidity, and I'm not sure about the former. "</i></h5>**
 
-*<b>___ Galileo Galilei ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
