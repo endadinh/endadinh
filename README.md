@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
+**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
