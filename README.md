@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
