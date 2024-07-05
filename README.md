@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ William Cowper ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
