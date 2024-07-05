@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
+**<h5><i>" Our character is what we do when we think no one is looking. "</i></h5>**
 
-*<b>___ Len Wein ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
