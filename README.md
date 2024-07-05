@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
+**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Francis de Sales ___</b>*
 
 -----
 
