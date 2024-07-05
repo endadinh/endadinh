@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever something negative happens to you, there is a deep lesson concealed within it. "</i></h5>**
+**<h5><i>" Build a better mousetrap and the world will beat a path to your door. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
