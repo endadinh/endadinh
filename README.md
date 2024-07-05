@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
+**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
