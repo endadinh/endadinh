@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
+**<h5><i>" Be the chief but never the lord. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
