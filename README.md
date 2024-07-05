@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good decision is based on knowledge and not on numbers. "</i></h5>**
+**<h5><i>" To be great is to be misunderstood. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
