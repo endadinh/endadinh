@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
