@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build a better mousetrap and the world will beat a path to your door. "</i></h5>**
+**<h5><i>" We need never be ashamed of our tears. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
