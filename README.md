@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only two things are infinite, the universe and human stupidity, and I'm not sure about the former. "</i></h5>**
+**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
