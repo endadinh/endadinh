@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our character is what we do when we think no one is looking. "</i></h5>**
+**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
