@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. "</i></h5>**
+**<h5><i>" A true friend is someone who is there for you when he'd rather be anywhere else. "</i></h5>**
 
-*<b>___ Joseph Prince ___</b>*
+*<b>___ Len Wein ___</b>*
 
 -----
 
