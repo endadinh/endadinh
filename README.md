@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
+**<h5><i>" Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Doug Larson ___</b>*
 
 -----
 
