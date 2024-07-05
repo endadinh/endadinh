@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
+**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
