@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
+**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
