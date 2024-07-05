@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing what you love is the cornerstone of having abundance in your life. "</i></h5>**
+**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
