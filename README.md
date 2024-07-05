@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
+**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ William Cowper ___</b>*
 
 -----
 
