@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
+**<h5><i>" We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
