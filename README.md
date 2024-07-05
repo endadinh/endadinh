@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
+**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
