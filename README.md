@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
