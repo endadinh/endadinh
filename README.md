@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
+**<h5><i>" In the business world, the rearview mirror is always clearer than the windshield. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
