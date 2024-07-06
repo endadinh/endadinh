@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
+**<h5><i>" If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
