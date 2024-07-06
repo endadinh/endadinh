@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" I will prepare and some day my chance will come. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
