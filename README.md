@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't ruin the present with the ruined past. "</i></h5>**
+**<h5><i>" People may doubt what you say, but they will believe what you do. "</i></h5>**
 
-*<b>___ Ellen Gilchrist ___</b>*
+*<b>___ Lewis Cass ___</b>*
 
 -----
 
