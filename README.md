@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the business world, the rearview mirror is always clearer than the windshield. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
