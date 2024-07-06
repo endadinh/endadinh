@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature. "</i></h5>**
+**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
 
-*<b>___ Don DeLillo ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
