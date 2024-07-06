@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
+**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
