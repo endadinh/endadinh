@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
+**<h5><i>" Never apologize for showing feelings. When you do so, you apologize for the truth. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
