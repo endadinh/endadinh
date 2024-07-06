@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can't, you are right. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
