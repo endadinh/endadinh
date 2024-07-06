@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
+**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
