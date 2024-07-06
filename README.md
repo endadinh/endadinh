@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
+**<h5><i>" We never live; we are always in the expectation of living. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
