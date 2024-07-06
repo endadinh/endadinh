@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
+**<h5><i>" Whoever doesn't flare up at someone who's angry wins a battle hard to win. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
