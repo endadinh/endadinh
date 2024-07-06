@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
+**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
