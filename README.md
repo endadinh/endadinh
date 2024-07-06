@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
+**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
