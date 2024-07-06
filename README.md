@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People may doubt what you say, but they will believe what you do. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Lewis Cass ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
