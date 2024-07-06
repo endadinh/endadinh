@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
+**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Clay Shirky ___</b>*
 
 -----
 
