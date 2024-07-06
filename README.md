@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. "</i></h5>**
+**<h5><i>" It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
