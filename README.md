@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
+**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Simone de Beauvoir ___</b>*
 
 -----
 
