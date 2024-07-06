@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Government of the people, by the people, for the people, shall not perish from the Earth. "</i></h5>**
+**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
