@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
+**<h5><i>" If there is such a thing as a good marriage, it is because it resembles friendship rather than love. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
