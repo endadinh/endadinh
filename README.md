@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
+**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
 
-*<b>___ John Keats ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
