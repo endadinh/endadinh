@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
+**<h5><i>" Victory belongs to the most persevering. "</i></h5>**
 
-*<b>___ Jean Antoine Petit-Senn ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
