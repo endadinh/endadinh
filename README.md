@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" We have committed the Golden Rule to memory; let us now commit it to life. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Edwin Markham ___</b>*
 
 -----
 
