@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a problem to be solved, but a reality to be experienced. "</i></h5>**
+**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
