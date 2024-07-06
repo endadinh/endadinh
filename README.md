@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Pierre Teilhard de Chardin ___</b>*
 
 -----
 
