@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
+**<h5><i>" The place to improve the world is first in one's own heart and head and hands. "</i></h5>**
 
 *<b>___ Robert M. Pirsig ___</b>*
 
