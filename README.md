@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the depth of winter, I finally learned that there was within me an invincible summer. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can't, you are right. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
