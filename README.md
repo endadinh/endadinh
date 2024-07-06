@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
