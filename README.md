@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship. "</i></h5>**
+**<h5><i>" I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer. "</i></h5>**
 
-*<b>___ Johann Kaspar Lavater ___</b>*
+*<b>___ Colette ___</b>*
 
 -----
 
