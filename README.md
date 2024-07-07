@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
+**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ J. Willard Marriott ___</b>*
 
 -----
 
