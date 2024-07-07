@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life has no blessing like a prudent friend. "</i></h5>**
+**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Maria Shriver ___</b>*
 
 -----
 
