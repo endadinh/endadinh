@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to you and 90% how you react to it. "</i></h5>**
+**<h5><i>" I think and that is all that I am. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
