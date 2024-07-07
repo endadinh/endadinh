@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" Life is 10% what happens to you and 90% how you react to it. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
