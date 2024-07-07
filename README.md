@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the world is so complicated, the simple gift of friendship is within all of our hands. "</i></h5>**
+**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
 
-*<b>___ Maria Shriver ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
