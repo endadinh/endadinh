@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. "</i></h5>**
+**<h5><i>" Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Johann Kaspar Lavater ___</b>*
 
 -----
 
