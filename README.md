@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
+**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
