@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" History is written by the victors. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
