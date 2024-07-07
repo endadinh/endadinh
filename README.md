@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
