@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
