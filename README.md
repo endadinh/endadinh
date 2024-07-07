@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Government of the people, by the people, for the people, shall not perish from the Earth. "</i></h5>**
+**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
