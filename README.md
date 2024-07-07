@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
+**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
