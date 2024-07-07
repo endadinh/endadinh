@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
+**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
