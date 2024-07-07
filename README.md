@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you find yourself in a hole, the first thing to do is stop digging. "</i></h5>**
+**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
 
-*<b>___ Will Rogers ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
