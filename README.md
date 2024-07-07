@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
+**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
