@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
+**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
