@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
+**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
 
-*<b>___ William Inge ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
