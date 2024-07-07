@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
+**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
 
-*<b>___ John Astin ___</b>*
+*<b>___ Swami Vivekananda ___</b>*
 
 -----
 
