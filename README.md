@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
+**<h5><i>" When I was 40, my doctor advised me that a man in his 40s shouldn't play tennis. I heeded his advice carefully and could hardly wait until I reached 50 to start again. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Hugo Black ___</b>*
 
 -----
 
