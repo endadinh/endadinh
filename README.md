@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
+**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
