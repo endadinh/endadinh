@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
