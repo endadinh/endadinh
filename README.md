@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
