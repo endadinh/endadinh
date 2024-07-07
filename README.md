@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
+**<h5><i>" One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Hannah Szenes ___</b>*
 
 -----
 
