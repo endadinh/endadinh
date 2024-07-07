@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is good even for old men to learn wisdom. "</i></h5>**
+**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
