@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. "</i></h5>**
+**<h5><i>" Allow the world to live as it chooses, and allow yourself to live as you choose. "</i></h5>**
 
-*<b>___ Hannah Szenes ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
