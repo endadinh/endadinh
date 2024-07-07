@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We choose our joys and sorrows long before we experience them. "</i></h5>**
+**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
