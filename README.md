@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
+**<h5><i>" Once we accept our limits, we go beyond them. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
