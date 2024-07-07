@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History is written by the victors. "</i></h5>**
+**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
