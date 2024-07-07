@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy. "</i></h5>**
+**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
