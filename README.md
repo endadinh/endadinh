@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
