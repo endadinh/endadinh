@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are that vast thing that you see far, far off with great telescopes. "</i></h5>**
+**<h5><i>" One may say the eternal mystery of the world is its comprehensibility. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
