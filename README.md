@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
+**<h5><i>" Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. "</i></h5>**
 
-*<b>___ Paul Cézanne ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
