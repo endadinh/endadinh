@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
+**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
