@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
+**<h5><i>" Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. "</i></h5>**
 
-*<b>___ Swami Vivekananda ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
