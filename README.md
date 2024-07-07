@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
+**<h5><i>" It is good even for old men to learn wisdom. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Aeschylus ___</b>*
 
 -----
 
