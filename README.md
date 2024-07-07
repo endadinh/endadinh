@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. "</i></h5>**
+**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
