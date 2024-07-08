@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truest wisdom is a resolute determination. "</i></h5>**
+**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Isaac Asimov ___</b>*
 
 -----
 
