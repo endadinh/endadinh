@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The years teach much which the days never know. "</i></h5>**
+**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
