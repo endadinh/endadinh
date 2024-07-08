@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
+**<h5><i>" Good judgment comes from experience, and a lot of that comes from bad judgment. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
