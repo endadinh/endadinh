@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
+**<h5><i>" A day of worry is more exhausting than a day of work. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ John Lubbock ___</b>*
 
 -----
 
