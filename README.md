@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
+**<h5><i>" The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Cecil B. DeMille ___</b>*
 
 -----
 
