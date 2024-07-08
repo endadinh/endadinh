@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A day of worry is more exhausting than a day of work. "</i></h5>**
+**<h5><i>" Learning is finding out what you already know. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
