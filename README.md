@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fortune befriends the bold. "</i></h5>**
+**<h5><i>" Peace begins with a smile. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
