@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Michael Jordan ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
