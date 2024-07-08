@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
+**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
 
-*<b>___ Mary Pickford ___</b>*
+*<b>___ Franz Liszt ___</b>*
 
 -----
 
