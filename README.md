@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Jawaharlal Nehru ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
