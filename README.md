@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
+**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
