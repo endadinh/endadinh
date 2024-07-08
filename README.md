@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope. "</i></h5>**
+**<h5><i>" To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
