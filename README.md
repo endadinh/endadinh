@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The things that one most wants to do are the things that are probably most worth doing. "</i></h5>**
+**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
 
-*<b>___ Winifred Holtby ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
