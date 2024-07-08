@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
+**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
