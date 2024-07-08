@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
+**<h5><i>" Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ William C. Menninger ___</b>*
 
 -----
 
