@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The things that one most wants to do are the things that are probably most worth doing. "</i></h5>**
+**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
 
-*<b>___ Winifred Holtby ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
