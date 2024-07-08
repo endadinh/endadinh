@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
+**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
 
-*<b>___ Cheng Yen ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
