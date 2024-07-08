@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
+**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Cheng Yen ___</b>*
 
 -----
 
