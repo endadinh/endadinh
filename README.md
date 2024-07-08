@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways of spreading light: to be the candle or the mirror that reflects it. "</i></h5>**
+**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
