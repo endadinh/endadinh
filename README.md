@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" The things that one most wants to do are the things that are probably most worth doing. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Winifred Holtby ___</b>*
 
 -----
 
