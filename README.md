@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only do what your heart tells you. "</i></h5>**
+**<h5><i>" I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. "</i></h5>**
 
-*<b>___ Princess Diana ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
