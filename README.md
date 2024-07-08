@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
+**<h5><i>" I'd rather regret the things that I have done than the things that I have not done. "</i></h5>**
 
-*<b>___ Bill Watterson ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
