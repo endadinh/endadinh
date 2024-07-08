@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
+**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Sam Keen ___</b>*
 
 -----
 
