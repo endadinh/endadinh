@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. "</i></h5>**
+**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
