@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning is finding out what you already know. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
