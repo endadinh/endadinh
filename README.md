@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
