@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice. "</i></h5>**
+**<h5><i>" Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
