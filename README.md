@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
+**<h5><i>" Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Harriet Tubman ___</b>*
 
 -----
 
