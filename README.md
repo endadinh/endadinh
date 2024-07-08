@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
+**<h5><i>" To succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Michael Korda ___</b>*
 
 -----
 
