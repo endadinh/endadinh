@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. "</i></h5>**
+**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
