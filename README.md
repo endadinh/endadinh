@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity. "</i></h5>**
+**<h5><i>" You cannot escape the responsibility of tomorrow by evading it today. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
