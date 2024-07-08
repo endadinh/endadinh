@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" All experiences are preceded by mind, having mind as their master, created by mind. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
