@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
+**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
 
-*<b>___ Sam Keen ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
