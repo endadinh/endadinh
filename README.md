@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
