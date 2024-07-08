@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world. "</i></h5>**
+**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
 
-*<b>___ Harriet Tubman ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
