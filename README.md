@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
+**<h5><i>" The truest wisdom is a resolute determination. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
