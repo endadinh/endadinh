@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" Only do what your heart tells you. "</i></h5>**
 
-*<b>___ Michael Korda ___</b>*
+*<b>___ Princess Diana ___</b>*
 
 -----
 
