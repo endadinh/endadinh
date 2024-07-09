@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. "</i></h5>**
+**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
 
-*<b>___ Alan Cohen ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
