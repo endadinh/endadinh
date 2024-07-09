@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When in doubt, don't. "</i></h5>**
+**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
