@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
+**<h5><i>" You can't blame gravity for falling in love. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
