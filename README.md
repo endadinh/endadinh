@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
