@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
+**<h5><i>" The greatest mistake you can make in life is to be continually fearing you will make one. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
