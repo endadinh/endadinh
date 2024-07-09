@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
