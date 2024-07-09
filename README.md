@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We lost because we told ourselves we lost. "</i></h5>**
+**<h5><i>" You're not obligated to win. You're obligated to keep trying to do the best you can every day. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Marian Wright Edelman ___</b>*
 
 -----
 
