@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
+**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
