@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not turn back when you are just at the goal. "</i></h5>**
+**<h5><i>" I cannot always control what goes on outside. But I can always control what goes on inside. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
