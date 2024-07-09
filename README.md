@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
+**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
