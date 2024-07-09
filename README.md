@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
