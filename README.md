@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship. "</i></h5>**
+**<h5><i>" What lies behind us and what lies before us are tiny matters compared to what lies within us. "</i></h5>**
 
-*<b>___ Marilyn Monroe ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
