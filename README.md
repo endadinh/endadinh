@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smaller the mind the greater the conceit. "</i></h5>**
+**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Charles Darwin ___</b>*
 
 -----
 
