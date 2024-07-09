@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doors of wisdom are never shut. "</i></h5>**
+**<h5><i>" Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!' "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Bill Bradley ___</b>*
 
 -----
 
