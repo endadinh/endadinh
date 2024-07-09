@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
+**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
