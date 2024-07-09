@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorance never settles a question. "</i></h5>**
+**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
