@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
