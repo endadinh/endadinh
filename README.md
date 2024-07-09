@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
+**<h5><i>" Failure doesn't mean you are a failure it just means you haven't succeeded yet. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
