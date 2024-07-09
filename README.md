@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin at once to live and count each separate day as a separate life. "</i></h5>**
+**<h5><i>" Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Alan Cohen ___</b>*
 
 -----
 
