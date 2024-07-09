@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
+**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
