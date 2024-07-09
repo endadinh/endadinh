@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't blame gravity for falling in love. "</i></h5>**
+**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Kin Hubbard ___</b>*
 
 -----
 
