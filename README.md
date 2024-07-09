@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
+**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
