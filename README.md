@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
