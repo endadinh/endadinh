@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. "</i></h5>**
+**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
