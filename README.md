@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
+**<h5><i>" If we look at the world with a love of life, the world will reveal its beauty to us. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
