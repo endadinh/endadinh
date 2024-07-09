@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
+**<h5><i>" The world is a book, and those who do not travel read only a page. "</i></h5>**
 
-*<b>___ Charles Darwin ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
