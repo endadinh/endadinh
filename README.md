@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
+**<h5><i>" Begin at once to live and count each separate day as a separate life. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
