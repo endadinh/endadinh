@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're not obligated to win. You're obligated to keep trying to do the best you can every day. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
