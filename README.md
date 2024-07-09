@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
+**<h5><i>" One of the advantages of being disorderly is that one is constantly making exciting discoveries. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ A. A. Milne ___</b>*
 
 -----
 
