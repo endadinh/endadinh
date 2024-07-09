@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust is the lubrication that makes it possible for organizations to work. "</i></h5>**
+**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
 
-*<b>___ Warren Bennis ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
