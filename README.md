@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself. "</i></h5>**
+**<h5><i>" The smaller the mind the greater the conceit. "</i></h5>**
 
-*<b>___ Henry James ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
