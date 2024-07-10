@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
+**<h5><i>" I cannot make my days longer, so I strive to make them better. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
