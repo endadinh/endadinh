@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
