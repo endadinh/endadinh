@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The Superior Man is aware of Righteousness, the inferior man is aware of advantage. "</i></h5>**
+**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
