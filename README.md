@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
+**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Cheng Yen ___</b>*
 
 -----
 
