@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
+**<h5><i>" Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. "</i></h5>**
 
-*<b>___ Charles Péguy ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
