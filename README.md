@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
