@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
+**<h5><i>" If you do not change direction, you may end up where you are heading. "</i></h5>**
 
-*<b>___ P. Chidambaram ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
