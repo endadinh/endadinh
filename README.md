@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
+**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
 
-*<b>___ Carol Burnett ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
