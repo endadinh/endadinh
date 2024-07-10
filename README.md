@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
+**<h5><i>" Time you enjoyed wasting was not wasted. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
