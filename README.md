@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
+**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Theophrastus ___</b>*
 
 -----
 
