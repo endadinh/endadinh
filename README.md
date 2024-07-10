@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I prefer the folly of enthusiasm to the indifference of wisdom. "</i></h5>**
+**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Indira Gandhi ___</b>*
 
 -----
 
