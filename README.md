@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Delight in heedfulness! Guard well your thoughts! "</i></h5>**
+**<h5><i>" At the center of your being, you have the answer; you know who you are, and you know what you want. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
