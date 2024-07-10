@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
+**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
