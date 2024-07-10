@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
+**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
 
-*<b>___ Doris Day ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
