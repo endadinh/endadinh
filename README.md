@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have to do your own growing no matter how tall your grandfather was. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
