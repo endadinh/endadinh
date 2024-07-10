@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
+**<h5><i>" To be wronged is nothing unless you continue to remember it. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
