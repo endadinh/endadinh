@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
+**<h5><i>" When a thing is done, it's done. Don't look back. Look forward to your next objective. "</i></h5>**
 
-*<b>___ Doug Larson ___</b>*
+*<b>___ George Marshall ___</b>*
 
 -----
 
