@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Charles Péguy ___</b>*
 
 -----
 
