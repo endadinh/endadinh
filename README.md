@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
+**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
