@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
