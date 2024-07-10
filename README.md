@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
+**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Morris West ___</b>*
 
 -----
 
