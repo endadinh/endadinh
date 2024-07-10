@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. "</i></h5>**
+**<h5><i>" You have to do your own growing no matter how tall your grandfather was. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
