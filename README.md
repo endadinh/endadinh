@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
+**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
