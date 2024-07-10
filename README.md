@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When a thing is done, it's done. Don't look back. Look forward to your next objective. "</i></h5>**
+**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
 
-*<b>___ George Marshall ___</b>*
+*<b>___ Doris Day ___</b>*
 
 -----
 
