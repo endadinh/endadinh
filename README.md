@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
+**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
 
-*<b>___ Clay Shirky ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
