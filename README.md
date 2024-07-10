@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them. "</i></h5>**
+**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
