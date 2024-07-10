@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" I prefer the folly of enthusiasm to the indifference of wisdom. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
