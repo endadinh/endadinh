@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" At the center of your being, you have the answer; you know who you are, and you know what you want. "</i></h5>**
+**<h5><i>" Experience is not what happens to a man. It is what a man does with what happens to him. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
