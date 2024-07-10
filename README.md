@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
+**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
