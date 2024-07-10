@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thoughts we choose to think are the tools we use to paint the canvas of our lives. "</i></h5>**
+**<h5><i>" A true friend is one who overlooks your failures and tolerates your success! "</i></h5>**
 
-*<b>___ Louise Hay ___</b>*
+*<b>___ Doug Larson ___</b>*
 
 -----
 
