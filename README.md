@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are important enough to ask and you are blessed enough to receive back. "</i></h5>**
+**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
