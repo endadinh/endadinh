@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
+**<h5><i>" When in doubt, tell the truth. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
