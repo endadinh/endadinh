@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" The Superior Man is aware of Righteousness, the inferior man is aware of advantage. "</i></h5>**
 
 *<b>___ Confucius ___</b>*
 
