@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When in doubt, tell the truth. "</i></h5>**
+**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
