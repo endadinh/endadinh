@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The important thing is this: to be able at any moment to sacrifice what we are for what we could become. "</i></h5>**
+**<h5><i>" Spectacular achievement is always preceded by unspectacular preparation. "</i></h5>**
 
-*<b>___ Charles Du Bos ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
