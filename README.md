@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do not change direction, you may end up where you are heading. "</i></h5>**
+**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
