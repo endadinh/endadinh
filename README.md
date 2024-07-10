@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
+**<h5><i>" You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one. "</i></h5>**
 
-*<b>___ Cheng Yen ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
