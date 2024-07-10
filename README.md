@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace begins with a smile. "</i></h5>**
+**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
