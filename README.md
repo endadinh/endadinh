@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
+**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
 
-*<b>___ Rose Kennedy ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
