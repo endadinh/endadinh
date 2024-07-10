@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
