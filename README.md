@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
+**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
