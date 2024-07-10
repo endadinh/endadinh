@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
+**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Phil Jackson ___</b>*
 
 -----
 
