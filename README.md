@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
+**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ P. Chidambaram ___</b>*
 
 -----
 
