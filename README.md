@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
