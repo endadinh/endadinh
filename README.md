@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
+**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Mother Angelica ___</b>*
 
 -----
 
