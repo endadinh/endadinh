@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Light tomorrow with today! "</i></h5>**
+**<h5><i>" There are three faithful friends - an old wife, an old dog, and ready money. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
