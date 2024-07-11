@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" All serious daring starts from within. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Harriet Beecher Stowe ___</b>*
 
 -----
 
