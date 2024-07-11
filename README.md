@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
+**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
