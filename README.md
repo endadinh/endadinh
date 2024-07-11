@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Swami Vivekananda ___</b>*
 
 -----
 
