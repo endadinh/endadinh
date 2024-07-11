@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art challenges the technology, and the technology inspires the art. "</i></h5>**
+**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
 
-*<b>___ John Lasseter ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
