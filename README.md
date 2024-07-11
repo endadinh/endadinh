@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you cannot do great things, do small things in a great way. "</i></h5>**
+**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
