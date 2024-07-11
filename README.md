@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
