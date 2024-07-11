@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Chuck Norris ___</b>*
 
 -----
 
