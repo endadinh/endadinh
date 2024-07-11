@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
+**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Jimmy Dean ___</b>*
 
 -----
 
