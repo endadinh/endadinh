@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever you find yourself on the side of the majority, it is time to pause and reflect. "</i></h5>**
+**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
