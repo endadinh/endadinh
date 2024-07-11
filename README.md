@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
+**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
