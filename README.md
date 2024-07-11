@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
+**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
