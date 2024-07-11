@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With age comes wisdom and a high sex drive. And the wisdom to enjoy it. "</i></h5>**
+**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
 
-*<b>___ Amber Valletta ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
