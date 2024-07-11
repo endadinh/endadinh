@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All serious daring starts from within. "</i></h5>**
+**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
 
-*<b>___ Harriet Beecher Stowe ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
