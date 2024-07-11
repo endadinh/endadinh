@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
+**<h5><i>" Truth is generally the best vindication against slander. "</i></h5>**
 
-*<b>___ John Adams ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
