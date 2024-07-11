@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can always count on Americans to do the right thing - after they've tried everything else. "</i></h5>**
+**<h5><i>" The best cure for the body is a quiet mind. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
