@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
+**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Woodrow Wilson ___</b>*
 
 -----
 
