@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
+**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Franz Liszt ___</b>*
 
 -----
 
