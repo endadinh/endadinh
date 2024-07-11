@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
+**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
