@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. "</i></h5>**
+**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
 
-*<b>___ Olivier Messiaen ___</b>*
+*<b>___ John Locke ___</b>*
 
 -----
 
