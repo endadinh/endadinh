@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
