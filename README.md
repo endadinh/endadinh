@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
+**<h5><i>" Whenever you find yourself on the side of the majority, it is time to pause and reflect. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
