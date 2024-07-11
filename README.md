@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
+**<h5><i>" You can always count on Americans to do the right thing - after they've tried everything else. "</i></h5>**
 
-*<b>___ William Hazlitt ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
