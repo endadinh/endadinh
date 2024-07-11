@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have always thought the actions of men the best interpreters of their thoughts. "</i></h5>**
+**<h5><i>" With age comes wisdom and a high sex drive. And the wisdom to enjoy it. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Amber Valletta ___</b>*
 
 -----
 
