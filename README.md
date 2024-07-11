@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. "</i></h5>**
+**<h5><i>" It isn't where you come from, it's where you're going that counts. "</i></h5>**
 
-*<b>___ David Brinkley ___</b>*
+*<b>___ Ella Fitzgerald ___</b>*
 
 -----
 
