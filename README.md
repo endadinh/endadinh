@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
