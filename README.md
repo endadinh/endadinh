@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
+**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
