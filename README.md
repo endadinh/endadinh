@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best cure for the body is a quiet mind. "</i></h5>**
+**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
