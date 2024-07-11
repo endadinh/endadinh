@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. "</i></h5>**
+**<h5><i>" Gratitude is not only the greatest of virtues, but the parent of all the others. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
