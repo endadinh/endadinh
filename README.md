@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
+**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
 
-*<b>___ Jimmy Dean ___</b>*
+*<b>___ Archimedes ___</b>*
 
 -----
 
