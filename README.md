@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
+**<h5><i>" The calmed say that what is well-spoken is best; second, that one should say what is right, not unrighteous; third, what's pleasing, not displeasing; fourth, what is true, not false. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
