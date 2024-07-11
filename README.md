@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't where you come from, it's where you're going that counts. "</i></h5>**
+**<h5><i>" Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. "</i></h5>**
 
-*<b>___ Ella Fitzgerald ___</b>*
+*<b>___ Margaret Laurence ___</b>*
 
 -----
 
