@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep yourself to the sunshine and you cannot see the shadow. "</i></h5>**
+**<h5><i>" To know oneself is to study oneself in action with another person. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
