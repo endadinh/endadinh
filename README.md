@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is a word that describes something that doesn't work yet. "</i></h5>**
+**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
