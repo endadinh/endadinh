@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
+**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
 
-*<b>___ Franz Liszt ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
