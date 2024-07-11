@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is not only the greatest of virtues, but the parent of all the others. "</i></h5>**
+**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Montesquieu ___</b>*
 
 -----
 
