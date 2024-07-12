@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
+**<h5><i>" Science gives us knowledge, but only philosophy can give us wisdom. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
