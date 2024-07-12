@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
+**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
 
-*<b>___ Laurie Anderson ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
