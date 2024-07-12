@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
+**<h5><i>" Our most intimate friend is not he to whom we show the worst, but the best of our nature. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
