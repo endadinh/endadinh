@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
