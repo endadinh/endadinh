@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
+**<h5><i>" A man cannot be said to succeed in this life who does not satisfy one friend. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
