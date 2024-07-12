@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
+**<h5><i>" Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. "</i></h5>**
 
 *<b>___ Ralph Waldo Emerson ___</b>*
 
