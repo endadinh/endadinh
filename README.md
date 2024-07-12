@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
