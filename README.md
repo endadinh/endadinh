@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
+**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
