@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
