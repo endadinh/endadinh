@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
+**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
