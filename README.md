@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
+**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
