@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
