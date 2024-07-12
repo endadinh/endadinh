@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. "</i></h5>**
+**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
