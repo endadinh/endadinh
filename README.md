@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
+**<h5><i>" The gambling known as business looks with austere disfavor upon the business known as gambling. "</i></h5>**
 
-*<b>___ Niels Bohr ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
