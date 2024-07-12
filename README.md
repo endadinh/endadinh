@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
+**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
