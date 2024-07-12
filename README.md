@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
+**<h5><i>" Never put off till tomorrow what you can do today. "</i></h5>**
 
-*<b>___ Arthur Schopenhauer ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
