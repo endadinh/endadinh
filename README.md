@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
+**<h5><i>" Silence is a source of great strength. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
