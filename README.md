@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. "</i></h5>**
+**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Niels Bohr ___</b>*
 
 -----
 
