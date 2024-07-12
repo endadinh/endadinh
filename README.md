@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The gambling known as business looks with austere disfavor upon the business known as gambling. "</i></h5>**
+**<h5><i>" Friendship at first sight, like love at first sight, is said to be the only truth. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Herman Melville ___</b>*
 
 -----
 
