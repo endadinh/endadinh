@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So much technology, so little talent. "</i></h5>**
+**<h5><i>" Business, you know, may bring you money, but friendship hardly ever does. "</i></h5>**
 
-*<b>___ Vernor Vinge ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
