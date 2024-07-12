@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
+**<h5><i>" Every man takes the limits of his own field of vision for the limits of the world. "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
