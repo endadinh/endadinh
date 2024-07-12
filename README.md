@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
+**<h5><i>" You just can't beat the person who never gives up. "</i></h5>**
 
-*<b>___ Murray Gell-Mann ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
