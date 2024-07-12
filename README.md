@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
