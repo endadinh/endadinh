@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
