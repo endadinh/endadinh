@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
