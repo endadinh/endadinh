@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You just can't beat the person who never gives up. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
