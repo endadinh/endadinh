@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
+**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
