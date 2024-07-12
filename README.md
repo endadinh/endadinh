@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness. "</i></h5>**
+**<h5><i>" There are three faithful friends - an old wife, an old dog, and ready money. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
