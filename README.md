@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So much technology, so little talent. "</i></h5>**
+**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
 
-*<b>___ Vernor Vinge ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
