@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
