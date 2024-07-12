@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that a gesture of friendship, no matter how small, is always appreciated. "</i></h5>**
+**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
