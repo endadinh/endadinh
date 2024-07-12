@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
+**<h5><i>" Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Epicurus ___</b>*
 
 -----
 
