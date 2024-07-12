@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once we accept our limits, we go beyond them. "</i></h5>**
+**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
