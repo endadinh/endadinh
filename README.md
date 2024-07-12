@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
