@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
+**<h5><i>" Any sufficiently advanced technology is equivalent to magic. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ Arthur C. Clarke ___</b>*
 
 -----
 
