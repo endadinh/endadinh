@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
