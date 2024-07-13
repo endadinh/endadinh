@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ Richard Needham ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
