@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
