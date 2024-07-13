@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Honesty is the best policy. "</i></h5>**
+**<h5><i>" Cunning... is but the low mimic of wisdom. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
