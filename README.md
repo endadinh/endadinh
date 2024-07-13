@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
