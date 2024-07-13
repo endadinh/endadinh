@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you can imagine is real. "</i></h5>**
+**<h5><i>" Our character is what we do when we think no one is looking. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
