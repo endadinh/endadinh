@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
+**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Sam Keen ___</b>*
 
 -----
 
