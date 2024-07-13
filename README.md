@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. "</i></h5>**
+**<h5><i>" Your mind will answer most questions if you learn to relax and wait for the answer. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ William Burroughs ___</b>*
 
 -----
 
