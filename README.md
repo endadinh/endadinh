@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius unrefined resembles a flash of lightning, but wisdom is like the sun. "</i></h5>**
+**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
 
-*<b>___ Franz Grillparzer ___</b>*
+*<b>___ Phil Jackson ___</b>*
 
 -----
 
