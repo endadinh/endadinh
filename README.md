@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
+**<h5><i>" Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. "</i></h5>**
 
-*<b>___ Charles Darwin ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
