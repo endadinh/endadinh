@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our character is what we do when we think no one is looking. "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
