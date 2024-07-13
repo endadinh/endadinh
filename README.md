@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
