@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
+**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
