@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
+**<h5><i>" He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
