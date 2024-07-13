@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
