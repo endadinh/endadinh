@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
+**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
