@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Leave no stone unturned. "</i></h5>**
+**<h5><i>" Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Richard Needham ___</b>*
 
 -----
 
