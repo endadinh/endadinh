@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
