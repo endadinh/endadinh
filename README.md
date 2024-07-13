@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Corita Kent ___</b>*
 
 -----
 
