@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
+**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
 
-*<b>___ William Hazlitt ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
