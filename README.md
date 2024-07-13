@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
