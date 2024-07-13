@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. "</i></h5>**
+**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
