@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
