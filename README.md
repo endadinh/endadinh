@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Louis Pasteur ___</b>*
 
 -----
 
