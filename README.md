@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
