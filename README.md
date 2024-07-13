@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
+**<h5><i>" A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. "</i></h5>**
 
-*<b>___ Jimi Hendrix ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
