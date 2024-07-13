@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
+**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
