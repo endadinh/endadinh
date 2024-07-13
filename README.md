@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
+**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Viktor Frankl ___</b>*
 
 -----
 
