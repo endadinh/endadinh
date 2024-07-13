@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where all think alike, no one thinks very much. "</i></h5>**
+**<h5><i>" Honesty is the best policy. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
