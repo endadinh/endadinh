@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak when you are angry, and you will make the best speech you will ever regret. "</i></h5>**
+**<h5><i>" This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
