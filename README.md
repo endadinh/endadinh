@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
+**<h5><i>" There's power in looking silly and not caring that you do. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Amy Poehler ___</b>*
 
 -----
 
