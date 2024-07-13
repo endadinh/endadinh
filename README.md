@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your mind will answer most questions if you learn to relax and wait for the answer. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ William Burroughs ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
