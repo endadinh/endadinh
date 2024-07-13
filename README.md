@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it. "</i></h5>**
+**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
