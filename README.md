@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
+**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
 
-*<b>___ Corita Kent ___</b>*
+*<b>___ John Ruskin ___</b>*
 
 -----
 
