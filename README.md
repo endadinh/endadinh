@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
+**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
 
-*<b>___ A. Powell Davies ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
