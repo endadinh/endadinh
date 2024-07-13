@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
+**<h5><i>" Everything you can imagine is real. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
