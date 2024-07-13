@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom. "</i></h5>**
+**<h5><i>" The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ William Hurt ___</b>*
 
 -----
 
