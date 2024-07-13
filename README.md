@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
+**<h5><i>" Genius unrefined resembles a flash of lightning, but wisdom is like the sun. "</i></h5>**
 
-*<b>___ Viktor Frankl ___</b>*
+*<b>___ Franz Grillparzer ___</b>*
 
 -----
 
