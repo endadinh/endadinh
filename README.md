@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is love there is life. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
