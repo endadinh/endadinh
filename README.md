@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
+**<h5><i>" Great minds discuss ideas; average minds discuss events; small minds discuss people. "</i></h5>**
 
-*<b>___ Arthur Schopenhauer ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
