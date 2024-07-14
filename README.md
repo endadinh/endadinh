@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Act as if what you do makes a difference. It does. "</i></h5>**
+**<h5><i>" Yesterday I dared to struggle. Today I dare to win. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Bernadette Devlin ___</b>*
 
 -----
 
