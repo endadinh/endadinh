@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
+**<h5><i>" Act as if what you do makes a difference. It does. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
