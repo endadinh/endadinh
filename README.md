@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can observe a lot just by watching. "</i></h5>**
+**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
