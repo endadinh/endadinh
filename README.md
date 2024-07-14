@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
+**<h5><i>" If only wed stop trying to be happy wed have a pretty good time. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
