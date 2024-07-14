@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend too much time thinking about a thing, you'll never get it done. "</i></h5>**
+**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
