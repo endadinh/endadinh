@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing permanent except change. "</i></h5>**
+**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
