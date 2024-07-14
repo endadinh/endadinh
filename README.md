@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one's courage. "</i></h5>**
+**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
