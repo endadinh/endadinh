@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
