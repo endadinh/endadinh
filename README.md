@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He is a wise man who does not grieve for the things which he has not but rejoices for those which he has. "</i></h5>**
+**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
