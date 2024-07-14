@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain. "</i></h5>**
+**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Thomas Dewar ___</b>*
 
 -----
 
