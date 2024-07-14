@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
+**<h5><i>" The superior man is modest in his speech but exceeds in his actions. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
