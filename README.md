@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points. "</i></h5>**
+**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Michael Jordan ___</b>*
 
 -----
 
