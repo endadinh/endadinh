@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
+**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ William Wordsworth ___</b>*
 
 -----
 
