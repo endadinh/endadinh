@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
+**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
 
-*<b>___ Doris Day ___</b>*
+*<b>___ Saul Alinsky ___</b>*
 
 -----
 
