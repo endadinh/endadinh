@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
+**<h5><i>" There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
