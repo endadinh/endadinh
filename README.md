@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
+**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ W. H. Auden ___</b>*
 
 -----
 
