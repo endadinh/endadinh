@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Respect should be earned by actions, and not acquired by years. "</i></h5>**
+**<h5><i>" True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Joseph Addison ___</b>*
 
 -----
 
