@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. "</i></h5>**
+**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
