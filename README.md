@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're never a loser until you quit trying. "</i></h5>**
+**<h5><i>" There is nothing permanent except change. "</i></h5>**
 
-*<b>___ Mike Ditka ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
