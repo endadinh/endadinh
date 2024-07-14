@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" At the center of your being, you have the answer; you know who you are, and you know what you want. "</i></h5>**
+**<h5><i>" You're never a loser until you quit trying. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Mike Ditka ___</b>*
 
 -----
 
