@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another? "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
