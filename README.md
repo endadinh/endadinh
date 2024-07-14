@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ William Wordsworth ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
