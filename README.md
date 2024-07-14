@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
+**<h5><i>" Meetings are indispensable when you don't want to do anything. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ John Kenneth Galbraith ___</b>*
 
 -----
 
