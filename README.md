@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
+**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
 
-*<b>___ Saul Alinsky ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
