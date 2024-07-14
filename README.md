@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
+**<h5><i>" Everyone in the world ought to do the things for which he is specially adapted. It is the part of wisdom to recognize what each one of us is best fitted for, and it is the part of education to perfect and utilize such predispositions. Because education can direct and aid nature but can never transform her. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Maria Montessori ___</b>*
 
 -----
 
