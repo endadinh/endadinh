@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is modest in his speech but exceeds in his actions. "</i></h5>**
+**<h5><i>" You can observe a lot just by watching. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
