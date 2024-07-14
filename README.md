@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
+**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
