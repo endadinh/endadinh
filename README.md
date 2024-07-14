@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
+**<h5><i>" Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. "</i></h5>**
 
-*<b>___ W. H. Auden ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
