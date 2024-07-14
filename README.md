@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic will get you from A to B. Imagination will take you everywhere. "</i></h5>**
+**<h5><i>" I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
