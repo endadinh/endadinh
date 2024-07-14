@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that we are fundamentally the same and have the same basic potential. "</i></h5>**
+**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Doris Day ___</b>*
 
 -----
 
