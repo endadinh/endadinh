@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
+**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
