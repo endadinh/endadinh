@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A business that makes nothing but money is a poor business. "</i></h5>**
+**<h5><i>" Respect should be earned by actions, and not acquired by years. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
