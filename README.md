@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not all those who wander are lost. "</i></h5>**
+**<h5><i>" Where there is love there is life. "</i></h5>**
 
-*<b>___ J. R. R. Tolkien ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
