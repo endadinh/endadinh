@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can. "</i></h5>**
+**<h5><i>" I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. "</i></h5>**
 
-*<b>___ Neil Gaiman ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
