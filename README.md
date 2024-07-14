@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
+**<h5><i>" Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. "</i></h5>**
 
-*<b>___ Forrest Church ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
