@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
