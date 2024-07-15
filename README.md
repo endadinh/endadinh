@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
+**<h5><i>" The thoughts we choose to think are the tools we use to paint the canvas of our lives. "</i></h5>**
 
-*<b>___ Theodore H. White ___</b>*
+*<b>___ Louise Hay ___</b>*
 
 -----
 
