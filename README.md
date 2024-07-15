@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever you find yourself on the side of the majority, it is time to pause and reflect. "</i></h5>**
+**<h5><i>" The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
