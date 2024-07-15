@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
+**<h5><i>" To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
