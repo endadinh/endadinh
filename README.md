@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no great genius without some touch of madness. "</i></h5>**
+**<h5><i>" Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
