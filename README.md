@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
+**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Alfred Tennyson ___</b>*
 
 -----
 
