@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
+**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Carol Burnett ___</b>*
 
 -----
 
