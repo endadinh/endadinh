@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You've got to go out on a limb sometimes because that's where the fruit is. "</i></h5>**
+**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
 
-*<b>___ Will Rogers ___</b>*
+*<b>___ Franz Liszt ___</b>*
 
 -----
 
