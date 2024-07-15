@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination rules the world. "</i></h5>**
+**<h5><i>" Ignorance never settles a question. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
