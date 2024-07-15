@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
