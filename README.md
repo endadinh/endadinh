@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" What is a weed? A plant whose virtues have not yet been discovered. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
