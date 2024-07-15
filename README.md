@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
+**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
 
-*<b>___ Franz Liszt ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
