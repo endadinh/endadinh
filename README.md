@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. "</i></h5>**
+**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
