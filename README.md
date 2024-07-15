@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
+**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
