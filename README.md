@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" May all beings have happy minds. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
