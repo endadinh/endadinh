@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
+**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
 
-*<b>___ Carol Burnett ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
