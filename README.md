@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
+**<h5><i>" Do what you can. Want what you have. Be who you are. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ Forrest Church ___</b>*
 
 -----
 
