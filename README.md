@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
+**<h5><i>" A man sees in the world what he carries in his heart. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
