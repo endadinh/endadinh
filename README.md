@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
+**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
