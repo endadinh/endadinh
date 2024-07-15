@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can do all because they think they can. "</i></h5>**
+**<h5><i>" I know not age, nor weariness nor defeat. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Rose Kennedy ___</b>*
 
 -----
 
