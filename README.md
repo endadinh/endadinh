@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve. "</i></h5>**
+**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
