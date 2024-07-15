@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thoughts we choose to think are the tools we use to paint the canvas of our lives. "</i></h5>**
+**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
 
-*<b>___ Louise Hay ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
