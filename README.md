@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
+**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
