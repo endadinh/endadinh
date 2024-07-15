@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future is completely open, and we are writing it moment to moment. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
