@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
