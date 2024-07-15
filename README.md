@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
+**<h5><i>" One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Simone de Beauvoir ___</b>*
 
 -----
 
