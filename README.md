@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
+**<h5><i>" I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over. "</i></h5>**
 
-*<b>___ Jean Antoine Petit-Senn ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
