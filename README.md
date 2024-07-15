@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are masters of the unsaid words, but slaves of those we let slip out. "</i></h5>**
+**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
