@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorance never settles a question. "</i></h5>**
+**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ John Junor ___</b>*
 
 -----
 
