@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? "</i></h5>**
+**<h5><i>" Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
