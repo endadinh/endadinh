@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is a weed? A plant whose virtues have not yet been discovered. "</i></h5>**
+**<h5><i>" Do not turn back when you are just at the goal. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
