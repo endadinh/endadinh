@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
+**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
 
-*<b>___ Alfred Tennyson ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
