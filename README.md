@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" May all beings have happy minds. "</i></h5>**
+**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
