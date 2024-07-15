@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
+**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
