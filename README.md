@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
+**<h5><i>" We are masters of the unsaid words, but slaves of those we let slip out. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
