@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
+**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
