@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't ruin the present with the ruined past. "</i></h5>**
+**<h5><i>" Change in all things is sweet. "</i></h5>**
 
-*<b>___ Ellen Gilchrist ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
