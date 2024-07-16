@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
+**<h5><i>" Programs must be written for people to read, and only incidentally for machines to execute. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Hal Abelson ___</b>*
 
 -----
 
