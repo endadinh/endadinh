@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
+**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
