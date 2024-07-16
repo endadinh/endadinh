@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with our passions, as it is with fire and water, they are good servants but bad masters. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
