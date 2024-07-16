@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
+**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
