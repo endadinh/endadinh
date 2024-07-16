@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" I can, therefore I am. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
