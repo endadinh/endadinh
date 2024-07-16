@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
+**<h5><i>" There is no way to prosperity, prosperity is the way. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
