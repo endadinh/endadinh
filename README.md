@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to prosperity, prosperity is the way. "</i></h5>**
+**<h5><i>" Wisdom begins in wonder. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
