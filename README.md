@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
+**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
