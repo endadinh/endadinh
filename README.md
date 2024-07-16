@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All human wisdom is summed up in two words; wait and hope. "</i></h5>**
+**<h5><i>" All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts. "</i></h5>**
 
-*<b>___ Alexandre Dumas ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
