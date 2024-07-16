@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love has no age, no limit; and no death. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ John Galsworthy ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
