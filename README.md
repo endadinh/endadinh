@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
+**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
