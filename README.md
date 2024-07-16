@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
+**<h5><i>" Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
