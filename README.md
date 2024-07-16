@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
+**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
