@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
+**<h5><i>" If we did the things we are capable of, we would astound ourselves. "</i></h5>**
 
-*<b>___ Christian Dior ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
