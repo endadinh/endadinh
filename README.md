@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
+**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
 
-*<b>___ Jon Kabat-Zinn ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
