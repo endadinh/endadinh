@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
+**<h5><i>" Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
