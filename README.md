@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future. It comes soon enough. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
