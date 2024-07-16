@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. "</i></h5>**
+**<h5><i>" Learning never exhausts the mind. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
