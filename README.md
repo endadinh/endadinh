@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning never exhausts the mind. "</i></h5>**
+**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
