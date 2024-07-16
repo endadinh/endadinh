@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make our own fortunes and we call them fate. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
