@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart. "</i></h5>**
+**<h5><i>" That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
