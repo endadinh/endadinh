@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
+**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
