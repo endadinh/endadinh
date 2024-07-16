@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
+**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
 
-*<b>___ Loretta Young ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
