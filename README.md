@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
+**<h5><i>" Setting an example is not the main means of influencing another, it is the only means. "</i></h5>**
 
-*<b>___ Kin Hubbard ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
