@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
+**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
 
-*<b>___ Ted Williams ___</b>*
+*<b>___ M. Scott Peck ___</b>*
 
 -----
 
