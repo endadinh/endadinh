@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
+**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
