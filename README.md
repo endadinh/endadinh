@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. "</i></h5>**
+**<h5><i>" True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing. "</i></h5>**
 
-*<b>___ Eric Hoffer ___</b>*
+*<b>___ Baltasar Gracián ___</b>*
 
 -----
 
