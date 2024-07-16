@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Programs must be written for people to read, and only incidentally for machines to execute. "</i></h5>**
+**<h5><i>" I do not know the American gentleman, god forgive me for putting two such words together. "</i></h5>**
 
-*<b>___ Hal Abelson ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
