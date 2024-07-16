@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
