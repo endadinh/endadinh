@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing. "</i></h5>**
+**<h5><i>" Happiness is not something ready-made. It comes from your own actions. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
