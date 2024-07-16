@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not know the American gentleman, god forgive me for putting two such words together. "</i></h5>**
+**<h5><i>" Don't ruin the present with the ruined past. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Ellen Gilchrist ___</b>*
 
 -----
 
