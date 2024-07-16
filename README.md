@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
+**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
