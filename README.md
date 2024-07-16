@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
+**<h5><i>" If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Rollo May ___</b>*
 
 -----
 
