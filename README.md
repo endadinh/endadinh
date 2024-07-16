@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
