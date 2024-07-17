@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't let praise or criticism get to you. It's a weakness to get caught up in either one. "</i></h5>**
+**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ John Keats ___</b>*
 
 -----
 
