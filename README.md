@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Swim upstream. Go the other way. Ignore the conventional wisdom. "</i></h5>**
+**<h5><i>" There is nothing permanent except change. "</i></h5>**
 
-*<b>___ Sam Walton ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
