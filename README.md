@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
+**<h5><i>" It always seems impossible until it's done. "</i></h5>**
 
-*<b>___ Ezra Taft Benson ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
