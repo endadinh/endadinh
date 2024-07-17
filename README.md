@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
+**<h5><i>" Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. "</i></h5>**
 
-*<b>___ Dan Gable ___</b>*
+*<b>___ Thomas Aquinas ___</b>*
 
 -----
 
