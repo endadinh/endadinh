@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men make more opportunities than they find. "</i></h5>**
+**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
