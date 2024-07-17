@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
