@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" Maxim for life: You get treated in life the way you teach people to treat you. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
