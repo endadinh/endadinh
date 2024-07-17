@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The road of excess leads to the palace of wisdom. "</i></h5>**
+**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
