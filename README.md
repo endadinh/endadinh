@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
+**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
