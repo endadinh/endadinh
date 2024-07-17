@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
+**<h5><i>" I never teach my pupils. I only attempt to provide the conditions in which they can learn. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
