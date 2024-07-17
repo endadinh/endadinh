@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
+**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Jack Welch ___</b>*
 
 -----
 
