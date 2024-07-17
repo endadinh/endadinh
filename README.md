@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
+**<h5><i>" What is a weed? A plant whose virtues have not yet been discovered. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
