@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. "</i></h5>**
+**<h5><i>" Love and compassion open our own inner life, reducing stress, distrust and loneliness. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
