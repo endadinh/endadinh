@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
+**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
