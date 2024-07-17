@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
+**<h5><i>" I am always ready to learn although I do not always like being taught. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
