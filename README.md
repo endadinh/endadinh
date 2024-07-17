@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
+**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
