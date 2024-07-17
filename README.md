@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
+**<h5><i>" We may encounter many defeats, but we must not be defeated. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
