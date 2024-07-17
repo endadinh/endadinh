@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It always seems impossible until it's done. "</i></h5>**
+**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Dan Gable ___</b>*
 
 -----
 
