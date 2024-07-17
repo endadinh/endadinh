@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never teach my pupils. I only attempt to provide the conditions in which they can learn. "</i></h5>**
+**<h5><i>" He that is giddy thinks the world turns round. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
