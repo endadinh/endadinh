@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
+**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
