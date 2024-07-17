@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it. "</i></h5>**
+**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
 
-*<b>___ Hugh Jackman ___</b>*
+*<b>___ Tony Blair ___</b>*
 
 -----
 
