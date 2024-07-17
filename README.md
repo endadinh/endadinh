@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
