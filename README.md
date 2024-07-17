@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
