@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
+**<h5><i>" All I can say about life is, Oh God, enjoy it! "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Bob Newhart ___</b>*
 
 -----
 
