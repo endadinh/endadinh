@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Ezra Taft Benson ___</b>*
 
 -----
 
