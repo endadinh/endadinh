@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side. "</i></h5>**
+**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. "</i></h5>**
 
-*<b>___ Yolanda Hadid ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
