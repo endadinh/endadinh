@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you can imagine is real. "</i></h5>**
+**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
