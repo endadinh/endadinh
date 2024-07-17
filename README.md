@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and compassion open our own inner life, reducing stress, distrust and loneliness. "</i></h5>**
+**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
