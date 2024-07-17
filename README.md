@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let there be no purpose in friendship save the deepening of the spirit. "</i></h5>**
+**<h5><i>" I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Yolanda Hadid ___</b>*
 
 -----
 
