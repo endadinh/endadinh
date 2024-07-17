@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who will play with cats must expect to be scratched. "</i></h5>**
+**<h5><i>" It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Charles Kingsley ___</b>*
 
 -----
 
