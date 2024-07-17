@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to go east, don't go west. "</i></h5>**
+**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
 
-*<b>___ Ramakrishna ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
