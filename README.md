@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let yourself be silently drawn by the stronger pull of what you really love. "</i></h5>**
+**<h5><i>" No snowflake in an avalanche ever feels responsible. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
