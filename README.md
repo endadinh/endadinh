@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To listen well is as powerful a means of communication and influence as to talk well. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ John Marshall ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
