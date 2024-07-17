@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never explain - your friends do not need it and your enemies will not believe you anyway. "</i></h5>**
+**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
