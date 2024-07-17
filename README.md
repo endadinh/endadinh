@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing permanent except change. "</i></h5>**
+**<h5><i>" Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
