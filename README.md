@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
