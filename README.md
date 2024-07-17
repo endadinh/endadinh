@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature takes away any faculty that is not used. "</i></h5>**
+**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
 
-*<b>___ William Inge ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
