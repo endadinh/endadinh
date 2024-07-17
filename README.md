@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I love you the more in that I believe you had liked me for my own sake and for nothing else. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ John Keats ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
