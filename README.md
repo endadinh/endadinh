@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sooner or later, those who win are those who think they can. "</i></h5>**
+**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
