@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The winds and waves are always on the side of the ablest navigators. "</i></h5>**
+**<h5><i>" Smile, breathe and go slowly. "</i></h5>**
 
-*<b>___ Edward Gibbon ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
