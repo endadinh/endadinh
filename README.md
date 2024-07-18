@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
+**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
