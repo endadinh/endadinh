@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" God always takes the simplest way. "</i></h5>**
+**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
