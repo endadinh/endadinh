@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Smile, breathe and go slowly. "</i></h5>**
+**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
