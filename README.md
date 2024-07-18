@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
