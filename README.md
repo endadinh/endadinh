@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
+**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
