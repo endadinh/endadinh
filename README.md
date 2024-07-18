@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge... "</i></h5>**
 
-*<b>___ Kathleen Norris ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
