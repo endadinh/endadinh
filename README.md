@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
+**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Václav Havel ___</b>*
 
 -----
 
