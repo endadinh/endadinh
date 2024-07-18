@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't be afraid to go out on a limb. That's where the fruit is. "</i></h5>**
+**<h5><i>" Love is a serious mental disease. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
