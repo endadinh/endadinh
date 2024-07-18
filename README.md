@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreams come true. Without that possibility, nature would not incite us to have them. "</i></h5>**
+**<h5><i>" I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals. "</i></h5>**
 
-*<b>___ John Updike ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
