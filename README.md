@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
+**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
