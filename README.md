@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always ready to learn although I do not always like being taught. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
