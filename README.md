@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
+**<h5><i>" The day of fortune is like a harvest day, we must be busy when the corn is ripe. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Torquato Tasso ___</b>*
 
 -----
 
