@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ E. E. Cummings ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
