@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
+**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
