@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sports do not build character. They reveal it. "</i></h5>**
+**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
 
-*<b>___ Heywood Broun ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
