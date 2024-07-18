@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Don't be afraid to go out on a limb. That's where the fruit is. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
