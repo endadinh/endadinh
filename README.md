@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be the chief but never the lord. "</i></h5>**
+**<h5><i>" God always takes the simplest way. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
