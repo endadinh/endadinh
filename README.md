@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
+**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
 
-*<b>___ Ralph Marston ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
