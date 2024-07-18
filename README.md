@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
+**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Ernie Banks ___</b>*
 
 -----
 
