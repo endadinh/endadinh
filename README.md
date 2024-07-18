@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today you are you! That is truer than true! There is no one alive who is you-er than you! "</i></h5>**
+**<h5><i>" Sports do not build character. They reveal it. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Heywood Broun ___</b>*
 
 -----
 
