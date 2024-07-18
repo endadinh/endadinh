@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One man practicing sportsmanship is far better than a hundred teaching it. "</i></h5>**
+**<h5><i>" No day in which you learn something is a complete loss. "</i></h5>**
 
-*<b>___ Knute Rockne ___</b>*
+*<b>___ David Eddings ___</b>*
 
 -----
 
