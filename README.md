@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
+**<h5><i>" Dreams come true. Without that possibility, nature would not incite us to have them. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ John Updike ___</b>*
 
 -----
 
