@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
+**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
 
-*<b>___ Václav Havel ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
