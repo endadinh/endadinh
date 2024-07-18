@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
+**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
 
-*<b>___ Václav Havel ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
