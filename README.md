@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
+**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ E. E. Cummings ___</b>*
 
 -----
 
