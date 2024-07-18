@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
+**<h5><i>" When I do good I feel good, when I do bad I feel bad, and that's my religion. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
