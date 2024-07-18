@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is more important than knowledge... "</i></h5>**
+**<h5><i>" Hell, there are no rules here-- we're trying to accomplish something. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
