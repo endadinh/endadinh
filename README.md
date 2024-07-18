@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
+**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
