@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
+**<h5><i>" One man practicing sportsmanship is far better than a hundred teaching it. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Knute Rockne ___</b>*
 
 -----
 
