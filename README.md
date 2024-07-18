@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
+**<h5><i>" I have learned that to be with those I like is enough. "</i></h5>**
 
-*<b>___ W. H. Auden ___</b>*
+*<b>___ Walt Whitman ___</b>*
 
 -----
 
