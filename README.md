@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
+**<h5><i>" Never give up, for that is just the place and time that the tide will turn. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Harriet Beecher Stowe ___</b>*
 
 -----
 
