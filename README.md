@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You give before you get. "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
