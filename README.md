@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never give up, for that is just the place and time that the tide will turn. "</i></h5>**
+**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
 
-*<b>___ Harriet Beecher Stowe ___</b>*
+*<b>___ W. H. Auden ___</b>*
 
 -----
 
