@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" Friendship always benefits; love sometimes injures. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
