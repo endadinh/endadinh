@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have knowledge, let others light their candles in it. "</i></h5>**
+**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
 
-*<b>___ Margaret Fuller ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
