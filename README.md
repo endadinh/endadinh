@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good luck is another name for tenacity of purpose. "</i></h5>**
+**<h5><i>" Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ William Saroyan ___</b>*
 
 -----
 
