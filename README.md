@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing in a caterpillar that tells you it's going to be a butterfly. "</i></h5>**
+**<h5><i>" To get the full value of joy you must have someone to divide it with. "</i></h5>**
 
-*<b>___ Buckminster Fuller ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
