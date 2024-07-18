@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
+**<h5><i>" Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. "</i></h5>**
 
-*<b>___ Ernie Banks ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
