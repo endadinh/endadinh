@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am a man of fixed and unbending principles, the first of which is to be flexible at all times. "</i></h5>**
+**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
 
-*<b>___ Everett Dirksen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
