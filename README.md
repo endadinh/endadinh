@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
+**<h5><i>" Opportunity often comes disguised in the form of misfortune, or temporary defeat. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
