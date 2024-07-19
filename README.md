@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
+**<h5><i>" A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Joseph Roux ___</b>*
 
 -----
 
