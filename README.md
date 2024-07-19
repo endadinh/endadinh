@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
+**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
