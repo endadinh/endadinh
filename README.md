@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
+**<h5><i>" Those who cling to perceptions and views wander the world offending people. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
