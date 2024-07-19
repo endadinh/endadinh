@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
