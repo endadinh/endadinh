@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
+**<h5><i>" We must become the change we want to see. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
