@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't talk about what you have done or what you are going to do. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
