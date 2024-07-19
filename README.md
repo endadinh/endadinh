@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
+**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
