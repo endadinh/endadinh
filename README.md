@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
+**<h5><i>" It's not what you look at that matters, it's what you see. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
