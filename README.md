@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ Joyce Brothers ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
