@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. "</i></h5>**
+**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Simone de Beauvoir ___</b>*
 
 -----
 
