@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who cling to perceptions and views wander the world offending people. "</i></h5>**
+**<h5><i>" The greatest obstacle to connecting with our joy is resentment. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
