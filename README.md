@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
