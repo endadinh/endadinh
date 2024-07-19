@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
+**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
