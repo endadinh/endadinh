@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is the highest kite one can fly. "</i></h5>**
+**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
 
-*<b>___ Lauren Bacall ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
