@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
+**<h5><i>" To profit from good advice requires more wisdom than to give it. "</i></h5>**
 
-*<b>___ Bernice Reagon ___</b>*
+*<b>___ Wilson Mizner ___</b>*
 
 -----
 
