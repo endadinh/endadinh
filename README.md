@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
+**<h5><i>" We don't stop playing because we grow old; we grow old because we stop playing. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
