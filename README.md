@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
