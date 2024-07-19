@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To profit from good advice requires more wisdom than to give it. "</i></h5>**
+**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
 
-*<b>___ Wilson Mizner ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
