@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
+**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
 
-*<b>___ Simone de Beauvoir ___</b>*
+*<b>___ Joyce Brothers ___</b>*
 
 -----
 
