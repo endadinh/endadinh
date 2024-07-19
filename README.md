@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
+**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
 
-*<b>___ Michael Jordan ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
