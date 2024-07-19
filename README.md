@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
+**<h5><i>" Don't talk about what you have done or what you are going to do. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
