@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
+**<h5><i>" Imagination is the highest kite one can fly. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Lauren Bacall ___</b>*
 
 -----
 
