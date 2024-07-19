@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
+**<h5><i>" If it is not right do not do it; if it is not true do not say it. "</i></h5>**
 
-*<b>___ Robert F. Kennedy ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
