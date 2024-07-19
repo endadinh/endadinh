@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
