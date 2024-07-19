@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
