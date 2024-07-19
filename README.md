@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
+**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
