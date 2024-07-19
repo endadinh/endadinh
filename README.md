@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
