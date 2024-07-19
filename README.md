@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to go east, don't go west. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Ramakrishna ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
