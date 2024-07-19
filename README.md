@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must become the change we want to see. "</i></h5>**
+**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
