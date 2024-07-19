@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
+**<h5><i>" I am a man of fixed and unbending principles, the first of which is to be flexible at all times. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Everett Dirksen ___</b>*
 
 -----
 
