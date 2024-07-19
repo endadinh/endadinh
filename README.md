@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool. "</i></h5>**
+**<h5><i>" Do not follow where the path may lead. Go, instead, where there is no path and leave a trail. "</i></h5>**
 
-*<b>___ Joseph Roux ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
