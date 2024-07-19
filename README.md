@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
+**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
