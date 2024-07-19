@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Michael Jordan ___</b>*
 
 -----
 
