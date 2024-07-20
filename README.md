@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
+**<h5><i>" Read as you taste fruit or savor wine, or enjoy friendship, love or life. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
