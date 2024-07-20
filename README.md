@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is like sound health; the value of it is seldom known until it is lost. "</i></h5>**
+**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
 
-*<b>___ Charles Caleb Colton ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
