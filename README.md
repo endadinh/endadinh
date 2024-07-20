@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
+**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
 
-*<b>___ Ellen Glasgow ___</b>*
+*<b>___ Alexis Carrel ___</b>*
 
 -----
 
