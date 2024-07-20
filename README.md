@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
