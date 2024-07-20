@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Almost everything comes from nothing. "</i></h5>**
+**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
