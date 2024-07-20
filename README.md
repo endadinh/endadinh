@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each misfortune you encounter will carry in it the seed of tomorrows good luck. "</i></h5>**
+**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Alfred North Whitehead ___</b>*
 
 -----
 
