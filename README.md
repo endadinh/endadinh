@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
+**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
