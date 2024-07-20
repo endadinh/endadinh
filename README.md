@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way you see people is the way you treat them, and the way you treat them is what they become. "</i></h5>**
+**<h5><i>" The simplest things are often the truest. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
