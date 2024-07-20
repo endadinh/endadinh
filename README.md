@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No bird soars too high if he soars with his own wings. "</i></h5>**
+**<h5><i>" You can observe a lot just by watching. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
