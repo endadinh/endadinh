@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
+**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
 
-*<b>___ Niels Bohr ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
