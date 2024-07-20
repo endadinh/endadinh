@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. "</i></h5>**
+**<h5><i>" Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others "</i></h5>**
 
-*<b>___ Harold Geneen ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
