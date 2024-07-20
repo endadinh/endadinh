@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
+**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
