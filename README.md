@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
+**<h5><i>" No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
