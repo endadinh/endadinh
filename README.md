@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
+**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
