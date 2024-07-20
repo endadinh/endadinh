@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Olivier Messiaen ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
