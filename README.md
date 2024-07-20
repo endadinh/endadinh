@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. "</i></h5>**
+**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Ellen Glasgow ___</b>*
 
 -----
 
