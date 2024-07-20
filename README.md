@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No day in which you learn something is a complete loss. "</i></h5>**
+**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
 
-*<b>___ David Eddings ___</b>*
+*<b>___ Niels Bohr ___</b>*
 
 -----
 
