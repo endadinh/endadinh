@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Alexis Carrel ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
