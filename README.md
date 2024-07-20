@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
