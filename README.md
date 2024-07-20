@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
