@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A good plan violently executed now is better than a perfect plan executed next week. "</i></h5>**
+**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
