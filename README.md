@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I know what love is, it is because of you. "</i></h5>**
+**<h5><i>" One of the most beautiful qualities of true friendship is to understand and to be understood. "</i></h5>**
 
-*<b>___ Hermann Hesse ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
