@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can observe a lot just by watching. "</i></h5>**
+**<h5><i>" If you do not change direction, you may end up where you are heading. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
