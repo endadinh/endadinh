@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The simplest things are often the truest. "</i></h5>**
+**<h5><i>" Almost everything comes from nothing. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
