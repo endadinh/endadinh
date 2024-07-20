@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who trusts men will make fewer mistakes than he who distrusts them. "</i></h5>**
+**<h5><i>" In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. "</i></h5>**
 
-*<b>___ Camillo Benso, Count of Cavour ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
