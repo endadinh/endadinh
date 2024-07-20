@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
+**<h5><i>" The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
