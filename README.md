@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. "</i></h5>**
+**<h5><i>" In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Harold Geneen ___</b>*
 
 -----
 
