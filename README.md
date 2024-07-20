@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No work or love will flourish out of guilt, fear, or hollowness of heart, just as no valid plans for the future can be made by those who have no capacity for living now. "</i></h5>**
+**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
