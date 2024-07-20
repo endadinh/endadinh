@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
+**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
