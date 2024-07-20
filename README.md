@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
+**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
