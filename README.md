@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
+**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
 
-*<b>___ Thomas Hobbes ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
