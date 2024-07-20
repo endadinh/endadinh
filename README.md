@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is not what happens to you; it's what you do with what happens to you. "</i></h5>**
+**<h5><i>" One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Hannah Szenes ___</b>*
 
 -----
 
