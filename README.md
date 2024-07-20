@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
+**<h5><i>" Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
