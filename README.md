@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded. "</i></h5>**
+**<h5><i>" So is cheerfulness, or a good temper, the more it is spent, the more remains. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
