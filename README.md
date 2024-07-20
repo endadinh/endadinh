@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
+**<h5><i>" There are two kinds of failures: those who thought and never did, and those who did and never thought. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
