@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
+**<h5><i>" If I know what love is, it is because of you. "</i></h5>**
 
-*<b>___ Sandy Koufax ___</b>*
+*<b>___ Hermann Hesse ___</b>*
 
 -----
 
