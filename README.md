@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
+**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
 
-*<b>___ Muhammad Ali ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
