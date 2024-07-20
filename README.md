@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
