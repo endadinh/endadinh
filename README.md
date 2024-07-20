@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. "</i></h5>**
+**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
