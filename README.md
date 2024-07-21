@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character develops itself in the stream of life. "</i></h5>**
+**<h5><i>" Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
