@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No garden is without its weeds. "</i></h5>**
+**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
