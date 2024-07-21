@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
+**<h5><i>" Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship. "</i></h5>**
 
-*<b>___ Susan Orlean ___</b>*
+*<b>___ Johann Kaspar Lavater ___</b>*
 
 -----
 
