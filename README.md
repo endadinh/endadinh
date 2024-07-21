@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
+**<h5><i>" The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
