@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
