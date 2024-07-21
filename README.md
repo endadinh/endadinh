@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
+**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
 
-*<b>___ Lucretius ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
