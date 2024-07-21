@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fortune befriends the bold. "</i></h5>**
+**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
 
-*<b>___ John Dryden ___</b>*
+*<b>___ Mao Zedong ___</b>*
 
 -----
 
