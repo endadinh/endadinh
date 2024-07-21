@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
+**<h5><i>" Mediocrity knows nothing higher than itself, but talent instantly recognizes genius. "</i></h5>**
 
-*<b>___ Sydney J. Harris ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
