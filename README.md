@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Any sufficiently advanced technology is equivalent to magic. "</i></h5>**
+**<h5><i>" In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. "</i></h5>**
 
-*<b>___ Arthur C. Clarke ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
