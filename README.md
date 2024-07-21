@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
+**<h5><i>" The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. "</i></h5>**
 
-*<b>___ Jane Roberts ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
