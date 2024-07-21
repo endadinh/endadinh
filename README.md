@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Jean Cocteau ___</b>*
 
 -----
 
