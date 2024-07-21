@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You got to be careful if you don't know where you're going, because you might not get there. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
