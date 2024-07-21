@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
+**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
 
-*<b>___ Paramahansa Yogananda ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
