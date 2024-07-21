@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. "</i></h5>**
+**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Robert Graves ___</b>*
 
 -----
 
