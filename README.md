@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has never been my object to record my dreams, just to realize them. "</i></h5>**
+**<h5><i>" No garden is without its weeds. "</i></h5>**
 
-*<b>___ Man Ray ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
