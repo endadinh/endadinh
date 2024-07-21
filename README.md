@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? "</i></h5>**
+**<h5><i>" A garden is always a series of losses set against a few triumphs, like life itself. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ May Sarton ___</b>*
 
 -----
 
