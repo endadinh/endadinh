@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
+**<h5><i>" Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
