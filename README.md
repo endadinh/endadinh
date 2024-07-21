@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so. "</i></h5>**
+**<h5><i>" I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
