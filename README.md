@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
+**<h5><i>" Your talent is God's gift to you. What you do with it is your gift back to God. "</i></h5>**
 
-*<b>___ Václav Havel ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
