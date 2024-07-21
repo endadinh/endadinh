@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things turn out best for those who make the best of the way things turn out. "</i></h5>**
+**<h5><i>" Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again. "</i></h5>**
 
-*<b>___ Jack Buck ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
