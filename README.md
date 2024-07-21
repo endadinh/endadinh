@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest minds are capable of the greatest vices as well as of the greatest virtues. "</i></h5>**
+**<h5><i>" An appeaser is one who feeds a crocodile, hoping it will eat him last. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
