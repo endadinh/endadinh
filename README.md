@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" You are always free to change your mind and choose a different future, or a different past. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
