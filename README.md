@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Peter Abelard ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
