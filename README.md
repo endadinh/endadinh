@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that sometimes not getting what you want is a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" You got to be careful if you don't know where you're going, because you might not get there. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
