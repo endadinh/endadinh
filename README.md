@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
+**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
