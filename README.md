@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ George Bernard Shaw ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
