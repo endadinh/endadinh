@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Sydney J. Harris ___</b>*
 
 -----
 
