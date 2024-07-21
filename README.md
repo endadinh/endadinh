@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship can afford true knowledge. It does not depend on darkness and ignorance. "</i></h5>**
+**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
