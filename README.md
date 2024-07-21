@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
+**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
