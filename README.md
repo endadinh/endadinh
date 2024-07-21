@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
+**<h5><i>" The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
