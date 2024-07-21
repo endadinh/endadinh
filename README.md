@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
+**<h5><i>" Our passion is our strength. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Billie Armstrong ___</b>*
 
 -----
 
