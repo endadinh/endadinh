@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One fails forward toward success. "</i></h5>**
+**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Václav Havel ___</b>*
 
 -----
 
