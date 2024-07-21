@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The differences between friends cannot but reinforce their friendship. "</i></h5>**
+**<h5><i>" It has never been my object to record my dreams, just to realize them. "</i></h5>**
 
-*<b>___ Mao Zedong ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
