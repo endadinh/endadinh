@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. "</i></h5>**
+**<h5><i>" Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so. "</i></h5>**
 
-*<b>___ Ravi Zacharias ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
