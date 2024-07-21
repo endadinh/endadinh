@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
+**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
 
-*<b>___ Alexander the Great ___</b>*
+*<b>___ Jane Roberts ___</b>*
 
 -----
 
