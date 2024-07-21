@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
-*<b>___ Johann Kaspar Lavater ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
