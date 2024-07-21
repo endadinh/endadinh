@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
+**<h5><i>" A single lamp may light hundreds of thousands of lamps without itself being diminished. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
