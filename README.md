@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality leaves a lot to the imagination. "</i></h5>**
+**<h5><i>" The greatest minds are capable of the greatest vices as well as of the greatest virtues. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
