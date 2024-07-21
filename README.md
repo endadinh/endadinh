@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown. "</i></h5>**
+**<h5><i>" I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. "</i></h5>**
 
 *<b>___ Woody Allen ___</b>*
 
