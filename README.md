@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
+**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
