@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
+**<h5><i>" I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Mia Hamm ___</b>*
 
 -----
 
