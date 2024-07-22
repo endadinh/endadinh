@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People are not lazy. They simply have impotent goals - that is, goals that do not inspire them. "</i></h5>**
+**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
