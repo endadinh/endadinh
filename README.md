@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
+**<h5><i>" There is nothing so useless as doing efficiently that which should not be done at all. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
