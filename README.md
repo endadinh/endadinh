@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
+**<h5><i>" Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Harvey Mackay ___</b>*
 
 -----
 
