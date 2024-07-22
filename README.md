@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
+**<h5><i>" There is only one happiness in life, to love and be loved. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ George Sand ___</b>*
 
 -----
 
