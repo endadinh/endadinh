@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts. "</i></h5>**
+**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Arthur M. Schlesinger Jr. ___</b>*
 
 -----
 
