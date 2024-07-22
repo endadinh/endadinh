@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
