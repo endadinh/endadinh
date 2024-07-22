@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The Universal Zulu Nation stands to acknowledge wisdom, understanding, freedom, justice, and equality, peace, unity, love, and having fun, work, overcoming the negative through the positive, science, mathematics, faith, facts, and the wonders of God, whether we call him Allah, Jehovah, Yahweh, or Jah. "</i></h5>**
+**<h5><i>" Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. "</i></h5>**
 
-*<b>___ Afrika Bambaataa ___</b>*
+*<b>___ Paavo Nurmi ___</b>*
 
 -----
 
