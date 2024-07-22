@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" The key is to keep company only with people who uplift you, whose presence calls forth your best. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
