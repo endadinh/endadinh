@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
