@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
+**<h5><i>" So long as a person is capable of self-renewal they are a living being. "</i></h5>**
 
-*<b>___ Warren Buffett ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
