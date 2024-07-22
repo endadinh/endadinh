@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
