@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Life is a progress, and not a station. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
