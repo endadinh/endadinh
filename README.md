@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you want to know who you are? Don't ask. Act! Action will delineate and define you. "</i></h5>**
+**<h5><i>" An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
