@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is always a sweet responsibility, never an opportunity. "</i></h5>**
+**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
