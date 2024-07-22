@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful. "</i></h5>**
+**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
 
-*<b>___ Harvey Mackay ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
