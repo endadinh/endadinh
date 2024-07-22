@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Avoid having your ego so close to your position that when your position falls, your ego goes with it. "</i></h5>**
+**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
 
-*<b>___ Colin Powell ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
