@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
