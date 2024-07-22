@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
+**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
 
-*<b>___ Arthur M. Schlesinger Jr. ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
