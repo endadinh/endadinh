@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The exercise of an extraordinary gift is the supremist pleasure in life. "</i></h5>**
+**<h5><i>" No bird soars too high if he soars with his own wings. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
