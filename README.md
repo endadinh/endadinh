@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" The most certain sign of wisdom is cheerfulness. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
