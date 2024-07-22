@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
