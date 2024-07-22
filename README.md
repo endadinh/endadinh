@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
+**<h5><i>" Friendship is always a sweet responsibility, never an opportunity. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
