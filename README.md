@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
+**<h5><i>" All human wisdom is summed up in two words; wait and hope. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Alexandre Dumas ___</b>*
 
 -----
 
