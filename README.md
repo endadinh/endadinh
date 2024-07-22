@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fine words and an insinuating appearance are seldom associated with true virtue "</i></h5>**
+**<h5><i>" All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
