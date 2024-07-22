@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
+**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
