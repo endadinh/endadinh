@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
+**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
