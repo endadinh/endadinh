@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever happens, take responsibility. "</i></h5>**
+**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
