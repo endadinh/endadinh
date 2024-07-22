@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you label me you negate me. "</i></h5>**
+**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
