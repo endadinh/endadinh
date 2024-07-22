@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Lewis Carroll ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
