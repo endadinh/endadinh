@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
+**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
