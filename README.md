@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No bird soars too high if he soars with his own wings. "</i></h5>**
+**<h5><i>" There is nothing happens to any person but what was in his power to go through with. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
