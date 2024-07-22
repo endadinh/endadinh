@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the sleep that nourishes wisdom. "</i></h5>**
+**<h5><i>" If you don't know where you are going, any road will get you there. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Lewis Carroll ___</b>*
 
 -----
 
