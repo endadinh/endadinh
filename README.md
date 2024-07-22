@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
+**<h5><i>" It's easy to make a buck. It's a lot tougher to make a difference. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Tom Brokaw ___</b>*
 
 -----
 
