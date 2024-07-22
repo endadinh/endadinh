@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
+**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
