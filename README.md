@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quick decisions are unsafe decisions. "</i></h5>**
+**<h5><i>" Once you label me you negate me. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
