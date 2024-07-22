@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An economist is an expert who will know tomorrow why the things he predicted yesterday didn't happen today. "</i></h5>**
+**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
