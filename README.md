@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A rolling stone gathers no moss. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
