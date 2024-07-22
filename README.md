@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge is proud that it knows so much; wisdom is humble that it knows no more. "</i></h5>**
+**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ William Cowper ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
