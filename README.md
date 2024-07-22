@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
+**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ Christopher Reeve ___</b>*
 
 -----
 
