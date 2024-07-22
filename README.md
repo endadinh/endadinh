@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All human wisdom is summed up in two words; wait and hope. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Alexandre Dumas ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
