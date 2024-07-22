@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most certain sign of wisdom is cheerfulness. "</i></h5>**
+**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
