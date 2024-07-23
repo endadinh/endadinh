@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
+**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
