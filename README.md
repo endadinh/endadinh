@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
+**<h5><i>" Never pretend to a love which you do not actually feel, for love is not ours to command. "</i></h5>**
 
-*<b>___ Benjamin Haydon ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
