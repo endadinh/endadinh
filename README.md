@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have. "</i></h5>**
+**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
