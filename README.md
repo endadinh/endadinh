@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
+**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
