@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
+**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
