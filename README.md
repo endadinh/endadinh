@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
