@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
+**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Montesquieu ___</b>*
 
 -----
 
