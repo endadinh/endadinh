@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
+**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
