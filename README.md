@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
+**<h5><i>" Doing what you love is the cornerstone of having abundance in your life. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
