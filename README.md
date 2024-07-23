@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
+**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
