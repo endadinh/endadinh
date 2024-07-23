@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All I can say about life is, Oh God, enjoy it! "</i></h5>**
+**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
 
-*<b>___ Bob Newhart ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
