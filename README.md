@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
+**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Joyce Meyer ___</b>*
 
 -----
 
