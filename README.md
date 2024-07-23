@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sincere friends of this world are as ship lights in the stormiest of nights. "</i></h5>**
+**<h5><i>" In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. "</i></h5>**
 
-*<b>___ Giotto ___</b>*
+*<b>___ Eric Hoffer ___</b>*
 
 -----
 
