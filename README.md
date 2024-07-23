@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
+**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ P. Chidambaram ___</b>*
 
 -----
 
