@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It all depends on how we look at things, and not how they are in themselves. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
