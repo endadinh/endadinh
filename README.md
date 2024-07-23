@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
