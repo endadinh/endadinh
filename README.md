@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An appeaser is one who feeds a crocodile, hoping it will eat him last. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
