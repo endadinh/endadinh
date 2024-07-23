@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An ounce of emotion is equal to a ton of facts. "</i></h5>**
+**<h5><i>" An appeaser is one who feeds a crocodile, hoping it will eat him last. "</i></h5>**
 
-*<b>___ John Junor ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
