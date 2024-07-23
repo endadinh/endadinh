@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
+**<h5><i>" All experiences are preceded by mind, having mind as their master, created by mind. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
