@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match. "</i></h5>**
+**<h5><i>" Government of the people, by the people, for the people, shall not perish from the Earth. "</i></h5>**
 
-*<b>___ Mia Hamm ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
