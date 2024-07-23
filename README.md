@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All wisdom does not reside in Delhi. "</i></h5>**
+**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
 
-*<b>___ P. Chidambaram ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
