@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
+**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
