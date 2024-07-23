@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
