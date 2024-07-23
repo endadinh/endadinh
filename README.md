@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never pretend to a love which you do not actually feel, for love is not ours to command. "</i></h5>**
+**<h5><i>" Yesterday I dared to struggle. Today I dare to win. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Bernadette Devlin ___</b>*
 
 -----
 
