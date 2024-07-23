@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We love life, not because we are used to living but because we are used to loving. "</i></h5>**
+**<h5><i>" I want my friend to miss me as long as I miss him. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
