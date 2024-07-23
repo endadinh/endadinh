@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" The eye sees only what the mind is prepared to comprehend. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Henri Bergson ___</b>*
 
 -----
 
