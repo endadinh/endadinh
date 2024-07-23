@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
