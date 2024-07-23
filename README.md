@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
+**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
