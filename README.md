@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. "</i></h5>**
+**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
 
-*<b>___ Audrey Hepburn ___</b>*
+*<b>___ Robert Graves ___</b>*
 
 -----
 
