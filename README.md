@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
