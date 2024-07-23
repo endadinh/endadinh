@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
+**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
