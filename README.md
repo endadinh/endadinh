@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
+**<h5><i>" There is only one success - to be able to spend your life in your own way. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Christopher Morley ___</b>*
 
 -----
 
