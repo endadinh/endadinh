@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
