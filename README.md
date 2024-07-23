@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ Elon Musk ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
