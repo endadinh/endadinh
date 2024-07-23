@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing what you love is the cornerstone of having abundance in your life. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
