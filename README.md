@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
+**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
