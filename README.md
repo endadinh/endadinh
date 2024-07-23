@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Unless one is able to live fully in the present, the future is a hoax. "</i></h5>**
+**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
