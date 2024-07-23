@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Government of the people, by the people, for the people, shall not perish from the Earth. "</i></h5>**
+**<h5><i>" Unless one is able to live fully in the present, the future is a hoax. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
