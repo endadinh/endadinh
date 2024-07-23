@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
+**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
