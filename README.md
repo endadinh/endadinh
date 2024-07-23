@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
+**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
 
-*<b>___ Joyce Meyer ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
