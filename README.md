@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The secret of getting ahead is getting started. "</i></h5>**
+**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Satchel Paige ___</b>*
 
 -----
 
