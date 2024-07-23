@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
+**<h5><i>" The sincere friends of this world are as ship lights in the stormiest of nights. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Giotto ___</b>*
 
 -----
 
