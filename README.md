@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
