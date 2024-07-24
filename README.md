@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future. "</i></h5>**
+**<h5><i>" The secret of business is to know something that nobody else knows. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Aristotle Onassis ___</b>*
 
 -----
 
