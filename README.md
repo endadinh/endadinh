@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
+**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
 
-*<b>___ Tom Peters ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
