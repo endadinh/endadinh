@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two kinds of failures: those who thought and never did, and those who did and never thought. "</i></h5>**
+**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
