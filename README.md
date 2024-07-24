@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
+**<h5><i>" The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Michelle Obama ___</b>*
 
 -----
 
