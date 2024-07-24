@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else? "</i></h5>**
+**<h5><i>" Before God we are all equally wise - and equally foolish. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
