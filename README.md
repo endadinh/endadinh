@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
+**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
 
-*<b>___ Northrop Frye ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
