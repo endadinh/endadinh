@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
+**<h5><i>" Much wisdom often goes with fewest words. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
