@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This is why I loved technology: if you used it right, it could give you power and privacy. "</i></h5>**
+**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
 
-*<b>___ Cory Doctorow ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
