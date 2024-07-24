@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
