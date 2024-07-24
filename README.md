@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much wisdom often goes with fewest words. "</i></h5>**
+**<h5><i>" What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
