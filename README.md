@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This is the final test of a gentleman: his respect for those who can be of no possible value to him. "</i></h5>**
+**<h5><i>" Take time to deliberate, but when the time for action has arrived, stop thinking and go in. "</i></h5>**
 
-*<b>___ William Lyon Phelps ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
