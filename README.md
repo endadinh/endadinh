@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Step with care and great tact and remember that Life's a Great Balancing Act. "</i></h5>**
+**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Ansel Adams ___</b>*
 
 -----
 
