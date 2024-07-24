@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No party has a monopoly on wisdom. No democracy works without compromise. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
