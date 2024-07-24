@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take time to deliberate, but when the time for action has arrived, stop thinking and go in. "</i></h5>**
+**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Phil Jackson ___</b>*
 
 -----
 
