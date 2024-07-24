@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
+**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Holly Near ___</b>*
 
 -----
 
