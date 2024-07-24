@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
+**<h5><i>" Step with care and great tact and remember that Life's a Great Balancing Act. "</i></h5>**
 
-*<b>___ Thomas Hobbes ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
