@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When in doubt, tell the truth. "</i></h5>**
+**<h5><i>" The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else? "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
