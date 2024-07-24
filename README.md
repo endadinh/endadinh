@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
