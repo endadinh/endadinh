@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
+**<h5><i>" He who angers you conquers you. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
