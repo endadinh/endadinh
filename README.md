@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we are liberated from our own fear, our presence automatically liberates others. "</i></h5>**
+**<h5><i>" A man is great by deeds, not by birth. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
