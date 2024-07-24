@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When deeds and words are in accord, the whole world is transformed. "</i></h5>**
+**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
 
-*<b>___ Zhuang Zhou ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
