@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have. Do what you can. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
