@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
+**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Tom Peters ___</b>*
 
 -----
 
