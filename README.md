@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
+**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
 
-*<b>___ Muhammad Ali ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
