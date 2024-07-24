@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
+**<h5><i>" This is why I loved technology: if you used it right, it could give you power and privacy. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Cory Doctorow ___</b>*
 
 -----
 
