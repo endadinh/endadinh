@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Light tomorrow with today! "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
