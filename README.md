@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. "</i></h5>**
+**<h5><i>" There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool. "</i></h5>**
 
-*<b>___ Margaret Laurence ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
