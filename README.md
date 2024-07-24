@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
+**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Thomas Hardy ___</b>*
 
 -----
 
