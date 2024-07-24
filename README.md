@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the depth of winter, I finally learned that there was within me an invincible summer. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
