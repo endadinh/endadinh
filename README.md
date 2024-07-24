@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
+**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
 
-*<b>___ Thomas Haynes Bayly ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
