@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
+**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
