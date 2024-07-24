@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The longer we dwell on our misfortunes, the greater is their power to harm us. "</i></h5>**
+**<h5><i>" Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
