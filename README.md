@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
+**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
