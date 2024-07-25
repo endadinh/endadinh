@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep silence for the most part, and speak only when you must, and then briefly. "</i></h5>**
+**<h5><i>" The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
