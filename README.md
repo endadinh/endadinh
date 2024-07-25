@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
+**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
