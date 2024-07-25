@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What lies behind us and what lies before us are small matters compared to what lies within us. "</i></h5>**
+**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
