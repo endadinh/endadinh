@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning is finding out what you already know. "</i></h5>**
+**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Orson Welles ___</b>*
 
 -----
 
