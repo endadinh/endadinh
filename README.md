@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Audrey Hepburn ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
