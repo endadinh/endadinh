@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. "</i></h5>**
+**<h5><i>" In friendship as well as love, ignorance very often contributes more to our happiness than knowledge. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
