@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
+**<h5><i>" People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Masayoshi Son ___</b>*
 
 -----
 
