@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
+**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
 
-*<b>___ Cheng Yen ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
