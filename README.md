@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Listen to what you know instead of what you fear. "</i></h5>**
+**<h5><i>" Technology… the knack of so arranging the world that we don't have to experience it. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Max Frisch ___</b>*
 
 -----
 
