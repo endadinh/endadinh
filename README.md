@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
+**<h5><i>" Decision is a risk rooted in the courage of being free. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Paul Tillich ___</b>*
 
 -----
 
