@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that failure is an event, not a person. "</i></h5>**
+**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
