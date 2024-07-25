@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
+**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Etty Hillesum ___</b>*
 
 -----
 
