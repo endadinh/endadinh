@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology… the knack of so arranging the world that we don't have to experience it. "</i></h5>**
+**<h5><i>" If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. "</i></h5>**
 
-*<b>___ Max Frisch ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
