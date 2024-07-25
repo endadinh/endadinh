@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
+**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
