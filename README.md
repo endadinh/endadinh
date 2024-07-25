@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every problem has a gift for you in its hands. "</i></h5>**
+**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
