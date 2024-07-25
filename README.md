@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Much wisdom often goes with fewer words. "</i></h5>**
+**<h5><i>" Keep silence for the most part, and speak only when you must, and then briefly. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
