@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good, better, best. Never let it rest. ‘Til your good is better and your better is best. "</i></h5>**
+**<h5><i>" Where there is great love, there are always miracles. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Willa Cather ___</b>*
 
 -----
 
