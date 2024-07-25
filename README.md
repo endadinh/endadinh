@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
+**<h5><i>" The best preparation for tomorrow is doing your best today. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
