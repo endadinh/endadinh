@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
+**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
