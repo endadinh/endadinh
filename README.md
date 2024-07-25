@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
+**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
