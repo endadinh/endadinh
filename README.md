@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Hannah Arendt ___</b>*
 
 -----
 
