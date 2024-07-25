@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is great love, there are always miracles. "</i></h5>**
+**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
 
-*<b>___ Willa Cather ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
