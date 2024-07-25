@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Decision is a risk rooted in the courage of being free. "</i></h5>**
+**<h5><i>" Be less curious about people and more curious about ideas. "</i></h5>**
 
-*<b>___ Paul Tillich ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
