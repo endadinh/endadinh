@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Dag Hammarskjöld ___</b>*
 
 -----
 
