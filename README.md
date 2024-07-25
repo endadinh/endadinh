@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
+**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
 
-*<b>___ Henry J. Kaiser ___</b>*
+*<b>___ Joseph Stalin ___</b>*
 
 -----
 
