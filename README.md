@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each day provides its own gifts. "</i></h5>**
+**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
