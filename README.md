@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Edmund Burke ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
