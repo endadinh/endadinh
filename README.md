@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
