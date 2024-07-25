@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
+**<h5><i>" Much wisdom often goes with fewer words. "</i></h5>**
 
-*<b>___ Pierre Teilhard de Chardin ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
