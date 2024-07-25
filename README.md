@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
+**<h5><i>" When your desires are strong enough you will appear to possess superhuman powers to achieve. "</i></h5>**
 
-*<b>___ Joseph Stalin ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
