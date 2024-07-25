@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. "</i></h5>**
+**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
