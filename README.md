@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
