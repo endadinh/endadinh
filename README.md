@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Pierre Teilhard de Chardin ___</b>*
 
 -----
 
