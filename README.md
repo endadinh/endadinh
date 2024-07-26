@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
+**<h5><i>" Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
