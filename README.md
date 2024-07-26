@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are that vast thing that you see far, far off with great telescopes. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
