@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
+**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
