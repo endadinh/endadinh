@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
