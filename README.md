@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A noble one produces an abundance of merit by having a compassionate mind towards all living beings. "</i></h5>**
+**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
