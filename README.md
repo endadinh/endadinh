@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
+**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Maureen Dowd ___</b>*
 
 -----
 
