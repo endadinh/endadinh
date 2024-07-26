@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
+**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
 
-*<b>___ Pierre Teilhard de Chardin ___</b>*
+*<b>___ Paramahansa Yogananda ___</b>*
 
 -----
 
