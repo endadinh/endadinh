@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
+**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
