@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. "</i></h5>**
+**<h5><i>" Great are they who see that spiritual is stronger than any material force, that thoughts rule the world. "</i></h5>**
 
-*<b>___ Joan Rivers ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
