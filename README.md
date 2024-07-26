@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ Ken Venturi ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
