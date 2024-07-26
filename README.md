@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the neglect of timely repair that makes rebuilding necessary. "</i></h5>**
+**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
 
-*<b>___ Richard Whately ___</b>*
+*<b>___ Molière ___</b>*
 
 -----
 
