@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. "</i></h5>**
+**<h5><i>" You are that vast thing that you see far, far off with great telescopes. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
