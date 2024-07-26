@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning is always today. "</i></h5>**
+**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
 
-*<b>___ Mary Wollstonecraft ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
