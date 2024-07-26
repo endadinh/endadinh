@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
+**<h5><i>" Our doubts are traitors and make us lose the good we often might win, by fearing to attempt. "</i></h5>**
 
-*<b>___ Naguib Mahfouz ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
