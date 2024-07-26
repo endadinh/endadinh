@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
+**<h5><i>" A noble one produces an abundance of merit by having a compassionate mind towards all living beings. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
