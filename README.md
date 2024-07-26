@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The years teach much which the days never know. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
