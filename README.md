@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. "</i></h5>**
+**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
