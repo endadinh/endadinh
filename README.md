@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
+**<h5><i>" You can't cross the sea merely by standing and staring at the water. "</i></h5>**
 
-*<b>___ Nargis Fakhri ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
