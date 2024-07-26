@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
+**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
 
-*<b>___ Lin Yutang ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
