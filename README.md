@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
+**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
