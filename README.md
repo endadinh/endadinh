@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" The real problem is not whether machines think but whether men do. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ B. F. Skinner ___</b>*
 
 -----
 
