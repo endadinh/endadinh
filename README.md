@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Swim upstream. Go the other way. Ignore the conventional wisdom. "</i></h5>**
+**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
 
-*<b>___ Sam Walton ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
