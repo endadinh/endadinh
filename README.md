@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The possibilities are numerous once we decide to act and not react. "</i></h5>**
+**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
 
-*<b>___ George Bernard Shaw ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
