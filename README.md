@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
+**<h5><i>" Take time to deliberate, but when the time for action has arrived, stop thinking and go in. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
