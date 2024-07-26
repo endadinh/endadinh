@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men speak because they have something to say; Fools because they have to say something. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
