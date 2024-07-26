@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
+**<h5><i>" The world is round so that friendship may encircle it. "</i></h5>**
 
-*<b>___ Maureen Dowd ___</b>*
+*<b>___ Pierre Teilhard de Chardin ___</b>*
 
 -----
 
