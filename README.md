@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. "</i></h5>**
+**<h5><i>" Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
