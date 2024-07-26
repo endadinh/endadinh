@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
+**<h5><i>" The beginning is always today. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Mary Wollstonecraft ___</b>*
 
 -----
 
