@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
+**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Naguib Mahfouz ___</b>*
 
 -----
 
