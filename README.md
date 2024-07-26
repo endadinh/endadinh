@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind. "</i></h5>**
+**<h5><i>" It is a miracle that curiosity survives formal education. "</i></h5>**
 
-*<b>___ Henry James ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
