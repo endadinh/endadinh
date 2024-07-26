@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
+**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
 
-*<b>___ Frank Lloyd Wright ___</b>*
+*<b>___ Lin Yutang ___</b>*
 
 -----
 
