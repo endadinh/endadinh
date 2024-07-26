@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
+**<h5><i>" Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Joan Rivers ___</b>*
 
 -----
 
