@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
+**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
 
-*<b>___ Robert Fulghum ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
