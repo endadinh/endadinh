@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ken Venturi ___</b>*
 
 -----
 
