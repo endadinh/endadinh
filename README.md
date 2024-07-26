@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" Take no thought of who is right or wrong or who is better than. Be not for or against. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
