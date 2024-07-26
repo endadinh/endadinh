@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
+**<h5><i>" No man is free who is not master of himself. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
