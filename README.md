@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
+**<h5><i>" If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Robert Fulghum ___</b>*
 
 -----
 
