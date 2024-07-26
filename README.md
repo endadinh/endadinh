@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take no thought of who is right or wrong or who is better than. Be not for or against. "</i></h5>**
+**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
