@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What do we live for, if it is not to make life less difficult for each other? "</i></h5>**
+**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
