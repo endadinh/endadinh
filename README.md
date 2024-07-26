@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man is free who is not master of himself. "</i></h5>**
+**<h5><i>" Success is getting what you want. Happiness is wanting what you get. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
