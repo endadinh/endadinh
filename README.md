@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
