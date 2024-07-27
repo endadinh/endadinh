@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" There's power in looking silly and not caring that you do. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ Amy Poehler ___</b>*
 
 -----
 
