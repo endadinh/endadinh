@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trying to define yourself is like trying to bite your own teeth. "</i></h5>**
+**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
