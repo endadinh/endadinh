@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
+**<h5><i>" In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. "</i></h5>**
 
-*<b>___ Calvin Coolidge ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
