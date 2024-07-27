@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing permanent except change. "</i></h5>**
+**<h5><i>" Trying to define yourself is like trying to bite your own teeth. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
