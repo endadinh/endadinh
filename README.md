@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
