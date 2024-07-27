@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
+**<h5><i>" Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
