@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There's power in looking silly and not caring that you do. "</i></h5>**
+**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
 
-*<b>___ Amy Poehler ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
