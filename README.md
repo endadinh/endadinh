@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" Wherever you go, go with all your heart. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
