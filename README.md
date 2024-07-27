@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love cures people - both the ones who give it and the ones who receive it. "</i></h5>**
+**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
 
-*<b>___ Karl Menninger ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
