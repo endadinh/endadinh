@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
+**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
