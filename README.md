@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" Real success is finding your lifework in the work that you love. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ David McCullough ___</b>*
 
 -----
 
