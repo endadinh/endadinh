@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" From error to error one discovers the entire truth. "</i></h5>**
+**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
