@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Alfred Adler ___</b>*
 
 -----
 
