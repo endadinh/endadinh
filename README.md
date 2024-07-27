@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
+**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
