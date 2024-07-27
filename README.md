@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
