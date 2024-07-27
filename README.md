@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
+**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
 
-*<b>___ Léon Blum ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
