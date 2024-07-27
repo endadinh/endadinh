@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
+**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
