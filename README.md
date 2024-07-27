@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Real success is finding your lifework in the work that you love. "</i></h5>**
+**<h5><i>" It is the mark of an educated mind to be able to entertain a thought without accepting it. "</i></h5>**
 
-*<b>___ David McCullough ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
