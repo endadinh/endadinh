@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
+**<h5><i>" He who angers you conquers you. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Elizabeth Kenny ___</b>*
 
 -----
 
