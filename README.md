@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
+**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
 
-*<b>___ Bill Watterson ___</b>*
+*<b>___ Thomas Hardy ___</b>*
 
 -----
 
