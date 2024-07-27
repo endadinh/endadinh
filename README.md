@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Joseph Addison ___</b>*
 
 -----
 
