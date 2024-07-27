@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. "</i></h5>**
+**<h5><i>" You cannot step twice into the same river, for other waters are continually flowing in. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
