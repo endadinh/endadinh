@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
+**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
