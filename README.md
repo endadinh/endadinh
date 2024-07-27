@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
+**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
