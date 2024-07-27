@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
+**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
