@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no expedient to which a man will not go to avoid the labor of thinking. "</i></h5>**
+**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
