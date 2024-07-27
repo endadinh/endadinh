@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A ruffled mind makes a restless pillow. "</i></h5>**
+**<h5><i>" Ethical axioms are found and tested not very differently from the axioms of science. Truth is what stands the test of experience. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
