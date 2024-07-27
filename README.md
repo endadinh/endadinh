@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
