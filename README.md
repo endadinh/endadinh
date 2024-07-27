@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
