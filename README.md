@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is with words as with sunbeams. The more they are condensed, the deeper they burn. "</i></h5>**
+**<h5><i>" Love cures people - both the ones who give it and the ones who receive it. "</i></h5>**
 
-*<b>___ Robert Southey ___</b>*
+*<b>___ Karl Menninger ___</b>*
 
 -----
 
