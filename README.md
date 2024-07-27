@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. "</i></h5>**
+**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jack Welch ___</b>*
 
 -----
 
