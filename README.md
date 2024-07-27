@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
