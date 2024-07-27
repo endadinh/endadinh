@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. "</i></h5>**
+**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jawaharlal Nehru ___</b>*
 
 -----
 
