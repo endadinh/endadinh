@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
+**<h5><i>" Anybody can make history. Only a great man can write it. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
