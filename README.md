@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
+**<h5><i>" Adopt the pace of nature: her secret is patience. "</i></h5>**
 
-*<b>___ Samuel Taylor Coleridge ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
