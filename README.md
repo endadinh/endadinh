@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
+**<h5><i>" Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it. "</i></h5>**
 
-*<b>___ Mignon McLaughlin ___</b>*
+*<b>___ M. Scott Peck ___</b>*
 
 -----
 
