@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" See the positive side, the potential, and make an effort. "</i></h5>**
+**<h5><i>" Happiness mainly comes from our own attitude, rather than from external factors. "</i></h5>**
 
 *<b>___ Dalai Lama ___</b>*
 
