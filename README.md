@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" Just as much as we see in others, we have in ourselves. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ William Hazlitt ___</b>*
 
 -----
 
