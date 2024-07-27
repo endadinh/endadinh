@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who angers you conquers you. "</i></h5>**
+**<h5><i>" It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Mignon McLaughlin ___</b>*
 
 -----
 
