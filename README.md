@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Thomas Hardy ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
