@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
+**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
 
-*<b>___ Rita Mae Brown ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
