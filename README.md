@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
+**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Jawaharlal Nehru ___</b>*
 
 -----
 
