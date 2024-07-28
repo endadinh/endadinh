@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
+**<h5><i>" I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
