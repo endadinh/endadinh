@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
+**<h5><i>" Creativity comes from trust. Trust your instincts. And never hope more than you work. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Rita Mae Brown ___</b>*
 
 -----
 
