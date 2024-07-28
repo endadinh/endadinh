@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
