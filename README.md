@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
+**<h5><i>" The greatest part of our happiness depends on our dispositions, not our circumstances. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Martha Washington ___</b>*
 
 -----
 
