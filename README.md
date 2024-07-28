@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. "</i></h5>**
+**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
