@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
+**<h5><i>" If we open a quarrel between past and present, we shall find that we have lost the future. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
