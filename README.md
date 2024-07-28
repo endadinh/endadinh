@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
+**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
