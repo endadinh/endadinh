@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sincerity is the way of Heaven. The attainment of sincerity is the way of men. "</i></h5>**
+**<h5><i>" Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
