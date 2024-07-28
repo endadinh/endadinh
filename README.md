@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest part of our happiness depends on our dispositions, not our circumstances. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Martha Washington ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
