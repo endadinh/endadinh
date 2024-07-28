@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meditate … do not delay, lest you later regret it. "</i></h5>**
+**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
