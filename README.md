@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
+**<h5><i>" The only limit to your impact is your imagination and commitment. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
