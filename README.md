@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
+**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
