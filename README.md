@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
