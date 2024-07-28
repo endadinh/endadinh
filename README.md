@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Josh Billings ___</b>*
 
 -----
 
