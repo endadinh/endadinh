@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
