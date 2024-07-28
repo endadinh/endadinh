@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
+**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
 
-*<b>___ Thomas Hobbes ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
