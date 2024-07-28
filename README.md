@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Skill to do comes of doing. "</i></h5>**
+**<h5><i>" You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
