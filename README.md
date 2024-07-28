@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
