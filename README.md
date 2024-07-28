@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? "</i></h5>**
+**<h5><i>" If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
