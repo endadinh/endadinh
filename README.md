@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
