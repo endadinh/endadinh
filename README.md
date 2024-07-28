@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
+**<h5><i>" You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
