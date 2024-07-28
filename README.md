@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just because something doesn't do what you planned it to do doesn't mean it's useless. "</i></h5>**
+**<h5><i>" Meditate … do not delay, lest you later regret it. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
