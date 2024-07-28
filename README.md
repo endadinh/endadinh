@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" Action is eloquence. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
