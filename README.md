@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
+**<h5><i>" It is not wisdom but Authority that makes a law. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Thomas Hobbes ___</b>*
 
 -----
 
