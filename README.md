@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged. "</i></h5>**
+**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
 
-*<b>___ Ben Fountain ___</b>*
+*<b>___ Robert Graves ___</b>*
 
 -----
 
