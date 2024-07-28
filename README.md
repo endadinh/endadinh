@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one per cent inspiration, ninety-nine per cent perspiration. "</i></h5>**
+**<h5><i>" If your actions inspire others to dream more, learn more, do more and become more, you are a leader. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ John Quincy Adams ___</b>*
 
 -----
 
