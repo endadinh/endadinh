@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
+**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
 
-*<b>___ Jawaharlal Nehru ___</b>*
+*<b>___ John Pierrakos ___</b>*
 
 -----
 
