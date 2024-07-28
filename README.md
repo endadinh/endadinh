@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
