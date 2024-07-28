@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Tryon Edwards ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
