@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. "</i></h5>**
+**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
