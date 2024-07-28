@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
+**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
 
-*<b>___ Cheng Yen ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
