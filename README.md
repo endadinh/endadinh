@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. "</i></h5>**
+**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
 
-*<b>___ Ken Venturi ___</b>*
+*<b>___ Philip Sidney ___</b>*
 
 -----
 
