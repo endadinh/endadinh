@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that the most valuable antiques are dear old friends. "</i></h5>**
+**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
