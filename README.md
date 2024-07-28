@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" You can't choose up sides on a round world. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
