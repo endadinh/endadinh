@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
+**<h5><i>" The superior man acts before he speaks, and afterwards speaks according to his action. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
