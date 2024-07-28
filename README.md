@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only do what your heart tells you. "</i></h5>**
+**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
 
-*<b>___ Princess Diana ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
