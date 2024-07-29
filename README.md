@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
+**<h5><i>" If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
