@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
+**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
 
-*<b>___ Henry Miller ___</b>*
+*<b>___ Marianne Williamson ___</b>*
 
 -----
 
