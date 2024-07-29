@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" We love life, not because we are used to living but because we are used to loving. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
