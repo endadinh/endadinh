@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
