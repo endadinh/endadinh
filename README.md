@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
+**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
