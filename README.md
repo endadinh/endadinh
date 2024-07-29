@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not so much our friends' help that helps us, as the confidence of their help. "</i></h5>**
+**<h5><i>" None knows the weight of another's burden. "</i></h5>**
 
-*<b>___ Epicurus ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
