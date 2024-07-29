@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They say that time changes things, but you actually have to change them yourself. "</i></h5>**
+**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
 
-*<b>___ Andy Warhol ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
