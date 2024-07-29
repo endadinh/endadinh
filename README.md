@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
