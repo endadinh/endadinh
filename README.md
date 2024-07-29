@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" God gave us the gift of life; it is up to us to give ourselves the gift of living well. "</i></h5>**
+**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
