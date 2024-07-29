@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No day in which you learn something is a complete loss. "</i></h5>**
+**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
 
-*<b>___ David Eddings ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
