@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no fear for one whose mind is not filled with desires. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
