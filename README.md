@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" The beginning of knowledge is the discovery of something we do not understand. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Frank Herbert ___</b>*
 
 -----
 
