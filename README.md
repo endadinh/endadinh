@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
