@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
+**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
 
-*<b>___ Northrop Frye ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
