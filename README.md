@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
