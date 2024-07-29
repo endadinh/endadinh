@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
+**<h5><i>" The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. "</i></h5>**
 
-*<b>___ Rabindranath Tagore ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
