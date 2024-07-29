@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is more wisdom in your body than in your deepest philosophy. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
