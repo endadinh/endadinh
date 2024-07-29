@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
+**<h5><i>" Life is a succession of lessons, which must be lived to be understood. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
