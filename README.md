@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is the living power and prime agent of all human perception. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ Samuel Taylor Coleridge ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
