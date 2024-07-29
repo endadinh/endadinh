@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
+**<h5><i>" Well done is better than well said. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
