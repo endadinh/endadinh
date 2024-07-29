@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never mistake motion for action. "</i></h5>**
+**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
 
-*<b>___ Ernest Hemingway ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
