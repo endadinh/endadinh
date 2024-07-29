@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
+**<h5><i>" No day in which you learn something is a complete loss. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ David Eddings ___</b>*
 
 -----
 
