@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
+**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
