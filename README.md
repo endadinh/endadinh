@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't judge each day by the harvest you reap but by the seeds that you plant. "</i></h5>**
+**<h5><i>" There is no fear for one whose mind is not filled with desires. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
