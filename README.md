@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way you see people is the way you treat them, and the way you treat them is what they become. "</i></h5>**
+**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Samuel Butler ___</b>*
 
 -----
 
