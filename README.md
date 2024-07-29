@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
+**<h5><i>" Fortune befriends the bold. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ John Dryden ___</b>*
 
 -----
 
