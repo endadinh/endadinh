@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world has the habit of making room for the man whose actions show that he knows where he is going. "</i></h5>**
+**<h5><i>" I will prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
