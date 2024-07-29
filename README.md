@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
+**<h5><i>" You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Woodrow Wilson ___</b>*
 
 -----
 
