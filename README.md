@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
+**<h5><i>" Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
