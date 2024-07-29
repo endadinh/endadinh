@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
