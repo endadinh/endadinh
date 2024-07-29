@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" All great achievements require time. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
