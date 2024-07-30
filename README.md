@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. "</i></h5>**
+**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
