@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is the highest kite one can fly. "</i></h5>**
+**<h5><i>" The simplest things are often the truest. "</i></h5>**
 
-*<b>___ Lauren Bacall ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
