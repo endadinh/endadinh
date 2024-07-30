@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most certain sign of wisdom is cheerfulness. "</i></h5>**
+**<h5><i>" Be slow to fall into friendship; but when thou art in, continue firm and constant. "</i></h5>**
 
-*<b>___ Michel de Montaigne ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
