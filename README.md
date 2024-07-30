@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
+**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
