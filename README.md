@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One should not hurt others if one loves oneself. "</i></h5>**
+**<h5><i>" Fame usually comes to those who are thinking about something else. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
