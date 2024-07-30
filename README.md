@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment. "</i></h5>**
+**<h5><i>" If you do not change direction, you may end up where you are heading. "</i></h5>**
 
-*<b>___ Morihei Ueshiba ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
