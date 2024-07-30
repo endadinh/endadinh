@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You always have two choices: your commitment versus your fear. "</i></h5>**
+**<h5><i>" To avoid criticism, do nothing, say nothing, be nothing. "</i></h5>**
 
-*<b>___ Sammy Davis Jr. ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
