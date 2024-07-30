@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
+**<h5><i>" Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
