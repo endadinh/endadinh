@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
+**<h5><i>" God made me fast. And when I run, I feel His pleasure. "</i></h5>**
 
-*<b>___ Arthur M. Schlesinger Jr. ___</b>*
+*<b>___ Eric Liddell ___</b>*
 
 -----
 
