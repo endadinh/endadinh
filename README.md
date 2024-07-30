@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
+**<h5><i>" He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. "</i></h5>**
 
-*<b>___ Buckminster Fuller ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
