@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
+**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
