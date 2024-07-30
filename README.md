@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appearances are often deceiving. "</i></h5>**
+**<h5><i>" Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
