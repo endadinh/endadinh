@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
+**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ George Foreman ___</b>*
 
 -----
 
