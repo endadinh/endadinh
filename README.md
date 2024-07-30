@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. "</i></h5>**
+**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
 
-*<b>___ Swami Vivekananda ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
