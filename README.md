@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. "</i></h5>**
+**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
