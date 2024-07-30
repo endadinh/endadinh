@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
+**<h5><i>" Imagination is the highest kite one can fly. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Lauren Bacall ___</b>*
 
 -----
 
