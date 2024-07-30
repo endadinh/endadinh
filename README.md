@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Commitment is an act, not a word. "</i></h5>**
+**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Buckminster Fuller ___</b>*
 
 -----
 
