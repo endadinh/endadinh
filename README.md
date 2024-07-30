@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They must often change, who would be constant in happiness or wisdom. "</i></h5>**
+**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
