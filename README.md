@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The simplest things are often the truest. "</i></h5>**
+**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
