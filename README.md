@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not follow where the path may lead. Go, instead, where there is no path and leave a trail. "</i></h5>**
+**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laurie Anderson ___</b>*
 
 -----
 
