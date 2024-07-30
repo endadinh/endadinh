@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only put off until tomorrow what you are willing to die having left undone. "</i></h5>**
+**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
