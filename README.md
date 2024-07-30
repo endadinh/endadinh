@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
+**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
