@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
+**<h5><i>" The most certain sign of wisdom is cheerfulness. "</i></h5>**
 
-*<b>___ George Foreman ___</b>*
+*<b>___ Michel de Montaigne ___</b>*
 
 -----
 
