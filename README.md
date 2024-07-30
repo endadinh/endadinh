@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
