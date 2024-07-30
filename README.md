@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
+**<h5><i>" The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
