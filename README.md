@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. "</i></h5>**
+**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Louisa May Alcott ___</b>*
 
 -----
 
