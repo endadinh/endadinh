@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason. "</i></h5>**
+**<h5><i>" Commitment is an act, not a word. "</i></h5>**
 
-*<b>___ Immanuel Kant ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
