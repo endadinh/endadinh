@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
+**<h5><i>" Those that know, do. Those that understand, teach. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
