@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. "</i></h5>**
+**<h5><i>" Never deny a diagnosis but do deny the negative verdict that may go with it. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
