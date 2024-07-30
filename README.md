@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
+**<h5><i>" Science and technology revolutionize our lives, but memory, tradition and myth frame our response. "</i></h5>**
 
-*<b>___ Frederick Douglass ___</b>*
+*<b>___ Arthur M. Schlesinger Jr. ___</b>*
 
 -----
 
