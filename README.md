@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are important enough to ask and you are blessed enough to receive back. "</i></h5>**
+**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
