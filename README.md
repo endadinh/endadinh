@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
