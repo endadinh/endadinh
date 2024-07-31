@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technological progress has merely provided us with more efficient means for going backwards. "</i></h5>**
+**<h5><i>" The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Carlos Castaneda ___</b>*
 
 -----
 
