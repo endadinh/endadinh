@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
+**<h5><i>" One secret of success in life is for a man to be ready for his opportunity when it comes. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
