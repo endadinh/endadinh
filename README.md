@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people. "</i></h5>**
+**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
