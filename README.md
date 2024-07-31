@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
+**<h5><i>" If you love someone, set them free. If they come back, they're yours; if they don't, they never were. "</i></h5>**
 
-*<b>___ Frank Abagnale ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
