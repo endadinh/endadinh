@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
+**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
