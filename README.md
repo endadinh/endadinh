@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Study the past, if you would divine the future. "</i></h5>**
+**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
