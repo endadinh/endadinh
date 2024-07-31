@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. "</i></h5>**
 
 *<b>___ Johann Wolfgang von Goethe ___</b>*
 
