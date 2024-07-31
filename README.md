@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. "</i></h5>**
+**<h5><i>" Our kindness may be the most persuasive argument for that which we believe. "</i></h5>**
 
-*<b>___ Carlos Castaneda ___</b>*
+*<b>___ Gordon Hinckley ___</b>*
 
 -----
 
