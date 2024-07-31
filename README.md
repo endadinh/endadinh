@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
+**<h5><i>" You got to be careful if you don't know where you're going, because you might not get there. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
