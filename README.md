@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the attempt to form a friendship inspired by beauty. "</i></h5>**
+**<h5><i>" Love all, trust a few, do wrong to none. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
