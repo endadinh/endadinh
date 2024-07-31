@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
