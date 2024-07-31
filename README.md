@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
+**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
 
-*<b>___ Caroline Myss ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
