@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. "</i></h5>**
+**<h5><i>" Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
