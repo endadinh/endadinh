@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
+**<h5><i>" To conquer fear is the beginning of wisdom. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Bertrand Russell ___</b>*
 
 -----
 
