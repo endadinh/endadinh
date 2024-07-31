@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
+**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
