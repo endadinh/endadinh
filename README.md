@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Christie Brinkley ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
