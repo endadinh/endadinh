@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To conquer fear is the beginning of wisdom. "</i></h5>**
+**<h5><i>" Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness. "</i></h5>**
 
-*<b>___ Bertrand Russell ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
