@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History is written by the victors. "</i></h5>**
+**<h5><i>" Without courage, wisdom bears no fruit. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Baltasar Gracián ___</b>*
 
 -----
 
