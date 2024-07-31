@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love all, trust a few, do wrong to none. "</i></h5>**
+**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
