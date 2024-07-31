@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You were not born a winner, and you were not born a loser. You are what you make yourself be. "</i></h5>**
+**<h5><i>" Bad times have a scientific value. These are occasions a good learner would not miss. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
