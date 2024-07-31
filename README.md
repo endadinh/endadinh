@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
+**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ Caroline Myss ___</b>*
 
 -----
 
