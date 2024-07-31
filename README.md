@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
+**<h5><i>" The way we communicate with others and with ourselves ultimately determines the quality of our lives. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
