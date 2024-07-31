@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't believe that God put us on this earth to be ordinary. "</i></h5>**
+**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
 
-*<b>___ Lou Holtz ___</b>*
+*<b>___ James Oppenheim ___</b>*
 
 -----
 
