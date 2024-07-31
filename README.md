@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality means doing it right when no one is looking. "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
