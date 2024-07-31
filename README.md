@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
+**<h5><i>" A friend is what the heart needs all the time. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
