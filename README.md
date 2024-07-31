@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is charity and wisdom, there is neither fear nor ignorance. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
