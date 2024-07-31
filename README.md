@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better than a thousand hollow words, is one word that brings peace. "</i></h5>**
+**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Walter Scott ___</b>*
 
 -----
 
