@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reason and free inquiry are the only effectual agents against error. "</i></h5>**
+**<h5><i>" Technological progress has merely provided us with more efficient means for going backwards. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
