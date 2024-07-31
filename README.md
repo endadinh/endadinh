@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
+**<h5><i>" Love is the attempt to form a friendship inspired by beauty. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
