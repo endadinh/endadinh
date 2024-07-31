@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
+**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Christie Brinkley ___</b>*
 
 -----
 
