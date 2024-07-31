@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is better to understand a little than to misunderstand a lot. "</i></h5>**
+**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
