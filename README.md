@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
+**<h5><i>" I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. "</i></h5>**
 
-*<b>___ Orson Welles ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
