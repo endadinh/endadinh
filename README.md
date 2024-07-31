@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. "</i></h5>**
+**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Orson Welles ___</b>*
 
 -----
 
