@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others. "</i></h5>**
+**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
