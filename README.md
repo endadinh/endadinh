@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We could never learn to be brave and patient if there were only joy in the world. "</i></h5>**
+**<h5><i>" Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
