@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
+**<h5><i>" He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
