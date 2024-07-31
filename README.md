@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What lies behind us and what lies before us are tiny matters compared to what lies within us. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
