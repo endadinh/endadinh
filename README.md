@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
+**<h5><i>" You were not born a winner, and you were not born a loser. You are what you make yourself be. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
