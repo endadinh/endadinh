@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
+**<h5><i>" You are important enough to ask and you are blessed enough to receive back. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
