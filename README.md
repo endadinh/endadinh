@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best cure for the body is a quiet mind. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
