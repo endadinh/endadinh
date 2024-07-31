@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude is riches. Complaint is poverty. "</i></h5>**
+**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
 
-*<b>___ Doris Day ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
