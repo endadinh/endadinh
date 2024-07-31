@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most great people have attained their greatest success just one step beyond their greatest failure. "</i></h5>**
+**<h5><i>" Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Pope John XXIII ___</b>*
 
 -----
 
