@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else. "</i></h5>**
+**<h5><i>" Write your plans in pencil and give God the eraser. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Paulo Coelho ___</b>*
 
 -----
 
