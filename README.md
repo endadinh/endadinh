@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genius is one per cent inspiration, ninety-nine per cent perspiration. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
