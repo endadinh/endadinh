@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is going from failure to failure without losing enthusiasm. "</i></h5>**
+**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
