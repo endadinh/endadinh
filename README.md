@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
+**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
