@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
+**<h5><i>" When your desires are strong enough you will appear to possess superhuman powers to achieve. "</i></h5>**
 
-*<b>___ John Adams ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
