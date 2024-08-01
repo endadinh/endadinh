@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
+**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ J. Willard Marriott ___</b>*
 
 -----
 
