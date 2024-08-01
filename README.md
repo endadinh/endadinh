@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. "</i></h5>**
+**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. "</i></h5>**
 
-*<b>___ Salman Rushdie ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
