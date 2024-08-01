@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
+**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
