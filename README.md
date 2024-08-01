@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
+**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
