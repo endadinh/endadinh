@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. "</i></h5>**
+**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ John Adams ___</b>*
 
 -----
 
