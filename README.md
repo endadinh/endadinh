@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction. "</i></h5>**
+**<h5><i>" If there is no struggle, there is no progress. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
