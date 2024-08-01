@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
+**<h5><i>" Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. "</i></h5>**
 
-*<b>___ Richard Garriott ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
