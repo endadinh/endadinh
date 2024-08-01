@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
+**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
