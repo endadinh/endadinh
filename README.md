@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most people because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" Love is flower like; Friendship is like a sheltering tree. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Samuel Taylor Coleridge ___</b>*
 
 -----
 
