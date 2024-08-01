@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To follow, without halt, one aim: There is the secret of success. "</i></h5>**
+**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
 
-*<b>___ Anna Pavlova ___</b>*
+*<b>___ Mike Singletary (basketball) ___</b>*
 
 -----
 
