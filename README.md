@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The Superior Man is aware of Righteousness, the inferior man is aware of advantage. "</i></h5>**
+**<h5><i>" Think how hard physics would be if particles could think. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Murray Gell-Mann ___</b>*
 
 -----
 
