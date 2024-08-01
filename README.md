@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel. "</i></h5>**
+**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
