@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
+**<h5><i>" Opportunity is missed by most people because it is dressed in overalls and looks like work. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
