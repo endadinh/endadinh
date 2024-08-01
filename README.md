@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A goal is a dream with a deadline. "</i></h5>**
+**<h5><i>" Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
