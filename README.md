@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
+**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
 
-*<b>___ Mike Singletary (basketball) ___</b>*
+*<b>___ Doug Horton ___</b>*
 
 -----
 
