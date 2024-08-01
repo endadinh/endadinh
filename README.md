@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anticipate the difficult by managing the easy. "</i></h5>**
+**<h5><i>" To follow, without halt, one aim: There is the secret of success. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Anna Pavlova ___</b>*
 
 -----
 
