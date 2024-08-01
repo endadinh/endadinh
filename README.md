@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
