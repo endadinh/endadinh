@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without hard work, nothing grows but weeds. "</i></h5>**
+**<h5><i>" Great ideas often receive violent opposition from mediocre minds. "</i></h5>**
 
-*<b>___ Gordon Hinckley ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
