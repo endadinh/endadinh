@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery. "</i></h5>**
+**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Harriet Woods ___</b>*
 
 -----
 
