@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
