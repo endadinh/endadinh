@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins. "</i></h5>**
+**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
 
-*<b>___ Charles Eastman ___</b>*
+*<b>___ Fawn M. Brodie ___</b>*
 
 -----
 
