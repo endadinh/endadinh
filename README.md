@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom. "</i></h5>**
+**<h5><i>" Effort only fully releases its reward after a person refuses to quit. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
