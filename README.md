@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
