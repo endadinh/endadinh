@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do. "</i></h5>**
+**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
 
-*<b>___ Chuck Norris ___</b>*
+*<b>___ Stewart Brand ___</b>*
 
 -----
 
