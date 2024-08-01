@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match. "</i></h5>**
+**<h5><i>" Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe. "</i></h5>**
 
-*<b>___ Mia Hamm ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
