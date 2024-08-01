@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
+**<h5><i>" There is nothing impossible to him who will try. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Alexander the Great ___</b>*
 
 -----
 
