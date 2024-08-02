@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. "</i></h5>**
+**<h5><i>" You were not born a winner, and you were not born a loser. You are what you make yourself be. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
