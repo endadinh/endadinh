@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow. "</i></h5>**
+**<h5><i>" Wishing to be friends is quick work, but friendship is a slow ripening fruit. "</i></h5>**
 
-*<b>___ Melody Beattie ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
