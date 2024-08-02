@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do in life, surround yourself with smart people who'll argue with you. "</i></h5>**
+**<h5><i>" A man is not old as long as he is seeking something. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Edmond Rostand ___</b>*
 
 -----
 
