@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ardently do today what must be done. Who knows? Tomorrow, death comes. "</i></h5>**
+**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
