@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can. "</i></h5>**
+**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
 
-*<b>___ Neil Gaiman ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
