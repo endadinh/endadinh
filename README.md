@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
+**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
