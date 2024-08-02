@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The deepest craving of human nature is the need to be appreciated. "</i></h5>**
+**<h5><i>" If opportunity doesn't knock, build a door. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Milton Berle ___</b>*
 
 -----
 
