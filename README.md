@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
+**<h5><i>" Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Melody Beattie ___</b>*
 
 -----
 
