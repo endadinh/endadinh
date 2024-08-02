@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
+**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
