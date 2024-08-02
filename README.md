@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
+**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
