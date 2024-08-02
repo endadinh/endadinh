@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't shake hands with a clenched fist. "</i></h5>**
+**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
 
-*<b>___ Indira Gandhi ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
