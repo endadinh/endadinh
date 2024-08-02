@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
+**<h5><i>" Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
