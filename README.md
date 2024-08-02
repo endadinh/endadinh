@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
+**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
 
-*<b>___ Man Ray ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
