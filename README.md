@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A disciplined mind brings happiness. "</i></h5>**
+**<h5><i>" When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
