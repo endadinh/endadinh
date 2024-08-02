@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
+**<h5><i>" Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Dale Turner ___</b>*
 
 -----
 
