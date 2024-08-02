@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work. "</i></h5>**
+**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
