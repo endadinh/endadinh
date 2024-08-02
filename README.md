@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
+**<h5><i>" Always seek out the seed of triumph in every adversity. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Og Mandino ___</b>*
 
 -----
 
