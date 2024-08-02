@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
+**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
 
-*<b>___ Don Marquis ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
