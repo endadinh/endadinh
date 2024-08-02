@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning is finding out what you already know. "</i></h5>**
+**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
