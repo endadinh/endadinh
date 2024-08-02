@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. "</i></h5>**
+**<h5><i>" The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Carlos Castaneda ___</b>*
 
 -----
 
