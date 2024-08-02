@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
+**<h5><i>" One who is too insistent on his own views, finds few to agree with him. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
