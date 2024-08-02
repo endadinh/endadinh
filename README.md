@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go put your creed into the deed. Nor speak with double tongue. "</i></h5>**
+**<h5><i>" Whatever you do in life, surround yourself with smart people who'll argue with you. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
