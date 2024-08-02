@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
+**<h5><i>" Learning is finding out what you already know. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
