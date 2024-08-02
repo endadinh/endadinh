@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" No one has ever become poor by giving. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
