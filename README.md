@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has ever become poor by giving. "</i></h5>**
+**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
