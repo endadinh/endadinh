@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What the caterpillar calls the end of the world, the master calls a butterfly. "</i></h5>**
+**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
