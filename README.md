@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
+**<h5><i>" If the shoe doesn't fit, must we change the foot? "</i></h5>**
 
-*<b>___ Pierre-Auguste Renoir ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
