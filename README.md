@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
+**<h5><i>" We read the world wrong and say that it deceives us. "</i></h5>**
 
-*<b>___ Calvin Coolidge ___</b>*
+*<b>___ Rabindranath Tagore ___</b>*
 
 -----
 
