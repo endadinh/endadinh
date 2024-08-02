@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Walking with a friend in the dark is better than walking alone in the light. "</i></h5>**
+**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
