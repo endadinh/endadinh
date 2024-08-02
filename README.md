@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
+**<h5><i>" Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. "</i></h5>**
 
-*<b>___ Franz Liszt ___</b>*
+*<b>___ Lou Holtz ___</b>*
 
 -----
 
