@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
+**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Don Marquis ___</b>*
 
 -----
 
