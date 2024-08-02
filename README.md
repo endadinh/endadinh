@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
+**<h5><i>" If opportunity doesn't knock, build a door. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Milton Berle ___</b>*
 
 -----
 
