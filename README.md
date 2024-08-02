@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" What the caterpillar calls the end of the world, the master calls a butterfly. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
