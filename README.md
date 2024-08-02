@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
+**<h5><i>" The sum of wisdom is that time is never lost that is devoted to work. "</i></h5>**
 
-*<b>___ John Eliot ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
