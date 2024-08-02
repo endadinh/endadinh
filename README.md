@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to prove that you're a good sport is to lose. "</i></h5>**
+**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
 
-*<b>___ Ernie Banks ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
