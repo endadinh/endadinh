@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity. "</i></h5>**
+**<h5><i>" All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Kathleen Norris ___</b>*
 
 -----
 
