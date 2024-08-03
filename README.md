@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
+**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
