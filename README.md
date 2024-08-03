@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
