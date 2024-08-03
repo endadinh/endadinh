@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
+**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
