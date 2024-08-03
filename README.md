@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
+**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Robert M. Pirsig ___</b>*
 
 -----
 
