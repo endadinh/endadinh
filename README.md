@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
+**<h5><i>" Friends... they cherish one another's hopes. They are kind to one another's dreams. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
