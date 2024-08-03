@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before God we are all equally wise - and equally foolish. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
