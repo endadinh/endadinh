@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
+**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
 
-*<b>___ Thomas Haynes Bayly ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
