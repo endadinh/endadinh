@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
+**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
