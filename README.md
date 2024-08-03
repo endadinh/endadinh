@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one. "</i></h5>**
+**<h5><i>" TV and the Internet are good because they keep stupid people from spending too much time out in public. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Douglas Coupland ___</b>*
 
 -----
 
