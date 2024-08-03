@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
+**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Joseph Stalin ___</b>*
 
 -----
 
