@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The hours of folly are measured by the clock; but of wisdom, no clock can measure. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
