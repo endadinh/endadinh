@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" I cannot always control what goes on outside. But I can always control what goes on inside. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
