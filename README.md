@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
+**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Bernice Reagon ___</b>*
 
 -----
 
