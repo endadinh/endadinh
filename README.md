@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
