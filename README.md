@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. "</i></h5>**
+**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
