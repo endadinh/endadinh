@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. "</i></h5>**
+**<h5><i>" All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
