@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to kill any idea in the world, get a committee working on it. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
