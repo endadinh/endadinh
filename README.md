@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" None knows the weight of another's burden. "</i></h5>**
+**<h5><i>" Love is the flower you've got to let grow. "</i></h5>**
 
-*<b>___ George Herbert ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
