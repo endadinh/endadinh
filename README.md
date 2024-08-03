@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
+**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
