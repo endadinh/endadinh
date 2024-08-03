@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens. "</i></h5>**
+**<h5><i>" The smallest act of kindness is worth more than the grandest intention. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
