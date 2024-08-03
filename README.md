@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
