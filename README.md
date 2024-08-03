@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Age does not protect you from love. But love, to some extent, protects you from age. "</i></h5>**
+**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
