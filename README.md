@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Mariella Frostrup ___</b>*
 
 -----
 
