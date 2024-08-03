@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
+**<h5><i>" Absence makes the heart grow fonder. "</i></h5>**
 
-*<b>___ Tony Blair ___</b>*
+*<b>___ Thomas Haynes Bayly ___</b>*
 
 -----
 
