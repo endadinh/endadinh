@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that a gesture of friendship, no matter how small, is always appreciated. "</i></h5>**
+**<h5><i>" Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
