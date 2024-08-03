@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not final; failure is not fatal: it is the courage to continue that counts. "</i></h5>**
+**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Ansel Adams ___</b>*
 
 -----
 
