@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" A friend may well be reckoned the masterpiece of nature. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
