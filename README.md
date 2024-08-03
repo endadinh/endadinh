@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
+**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
