@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our distrust is very expensive. "</i></h5>**
+**<h5><i>" When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
