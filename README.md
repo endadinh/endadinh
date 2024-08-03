@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
+**<h5><i>" I never see what has been done; I only see what remains to be done. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
