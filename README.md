@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
+**<h5><i>" None knows the weight of another's burden. "</i></h5>**
 
-*<b>___ David Bader ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
