@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Charlotte Brontë ___</b>*
 
 -----
 
