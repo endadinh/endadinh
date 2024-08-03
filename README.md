@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course. "</i></h5>**
+**<h5><i>" Things do not change; we change. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
