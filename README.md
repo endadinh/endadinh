@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
+**<h5><i>" The function of wisdom is to discriminate between good and evil. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Cicero ___</b>*
 
 -----
 
