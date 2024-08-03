@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one. "</i></h5>**
+**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
 
-*<b>___ Chuck Norris ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
