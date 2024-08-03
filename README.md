@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" TV and the Internet are good because they keep stupid people from spending too much time out in public. "</i></h5>**
+**<h5><i>" Sometimes it is better to lose and do the right thing than to win and do the wrong thing. "</i></h5>**
 
-*<b>___ Douglas Coupland ___</b>*
+*<b>___ Tony Blair ___</b>*
 
 -----
 
