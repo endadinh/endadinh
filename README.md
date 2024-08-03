@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To fly as fast as thought, you must begin by knowing that you have already arrived. "</i></h5>**
+**<h5><i>" Do not go where the path may lead, go instead where there is no path and leave a trail. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
