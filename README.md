@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
+**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
