@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
+**<h5><i>" Be here now. Be someplace else later. Is that so complicated? "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ David Bader ___</b>*
 
 -----
 
