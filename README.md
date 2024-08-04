@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's friends are that part of the human race with which one can be human. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
