@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To want to be what one can be is purpose in life. "</i></h5>**
+**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
 
-*<b>___ Cynthia Ozick ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
