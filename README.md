@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
