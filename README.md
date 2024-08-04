@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do one thing every day that scares you. "</i></h5>**
+**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Václav Havel ___</b>*
 
 -----
 
