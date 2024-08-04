@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
+**<h5><i>" To climb steep hills requires a slow pace at first. "</i></h5>**
 
-*<b>___ Morris West ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
