@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
