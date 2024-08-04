@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
+**<h5><i>" Short words are best and the old words when short are best of all. "</i></h5>**
 
-*<b>___ Paramahansa Yogananda ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
