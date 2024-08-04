@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technological progress has merely provided us with more efficient means for going backwards. "</i></h5>**
+**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
