@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
+**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Robert Graves ___</b>*
 
 -----
 
