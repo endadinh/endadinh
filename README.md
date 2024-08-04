@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
+**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Cheng Yen ___</b>*
 
 -----
 
