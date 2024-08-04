@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" They can conquer who believe they can. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
