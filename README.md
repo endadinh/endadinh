@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him. "</i></h5>**
+**<h5><i>" One's friends are that part of the human race with which one can be human. "</i></h5>**
 
-*<b>___ Max Planck ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
