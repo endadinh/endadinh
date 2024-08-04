@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins. "</i></h5>**
+**<h5><i>" If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. "</i></h5>**
 
-*<b>___ Charles Eastman ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
