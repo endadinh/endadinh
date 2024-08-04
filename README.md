@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is the best makeup. "</i></h5>**
+**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
 
-*<b>___ Anne Lamott ___</b>*
+*<b>___ James Oppenheim ___</b>*
 
 -----
 
