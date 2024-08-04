@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Short words are best and the old words when short are best of all. "</i></h5>**
+**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Rudolf Arnheim ___</b>*
 
 -----
 
