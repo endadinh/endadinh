@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we all did the things we are capable of doing, we would literally astound ourselves. "</i></h5>**
+**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
