@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
+**<h5><i>" You can't let praise or criticism get to you. It's a weakness to get caught up in either one. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
