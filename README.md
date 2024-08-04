@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
+**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
