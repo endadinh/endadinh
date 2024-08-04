@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
+**<h5><i>" I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun. "</i></h5>**
 
-*<b>___ Robert Graves ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
