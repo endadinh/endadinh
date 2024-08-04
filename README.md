@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you want to know who you are? Don't ask. Act! Action will delineate and define you. "</i></h5>**
+**<h5><i>" May our hearts garden of awakening bloom with hundreds of flowers. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
