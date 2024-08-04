@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can conquer who believe they can. "</i></h5>**
+**<h5><i>" My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
