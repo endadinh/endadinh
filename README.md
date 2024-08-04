@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Sun Tzu ___</b>*
 
 -----
 
