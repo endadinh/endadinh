@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
