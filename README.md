@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
+**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
 
-*<b>___ James Oppenheim ___</b>*
+*<b>___ Morris West ___</b>*
 
 -----
 
