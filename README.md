@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
+**<h5><i>" What you do today can improve all your tomorrows. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
