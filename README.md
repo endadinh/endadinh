@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. "</i></h5>**
+**<h5><i>" There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Paramahansa Yogananda ___</b>*
 
 -----
 
