@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make it your habit not to be critical about small things. "</i></h5>**
+**<h5><i>" Technological progress has merely provided us with more efficient means for going backwards. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
