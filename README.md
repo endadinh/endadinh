@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
+**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
