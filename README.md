@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The supreme art of war is to subdue the enemy without fighting. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
