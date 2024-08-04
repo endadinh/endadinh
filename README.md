@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself. "</i></h5>**
+**<h5><i>" Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world. "</i></h5>**
 
-*<b>___ Henry James ___</b>*
+*<b>___ Harriet Tubman ___</b>*
 
 -----
 
