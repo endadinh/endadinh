@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness does not come from having much, but from being attached to little. "</i></h5>**
+**<h5><i>" What is a weed? A plant whose virtues have not yet been discovered. "</i></h5>**
 
-*<b>___ Cheng Yen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
