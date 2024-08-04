@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only Zen you find on the tops of mountains is the Zen you bring up there. "</i></h5>**
+**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
 
-*<b>___ Robert M. Pirsig ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
