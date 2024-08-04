@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" 'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill. "</i></h5>**
+**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
