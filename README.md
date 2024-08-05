@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be like the flower, turn your face to the sun. "</i></h5>**
+**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
