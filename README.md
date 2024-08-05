@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
+**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ John Pierrakos ___</b>*
 
 -----
 
