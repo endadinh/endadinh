@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. "</i></h5>**
+**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
