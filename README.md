@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
