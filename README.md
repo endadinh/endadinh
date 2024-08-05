@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have enemies? Good. That means you've stood up for something, sometime in your life. "</i></h5>**
+**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
