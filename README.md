@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All perceiving is also thinking, all reasoning is also intuition, all observation is also invention. "</i></h5>**
+**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
 
-*<b>___ Rudolf Arnheim ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
