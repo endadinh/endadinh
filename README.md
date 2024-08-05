@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the attempt to form a friendship inspired by beauty. "</i></h5>**
+**<h5><i>" Self-trust is the first secret of success. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
