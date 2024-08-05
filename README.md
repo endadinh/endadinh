@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity causes some men to break, others to break records. "</i></h5>**
+**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
