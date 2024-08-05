@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
+**<h5><i>" A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jeff Bezos ___</b>*
 
 -----
 
