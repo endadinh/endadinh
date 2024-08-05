@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best thing in every noble dream is the dreamer... "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Moncure D. Conway ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
