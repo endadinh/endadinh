@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
+**<h5><i>" Choose a job you love, and you will never have to work a day in your life. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
