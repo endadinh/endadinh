@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has been my experience that folks who have no vices have very few virtues. "</i></h5>**
+**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
