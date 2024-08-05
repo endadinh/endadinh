@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
+**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ John Bercow ___</b>*
 
 -----
 
