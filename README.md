@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
+**<h5><i>" I have no special talent. I am only passionately curious. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
