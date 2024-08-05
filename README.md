@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Choose a job you love, and you will never have to work a day in your life. "</i></h5>**
+**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
