@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather. "</i></h5>**
+**<h5><i>" Friendship brings in a lot of honesty and trust into any relationship, especially a marriage. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Farhan Akhtar ___</b>*
 
 -----
 
