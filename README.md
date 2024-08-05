@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good timber does not grow with ease; the stronger the wind, the stronger the trees. "</i></h5>**
+**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
 
-*<b>___ J. Willard Marriott ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
