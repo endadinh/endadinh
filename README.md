@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who lives in harmony with himself lives in harmony with the world. "</i></h5>**
+**<h5><i>" Even if you're on the right track, you'll get run over if you just sit there. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
