@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
+**<h5><i>" We are masters of the unsaid words, but slaves of those we let slip out. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
