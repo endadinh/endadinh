@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
