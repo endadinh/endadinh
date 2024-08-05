@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
+**<h5><i>" It requires wisdom to understand wisdom: the music is nothing if the audience is deaf. "</i></h5>**
 
-*<b>___ John Berry ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
