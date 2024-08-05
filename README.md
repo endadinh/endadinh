@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
+**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
