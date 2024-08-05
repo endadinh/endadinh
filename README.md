@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
+**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
 
-*<b>___ Sri Chinmoy ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
