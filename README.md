@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
+**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
