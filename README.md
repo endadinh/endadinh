@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Correction does much, but encouragement does more. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the world. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
