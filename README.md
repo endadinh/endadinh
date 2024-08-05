@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
+**<h5><i>" Nature and books belong to the eyes that see them. "</i></h5>**
 
-*<b>___ John Adams ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
