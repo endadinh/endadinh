@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are masters of the unsaid words, but slaves of those we let slip out. "</i></h5>**
+**<h5><i>" Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ John Adams ___</b>*
 
 -----
 
