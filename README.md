@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
+**<h5><i>" It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
