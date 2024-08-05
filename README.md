@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
