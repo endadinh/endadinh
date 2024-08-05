@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
