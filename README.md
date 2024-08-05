@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tell me and I forget. Teach me and I remember. Involve me and I learn. "</i></h5>**
+**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
