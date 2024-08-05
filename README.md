@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is movement-we breathe, we eat, we walk, we move! "</i></h5>**
+**<h5><i>" Happiness mainly comes from our own attitude, rather than from external factors. "</i></h5>**
 
-*<b>___ John Pierrakos ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
