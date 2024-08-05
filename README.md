@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens. "</i></h5>**
+**<h5><i>" A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
