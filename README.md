@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Sri Chinmoy ___</b>*
 
 -----
 
