@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to go east, don't go west. "</i></h5>**
+**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
 
-*<b>___ Ramakrishna ___</b>*
+*<b>___ Thomas Dewar ___</b>*
 
 -----
 
