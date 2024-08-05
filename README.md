@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only journey is the one within. "</i></h5>**
+**<h5><i>" Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary. "</i></h5>**
 
-*<b>___ Rainer Maria Rilke ___</b>*
+*<b>___ Margaret Cousins ___</b>*
 
 -----
 
