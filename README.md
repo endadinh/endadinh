@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe in one thing only, the power of human will. "</i></h5>**
+**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
 
-*<b>___ Joseph Stalin ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
