@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
+**<h5><i>" The only time to buy these is on a day with no 'y' in it. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
