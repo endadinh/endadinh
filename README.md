@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have done my best: that is about all the philosophy of living one needs. "</i></h5>**
+**<h5><i>" The smallest deed is better than the greatest intention. "</i></h5>**
 
-*<b>___ Lin Yutang ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
