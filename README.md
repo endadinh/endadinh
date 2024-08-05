@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
+**<h5><i>" If you want to go east, don't go west. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Ramakrishna ___</b>*
 
 -----
 
