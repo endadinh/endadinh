@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
+**<h5><i>" A poem begins in delight and ends in wisdom. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
