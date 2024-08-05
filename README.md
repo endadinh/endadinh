@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has eyes which the brain knows nothing of. "</i></h5>**
+**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
 
-*<b>___ Charles Henry Parkhurst ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
