@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. "</i></h5>**
+**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
