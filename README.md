@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow to fall into friendship; but when thou art in, continue firm and constant. "</i></h5>**
+**<h5><i>" Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
