@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
+**<h5><i>" I never teach my pupils. I only attempt to provide the conditions in which they can learn. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
