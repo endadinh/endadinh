@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. "</i></h5>**
+**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
