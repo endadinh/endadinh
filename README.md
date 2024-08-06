@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
+**<h5><i>" It is fatal to enter any war without the will to win it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Douglas MacArthur ___</b>*
 
 -----
 
