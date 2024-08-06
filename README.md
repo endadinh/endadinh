@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
+**<h5><i>" There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
