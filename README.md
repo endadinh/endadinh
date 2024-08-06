@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
+**<h5><i>" Every artist dips his brush in his own soul, and paints his own nature into his pictures. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
