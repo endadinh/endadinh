@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The time to repair the roof is when the sun is shining. "</i></h5>**
+**<h5><i>" One today is worth two tomorrows. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
