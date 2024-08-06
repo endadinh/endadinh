@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't talk about what you have done or what you are going to do. "</i></h5>**
+**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
