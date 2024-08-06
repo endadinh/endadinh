@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
+**<h5><i>" Always bear in mind that your own resolution to succeed is more important than any one thing. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
