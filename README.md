@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people. "</i></h5>**
+**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
