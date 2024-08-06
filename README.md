@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. "</i></h5>**
+**<h5><i>" The superior man is satisfied and composed; the mean man is always full of distress. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
