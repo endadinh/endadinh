@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every artist dips his brush in his own soul, and paints his own nature into his pictures. "</i></h5>**
+**<h5><i>" I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
