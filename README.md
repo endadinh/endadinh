@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are always free to change your mind and choose a different future, or a different past. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
