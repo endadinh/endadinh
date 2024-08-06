@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. "</i></h5>**
+**<h5><i>" Real success is finding your lifework in the work that you love. "</i></h5>**
 
-*<b>___ Margaret Laurence ___</b>*
+*<b>___ David McCullough ___</b>*
 
 -----
 
