@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never teach my pupils. I only attempt to provide the conditions in which they can learn. "</i></h5>**
+**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
