@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All this worldly wisdom was once the unamiable heresy of some wise man. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
