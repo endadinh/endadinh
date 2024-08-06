@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
+**<h5><i>" Work while you have the light. You are responsible for the talent that has been entrusted to you. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
