@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always bear in mind that your own resolution to succeed is more important than any one thing. "</i></h5>**
+**<h5><i>" Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
