@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ Diogenes ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
