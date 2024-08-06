@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
