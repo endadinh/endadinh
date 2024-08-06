@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
+**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
 
-*<b>___ Robert Schuller ___</b>*
+*<b>___ Bernice Reagon ___</b>*
 
 -----
 
