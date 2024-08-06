@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. "</i></h5>**
+**<h5><i>" The meaning I picked, the one that changed my life: Overcome fear, behold wonder. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
