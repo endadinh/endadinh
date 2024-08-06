@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No act of kindness, no matter how small, is ever wasted. "</i></h5>**
+**<h5><i>" Never find fault with the absent. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
