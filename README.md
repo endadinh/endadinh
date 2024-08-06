@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One today is worth two tomorrows. "</i></h5>**
+**<h5><i>" Along with success comes a reputation for wisdom. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
