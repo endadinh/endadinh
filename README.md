@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more light you allow within you, the brighter the world you live in will be. "</i></h5>**
+**<h5><i>" Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. "</i></h5>**
 
-*<b>___ Shakti Gawain ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
