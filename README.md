@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom comes alone through suffering. "</i></h5>**
+**<h5><i>" No man has a good enough memory to be a successful liar. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
