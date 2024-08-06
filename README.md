@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
+**<h5><i>" Problems are not stop signs, they are guidelines. "</i></h5>**
 
-*<b>___ Jean Antoine Petit-Senn ___</b>*
+*<b>___ Robert Schuller ___</b>*
 
 -----
 
