@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
