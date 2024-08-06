@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good thoughts are no better than good dreams, unless they be executed. "</i></h5>**
+**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
