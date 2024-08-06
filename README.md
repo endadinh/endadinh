@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
