@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The key to growth is the introduction of higher dimensions of consciousness into our awareness. "</i></h5>**
+**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
