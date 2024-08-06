@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
+**<h5><i>" Don't talk about what you have done or what you are going to do. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
