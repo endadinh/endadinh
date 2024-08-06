@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
+**<h5><i>" I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Amy Tan ___</b>*
 
 -----
 
