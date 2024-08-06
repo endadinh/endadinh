@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
+**<h5><i>" I never think of the future - it comes soon enough. "</i></h5>**
 
-*<b>___ Michael Jordan ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
