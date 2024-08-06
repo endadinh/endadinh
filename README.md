@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
+**<h5><i>" The more light you allow within you, the brighter the world you live in will be. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Shakti Gawain ___</b>*
 
 -----
 
