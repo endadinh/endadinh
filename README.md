@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
+**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
