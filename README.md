@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. "</i></h5>**
+**<h5><i>" If you accept the expectations of others, especially negative ones, then you never will change the outcome. "</i></h5>**
 
-*<b>___ Alan Cohen ___</b>*
+*<b>___ Michael Jordan ___</b>*
 
 -----
 
