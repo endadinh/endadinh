@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. "</i></h5>**
+**<h5><i>" Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. "</i></h5>**
 
-*<b>___ Ezra Stiles ___</b>*
+*<b>___ Diogenes ___</b>*
 
 -----
 
