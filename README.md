@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ John Steinbeck ___</b>*
 
 -----
 
