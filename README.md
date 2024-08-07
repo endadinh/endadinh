@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
+**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Tryon Edwards ___</b>*
 
 -----
 
