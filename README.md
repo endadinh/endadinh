@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology… the knack of so arranging the world that we don't have to experience it. "</i></h5>**
+**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
 
-*<b>___ Max Frisch ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
