@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
+**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
