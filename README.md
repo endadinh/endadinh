@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The biggest room in the world is room for improvement. "</i></h5>**
+**<h5><i>" They can conquer who believe they can. "</i></h5>**
 
-*<b>___ Helmut Schmidt ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
