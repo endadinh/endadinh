@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" And as we let our own light shine, we unconsciously give other people permission to do the same. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
