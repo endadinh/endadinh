@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
+**<h5><i>" Rejoicing in our joy, not suffering over our suffering, makes someone a friend. "</i></h5>**
 
-*<b>___ John Brunner ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
