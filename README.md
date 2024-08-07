@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. "</i></h5>**
+**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
