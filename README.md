@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never teach my pupils. I only attempt to provide the conditions in which they can learn. "</i></h5>**
+**<h5><i>" All I required to be happy was friendship and people I could admire. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Christian Dior ___</b>*
 
 -----
 
