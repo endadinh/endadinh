@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. "</i></h5>**
+**<h5><i>" All great achievements require time. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
