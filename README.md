@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. "</i></h5>**
+**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
 
-*<b>___ Niccolò Machiavelli ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
