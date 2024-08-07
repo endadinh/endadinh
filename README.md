@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort. "</i></h5>**
+**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
