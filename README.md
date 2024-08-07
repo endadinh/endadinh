@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most successful people are those who are good at plan B. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
 
-*<b>___ James A. Yorke ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
