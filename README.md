@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a travelling to the edge of knowledge, then a leap taken. "</i></h5>**
+**<h5><i>" The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Daniel J. Boorstin ___</b>*
 
 -----
 
