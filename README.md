@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rejoicing in our joy, not suffering over our suffering, makes someone a friend. "</i></h5>**
+**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
