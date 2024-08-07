@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
+**<h5><i>" Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
