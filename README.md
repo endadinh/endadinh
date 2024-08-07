@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
+**<h5><i>" Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
