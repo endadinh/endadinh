@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
+**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
 
-*<b>___ Jean Antoine Petit-Senn ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
