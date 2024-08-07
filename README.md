@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
+**<h5><i>" A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Jawaharlal Nehru ___</b>*
 
 -----
 
