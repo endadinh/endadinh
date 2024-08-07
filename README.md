@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
+**<h5><i>" You won't skid if you stay in a rut. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Kin Hubbard ___</b>*
 
 -----
 
