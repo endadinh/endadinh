@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of the shadows of life are caused by standing in our own sunshine. "</i></h5>**
+**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
