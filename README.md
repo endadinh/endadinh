@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best way to pay for a lovely moment is to enjoy it. "</i></h5>**
+**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Henri Poincaré ___</b>*
 
 -----
 
