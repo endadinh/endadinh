@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who dare to fail miserably can achieve greatly. "</i></h5>**
+**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Tom Lehrer ___</b>*
 
 -----
 
