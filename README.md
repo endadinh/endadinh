@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is through science that we prove, but through intuition that we discover. "</i></h5>**
+**<h5><i>" Science gives us knowledge, but only philosophy can give us wisdom. "</i></h5>**
 
-*<b>___ Henri Poincaré ___</b>*
+*<b>___ Will Durant ___</b>*
 
 -----
 
