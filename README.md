@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think like a man of action; act like a man of thought. "</i></h5>**
+**<h5><i>" The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
