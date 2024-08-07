@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens. "</i></h5>**
+**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Ben Hogan ___</b>*
 
 -----
 
