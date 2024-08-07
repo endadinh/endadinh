@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is eloquence. "</i></h5>**
+**<h5><i>" If we did the things we are capable of, we would astound ourselves. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
