@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a sewer. What you get out of it depends on what you put into it. "</i></h5>**
+**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
 
-*<b>___ Tom Lehrer ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
