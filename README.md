@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who talks more is sooner exhausted. "</i></h5>**
+**<h5><i>" The simplest things are often the truest. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
