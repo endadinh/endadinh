@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we did the things we are capable of, we would astound ourselves. "</i></h5>**
+**<h5><i>" One should not hurt others if one loves oneself. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
