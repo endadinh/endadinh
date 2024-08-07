@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing but heaven itself is better than a friend who is really a friend. "</i></h5>**
+**<h5><i>" Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration. "</i></h5>**
 
-*<b>___ Plautus ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
