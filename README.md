@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
+**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
 
-*<b>___ Theophrastus ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
