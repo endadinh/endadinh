@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
+**<h5><i>" He who talks more is sooner exhausted. "</i></h5>**
 
-*<b>___ Ben Hogan ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
