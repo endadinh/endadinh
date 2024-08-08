@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing diminishes anxiety faster than action. "</i></h5>**
+**<h5><i>" Good judgment comes from experience, and a lot of that comes from bad judgment. "</i></h5>**
 
-*<b>___ Walter Inglis Anderson ___</b>*
+*<b>___ Will Rogers ___</b>*
 
 -----
 
