@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
+**<h5><i>" All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
