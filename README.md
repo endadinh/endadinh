@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
+**<h5><i>" Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Carrie Snow ___</b>*
 
 -----
 
