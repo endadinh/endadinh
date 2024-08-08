@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
+**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
 
-*<b>___ Joseph Wood Krutch ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
