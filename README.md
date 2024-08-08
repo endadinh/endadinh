@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom has its root in goodness, not goodness its root in wisdom. "</i></h5>**
+**<h5><i>" To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
