@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
