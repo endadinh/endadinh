@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can observe a lot just by watching. "</i></h5>**
+**<h5><i>" Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
