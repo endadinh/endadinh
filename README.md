@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
+**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Charles Darwin ___</b>*
 
 -----
 
