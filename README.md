@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone thinks of changing the world, but no one thinks of changing himself. "</i></h5>**
+**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Julie Morgenstern ___</b>*
 
 -----
 
