@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
+**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
