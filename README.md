@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
+**<h5><i>" A man cannot be said to succeed in this life who does not satisfy one friend. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
