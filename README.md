@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. "</i></h5>**
+**<h5><i>" I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. "</i></h5>**
 
-*<b>___ Dale Turner ___</b>*
+*<b>___ Elizabeth Montagu ___</b>*
 
 -----
 
