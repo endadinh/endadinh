@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is essentially a partnership. "</i></h5>**
+**<h5><i>" There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
