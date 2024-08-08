@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame. "</i></h5>**
+**<h5><i>" Whoso loves, believes the impossible. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
