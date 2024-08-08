@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
+**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
