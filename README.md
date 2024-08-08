@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. "</i></h5>**
+**<h5><i>" People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
