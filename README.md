@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time changes everything except something within us which is always surprised by change. "</i></h5>**
+**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
 
-*<b>___ Thomas Hardy ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
