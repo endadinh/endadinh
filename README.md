@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
+**<h5><i>" Everyone thinks of changing the world, but no one thinks of changing himself. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Leo Tolstoy ___</b>*
 
 -----
 
