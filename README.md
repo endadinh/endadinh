@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other. "</i></h5>**
+**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
 
-*<b>___ Carrie Snow ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
