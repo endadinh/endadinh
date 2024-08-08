@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you. "</i></h5>**
+**<h5><i>" Light tomorrow with today! "</i></h5>**
 
-*<b>___ Julie Morgenstern ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
