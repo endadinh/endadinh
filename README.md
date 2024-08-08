@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Keep your face always toward the sunshine - and shadows will fall behind you. "</i></h5>**
+**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
 
-*<b>___ Walt Whitman ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
