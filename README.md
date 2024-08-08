@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
+**<h5><i>" Keep your face always toward the sunshine - and shadows will fall behind you. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Walt Whitman ___</b>*
 
 -----
 
