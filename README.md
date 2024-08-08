@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How we spend our days is, of course, how we spend our lives. "</i></h5>**
+**<h5><i>" He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Annie Dillard ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
