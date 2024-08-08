@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever something negative happens to you, there is a deep lesson concealed within it. "</i></h5>**
+**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Uta Hagen ___</b>*
 
 -----
 
