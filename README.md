@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love demands infinitely less than friendship. "</i></h5>**
+**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
 
-*<b>___ George Jean Nathan ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
