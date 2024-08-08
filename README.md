@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" Patience is the companion of wisdom. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
