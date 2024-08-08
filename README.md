@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" Technology made large populations possible; large populations now make technology indispensable. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Joseph Wood Krutch ___</b>*
 
 -----
 
