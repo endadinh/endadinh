@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the stars should appear but one night every thousand years how man would marvel and adore. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
