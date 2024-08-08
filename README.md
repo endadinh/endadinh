@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. "</i></h5>**
+**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
 
-*<b>___ Charles Darwin ___</b>*
+*<b>___ Alexis Carrel ___</b>*
 
 -----
 
