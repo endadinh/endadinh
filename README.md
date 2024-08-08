@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
+**<h5><i>" You can observe a lot just by watching. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
