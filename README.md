@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
+**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
