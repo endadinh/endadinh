@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. "</i></h5>**
+**<h5><i>" Knowing others is wisdom, knowing yourself is Enlightenment. "</i></h5>**
 
-*<b>___ Uta Hagen ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
