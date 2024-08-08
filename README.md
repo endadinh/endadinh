@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
