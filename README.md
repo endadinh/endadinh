@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. "</i></h5>**
+**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
