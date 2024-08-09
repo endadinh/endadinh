@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one happiness in life, to love and be loved. "</i></h5>**
+**<h5><i>" If you want to go east, don't go west. "</i></h5>**
 
-*<b>___ George Sand ___</b>*
+*<b>___ Ramakrishna ___</b>*
 
 -----
 
