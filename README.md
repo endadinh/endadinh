@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
+**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
