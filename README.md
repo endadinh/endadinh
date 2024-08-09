@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
+**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
