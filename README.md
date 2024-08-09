@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a serious mental disease. "</i></h5>**
+**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
