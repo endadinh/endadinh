@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
