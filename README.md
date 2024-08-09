@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? "</i></h5>**
+**<h5><i>" Love is a serious mental disease. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
