@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask yourself the secret of your success. Listen to your answer and practice it. "</i></h5>**
+**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
