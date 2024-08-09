@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before you put on a frown, make absolutely sure there are no smiles available. "</i></h5>**
+**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
 
-*<b>___ James M. Beggs ___</b>*
+*<b>___ Samuel Butler ___</b>*
 
 -----
 
