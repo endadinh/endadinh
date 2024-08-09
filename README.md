@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" And the attitude of faith is the very opposite of clinging to belief, of holding on. "</i></h5>**
+**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
