@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who wishes to secure the good of others, has already secured his own. "</i></h5>**
+**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Mortimer J. Adler ___</b>*
 
 -----
 
