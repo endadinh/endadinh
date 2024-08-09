@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a very taxing and arduous form of leisure activity. "</i></h5>**
+**<h5><i>" When fate hands us a lemon, let's try to make lemonade. "</i></h5>**
 
-*<b>___ Mortimer J. Adler ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
