@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. "</i></h5>**
+**<h5><i>" You have to do your own growing no matter how tall your grandfather was. "</i></h5>**
 
-*<b>___ Eknath Easwaran ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
