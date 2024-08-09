@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I destroy my enemies when I make them my friends. "</i></h5>**
+**<h5><i>" I do not dispute with the world; rather it is the world that disputes with me. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
