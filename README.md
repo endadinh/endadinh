@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When fate hands us a lemon, let's try to make lemonade. "</i></h5>**
+**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
