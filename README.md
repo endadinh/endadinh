@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge without justice ought to be called cunning rather than wisdom. "</i></h5>**
+**<h5><i>" The day of fortune is like a harvest day, we must be busy when the corn is ripe. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Torquato Tasso ___</b>*
 
 -----
 
