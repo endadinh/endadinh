@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
+**<h5><i>" The world has the habit of making room for the man whose actions show that he knows where he is going. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
