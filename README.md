@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. "</i></h5>**
+**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
