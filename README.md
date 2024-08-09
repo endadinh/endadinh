@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single rose can be my garden... a single friend, my world. "</i></h5>**
+**<h5><i>" If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Rabbi Hillel ___</b>*
 
 -----
 
