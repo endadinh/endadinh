@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight. "</i></h5>**
+**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
