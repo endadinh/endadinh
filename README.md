@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
+**<h5><i>" Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
