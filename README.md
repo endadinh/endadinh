@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn't about finding yourself. Life is about creating yourself. "</i></h5>**
+**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
