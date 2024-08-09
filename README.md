@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Impossibilities are merely things which we have not yet learned. "</i></h5>**
+**<h5><i>" Friendship is Love without his wings! "</i></h5>**
 
-*<b>___ Charles W. Chesnutt ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
