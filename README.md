@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you learn, teach. When you get, give. "</i></h5>**
+**<h5><i>" We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
