@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
+**<h5><i>" There is only one success: to be able to spend your life in your own way. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Christopher Morley ___</b>*
 
 -----
 
