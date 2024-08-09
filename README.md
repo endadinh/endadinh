@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. "</i></h5>**
+**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
 
-*<b>___ Hanya Yanagihara ___</b>*
+*<b>___ Jane Addams ___</b>*
 
 -----
 
