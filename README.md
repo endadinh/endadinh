@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
+**<h5><i>" You can do it if you believe you can! "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
