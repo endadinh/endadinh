@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing strengthens authority so much as silence. "</i></h5>**
+**<h5><i>" Impossibilities are merely things which we have not yet learned. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Charles W. Chesnutt ___</b>*
 
 -----
 
