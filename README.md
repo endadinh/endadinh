@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something ready-made. It comes from your own actions. "</i></h5>**
+**<h5><i>" Nothing strengthens authority so much as silence. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
