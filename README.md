@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love and compassion open our own inner life, reducing stress, distrust and loneliness. "</i></h5>**
+**<h5><i>" Ideas are the beginning points of all fortunes. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
