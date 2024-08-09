@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? "</i></h5>**
+**<h5><i>" Happiness is not something ready-made. It comes from your own actions. "</i></h5>**
 
-*<b>___ Rabbi Hillel ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
