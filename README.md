@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The day of fortune is like a harvest day, we must be busy when the corn is ripe. "</i></h5>**
+**<h5><i>" The fewer rules a coach has, the fewer rules there are for players to break. "</i></h5>**
 
-*<b>___ Torquato Tasso ___</b>*
+*<b>___ John Madden ___</b>*
 
 -----
 
