@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. "</i></h5>**
+**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
 
-*<b>___ Molière ___</b>*
+*<b>___ Christopher Reeve ___</b>*
 
 -----
 
