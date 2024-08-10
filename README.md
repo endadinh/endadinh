@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I find 10,000 ways something won't work, I haven't failed. I am not discouraged, because every wrong attempt discarded is another step forward. "</i></h5>**
+**<h5><i>" Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Dan Gable ___</b>*
 
 -----
 
