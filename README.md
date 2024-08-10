@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity. "</i></h5>**
+**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Alexander Chalmers ___</b>*
 
 -----
 
