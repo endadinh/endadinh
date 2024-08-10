@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One must be fond of people and trust them if one is not to make a mess of life. "</i></h5>**
+**<h5><i>" The essence of true friendship is to make allowance for another's little lapses. "</i></h5>**
 
-*<b>___ E. M. Forster ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
