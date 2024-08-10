@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
+**<h5><i>" With age comes wisdom and a high sex drive. And the wisdom to enjoy it. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Amber Valletta ___</b>*
 
 -----
 
