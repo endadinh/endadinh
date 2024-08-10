@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. "</i></h5>**
+**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
