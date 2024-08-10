@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
+**<h5><i>" Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
