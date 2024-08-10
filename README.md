@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Walter Cronkite ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
