@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
+**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
