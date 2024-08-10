@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
+**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
