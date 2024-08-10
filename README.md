@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
+**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Walter Cronkite ___</b>*
 
 -----
 
