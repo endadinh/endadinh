@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
+**<h5><i>" 'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering. "</i></h5>**
 
 *<b>___ The Buddha ___</b>*
 
