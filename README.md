@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chaos and Order are not enemies, only opposites. "</i></h5>**
+**<h5><i>" First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII — and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we've realized it's a brochure. "</i></h5>**
 
-*<b>___ Richard Garriott ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
