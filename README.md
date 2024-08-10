@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
+**<h5><i>" Experience keeps a dear school, but fools will learn in no other. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
