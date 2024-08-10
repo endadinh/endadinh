@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII — and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we've realized it's a brochure. "</i></h5>**
+**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
