@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
