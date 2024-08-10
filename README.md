@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. "</i></h5>**
+**<h5><i>" Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
