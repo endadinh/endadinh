@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
+**<h5><i>" If you surrender to the wind, you can ride it. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Toni Morrison ___</b>*
 
 -----
 
