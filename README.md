@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's not what happens to you, but how you react to it that matters. "</i></h5>**
+**<h5><i>" Everything in the universe goes by indirection. There are no straight lines. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
