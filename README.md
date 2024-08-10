@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you surrender to the wind, you can ride it. "</i></h5>**
+**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
 
-*<b>___ Toni Morrison ___</b>*
+*<b>___ Ed Cunningham ___</b>*
 
 -----
 
