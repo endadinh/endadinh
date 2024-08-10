@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility. "</i></h5>**
+**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
