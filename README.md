@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Government of the people, by the people, for the people, shall not perish from the Earth. "</i></h5>**
+**<h5><i>" Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
