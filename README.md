@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only grow if you're willing to feel awkward and uncomfortable when you try something new. "</i></h5>**
+**<h5><i>" 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
