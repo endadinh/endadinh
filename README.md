@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. "</i></h5>**
+**<h5><i>" Waste no more time arguing about what a good man should be. Be one. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
