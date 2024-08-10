@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
+**<h5><i>" The biggest adventure you can ever take is to live the life of your dreams. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
