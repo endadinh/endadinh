@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. "</i></h5>**
+**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
