@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul. "</i></h5>**
+**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
 
-*<b>___ Judy Garland ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
