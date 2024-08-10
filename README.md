@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
+**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
