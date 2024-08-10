@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All know the way; few actually walk it. "</i></h5>**
+**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
 
-*<b>___ Bodhidharma ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
