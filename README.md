@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means. "</i></h5>**
+**<h5><i>" Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts. "</i></h5>**
 
-*<b>___ Charles Kingsley ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
