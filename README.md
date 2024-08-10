@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No day in which you learn something is a complete loss. "</i></h5>**
+**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
 
-*<b>___ David Eddings ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
