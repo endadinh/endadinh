@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ Ed Cunningham ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
