@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
+**<h5><i>" Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. "</i></h5>**
 
-*<b>___ Archimedes ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
