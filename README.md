@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always ready to learn although I do not always like being taught. "</i></h5>**
+**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
