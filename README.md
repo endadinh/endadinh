@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man has a good enough memory to be a successful liar. "</i></h5>**
+**<h5><i>" If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Elon Musk ___</b>*
 
 -----
 
