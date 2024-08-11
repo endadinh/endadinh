@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
+**<h5><i>" Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance. "</i></h5>**
 
-*<b>___ William Butler Yeats ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
