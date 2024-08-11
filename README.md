@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
+**<h5><i>" I'll prepare and someday my chance will come. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
