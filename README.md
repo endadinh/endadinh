@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People may doubt what you say, but they will believe what you do. "</i></h5>**
+**<h5><i>" They can do all because they think they can. "</i></h5>**
 
-*<b>___ Lewis Cass ___</b>*
+*<b>___ Virgil ___</b>*
 
 -----
 
