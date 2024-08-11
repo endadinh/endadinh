@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
+**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
 
-*<b>___ Ludwig van Beethoven ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
