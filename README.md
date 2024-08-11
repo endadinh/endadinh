@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
+**<h5><i>" Don't watch the clock; do what it does. Keep going. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Sam Levenson ___</b>*
 
 -----
 
