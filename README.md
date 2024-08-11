@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
+**<h5><i>" Change in all things is sweet. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
