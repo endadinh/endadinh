@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Compassion and happiness are not a sign of weakness but a sign of strength. "</i></h5>**
+**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
