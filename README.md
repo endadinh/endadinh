@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The wisest men follow their own direction. "</i></h5>**
+**<h5><i>" When I do good I feel good, when I do bad I feel bad, and that's my religion. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
