@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful. "</i></h5>**
+**<h5><i>" To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. "</i></h5>**
 
-*<b>___ Harvey Mackay ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
