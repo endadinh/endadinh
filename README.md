@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. "</i></h5>**
+**<h5><i>" Nothing but heaven itself is better than a friend who is really a friend. "</i></h5>**
 
-*<b>___ Bernice Reagon ___</b>*
+*<b>___ Plautus ___</b>*
 
 -----
 
