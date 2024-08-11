@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible. "</i></h5>**
+**<h5><i>" Whoever doesn't flare up at someone who's angry wins a battle hard to win. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
