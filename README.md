@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
+**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
