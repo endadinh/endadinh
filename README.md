@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whoever doesn't flare up at someone who's angry wins a battle hard to win. "</i></h5>**
+**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
