@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
+**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
