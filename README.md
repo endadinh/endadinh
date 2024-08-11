@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The opportunity for brotherhood presents itself every time you meet a human being. "</i></h5>**
+**<h5><i>" A man should look for what is, and not for what he thinks should be. "</i></h5>**
 
-*<b>___ Jane Wyman ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
