@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. "</i></h5>**
+**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
