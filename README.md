@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
