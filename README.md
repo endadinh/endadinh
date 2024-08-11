@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace cannot be kept by force. It can only be achieved by understanding. "</i></h5>**
+**<h5><i>" If I were two-faced, would I be wearing this one? "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
