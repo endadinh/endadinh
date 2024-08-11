@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If I were two-faced, would I be wearing this one? "</i></h5>**
+**<h5><i>" The cautious seldom err. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
