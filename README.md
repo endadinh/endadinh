@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
+**<h5><i>" I am always ready to learn although I do not always like being taught. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
