@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
+**<h5><i>" No man has a good enough memory to be a successful liar. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
