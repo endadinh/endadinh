@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. "</i></h5>**
+**<h5><i>" People grow through experience if they meet life honestly and courageously. This is how character is built. "</i></h5>**
 
-*<b>___ Mary Kay Ash ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
