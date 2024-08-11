@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
+**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
