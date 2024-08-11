@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" Forgiveness is choosing to love. It is the first skill of self-giving love. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
