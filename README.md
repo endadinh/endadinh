@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you judge another, you do not define them, you define yourself. "</i></h5>**
+**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
