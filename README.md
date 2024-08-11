@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
