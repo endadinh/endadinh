@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Memory is the mother of all wisdom. "</i></h5>**
+**<h5><i>" History is written by the victors. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
