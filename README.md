@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fears are nothing more than a state of mind. "</i></h5>**
+**<h5><i>" Decision is a risk rooted in the courage of being free. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Paul Tillich ___</b>*
 
 -----
 
