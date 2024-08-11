@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing but heaven itself is better than a friend who is really a friend. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Plautus ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
