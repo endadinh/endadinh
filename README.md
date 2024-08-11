@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't choose your family. They are God's gift to you, as you are to them. "</i></h5>**
+**<h5><i>" Nothing great was ever achieved without enthusiasm. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
