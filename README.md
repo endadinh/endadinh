@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. "</i></h5>**
+**<h5><i>" Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible. "</i></h5>**
 
-*<b>___ Rachel Carson ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
