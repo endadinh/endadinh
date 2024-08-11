@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more sand that has escaped from the hourglass of our life, the clearer we should see through it. "</i></h5>**
+**<h5><i>" Think as a wise man but communicate in the language of the people. "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
