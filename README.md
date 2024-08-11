@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" History is written by the victors. "</i></h5>**
+**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Ludwig van Beethoven ___</b>*
 
 -----
 
