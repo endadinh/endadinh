@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
+**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
