@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
+**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Honoré de Balzac ___</b>*
 
 -----
 
