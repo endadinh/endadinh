@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sustaining true friendship is a lot more challenging than we give it credit for. "</i></h5>**
+**<h5><i>" You can't put a limit on anything. The more you dream, the farther you get. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Michael Phelps ___</b>*
 
 -----
 
