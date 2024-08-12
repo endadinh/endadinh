@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. "</i></h5>**
+**<h5><i>" The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
