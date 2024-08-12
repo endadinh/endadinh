@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
