@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
+**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
