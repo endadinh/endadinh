@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Small opportunities are often the beginning of great enterprises. "</i></h5>**
+**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
 
-*<b>___ Demosthenes ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
