@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But at any rate, the point is that God is what nobody admits to being, and everybody really is. "</i></h5>**
+**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
