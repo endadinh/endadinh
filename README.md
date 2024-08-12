@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is the true friend that never betrays. "</i></h5>**
+**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
