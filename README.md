@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
