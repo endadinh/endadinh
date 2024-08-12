@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your attitude, not your aptitude, will determine your altitude. "</i></h5>**
+**<h5><i>" Begin at once to live and count each separate day as a separate life. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
