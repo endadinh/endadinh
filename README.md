@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you surrender to the wind, you can ride it. "</i></h5>**
+**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
 
-*<b>___ Toni Morrison ___</b>*
+*<b>___ Marcel Proust ___</b>*
 
 -----
 
