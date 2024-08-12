@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Marcia Fudge ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
