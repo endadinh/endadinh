@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
+**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
 
-*<b>___ Robert F. Kennedy ___</b>*
+*<b>___ Phil Jackson ___</b>*
 
 -----
 
