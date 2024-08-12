@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Begin at once to live and count each separate day as a separate life. "</i></h5>**
+**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
