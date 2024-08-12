@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you doubt your power, you give power to your doubt. "</i></h5>**
+**<h5><i>" There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. "</i></h5>**
 
-*<b>___ Honoré de Balzac ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
