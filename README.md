@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
+**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Carol Burnett ___</b>*
 
 -----
 
