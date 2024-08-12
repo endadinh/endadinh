@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever you go, go with all your heart. "</i></h5>**
+**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Thomas Carlyle ___</b>*
 
 -----
 
