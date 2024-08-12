@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
+**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
