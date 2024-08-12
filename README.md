@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
+**<h5><i>" We may encounter many defeats, but we must not be defeated. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
