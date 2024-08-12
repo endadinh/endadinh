@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
+**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
