@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
