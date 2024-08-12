@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
+**<h5><i>" Life is a succession of lessons, which must be lived to be understood. "</i></h5>**
 
-*<b>___ Lucretius ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
