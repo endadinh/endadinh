@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only I can change my life. No one can do it for me. "</i></h5>**
+**<h5><i>" A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. "</i></h5>**
 
-*<b>___ Carol Burnett ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
