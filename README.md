@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The real danger is not that computers will begin to think like men, but that men will begin to think like computers. "</i></h5>**
+**<h5><i>" If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. "</i></h5>**
 
-*<b>___ Sydney J. Harris ___</b>*
+*<b>___ Rachel Carson ___</b>*
 
 -----
 
