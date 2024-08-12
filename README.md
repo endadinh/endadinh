@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
+**<h5><i>" Important principles may, and must, be inflexible. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
