@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't put a limit on anything. The more you dream, the farther you get. "</i></h5>**
+**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
 
-*<b>___ Michael Phelps ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
