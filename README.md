@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
