@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. "</i></h5>**
+**<h5><i>" Friendship is certainly the finest balm for the pangs of disappointed love. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
