@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of lessons, which must be lived to be understood. "</i></h5>**
+**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
