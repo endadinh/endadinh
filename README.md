@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
