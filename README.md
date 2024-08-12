@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
+**<h5><i>" Nobody made a greater mistake than he who did nothing because he could do only a little. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Edmund Burke ___</b>*
 
 -----
 
