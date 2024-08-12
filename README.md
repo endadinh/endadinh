@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No alibi will save you from accepting the responsibility. "</i></h5>**
+**<h5><i>" Wherever you go, go with all your heart. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
