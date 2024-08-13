@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man is not old as long as he is seeking something. "</i></h5>**
+**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
 
-*<b>___ Edmond Rostand ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
