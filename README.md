@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow to fall into friendship; but when thou art in, continue firm and constant. "</i></h5>**
+**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
