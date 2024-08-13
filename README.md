@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's so simple to be wise. Just think of something stupid to say and then don't say it. "</i></h5>**
+**<h5><i>" You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job. "</i></h5>**
 
-*<b>___ Sam Levenson ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
