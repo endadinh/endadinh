@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
+**<h5><i>" The beginning is always today. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Mary Wollstonecraft ___</b>*
 
 -----
 
