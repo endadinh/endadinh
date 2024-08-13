@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
+**<h5><i>" All I can say about life is, Oh God, enjoy it! "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Bob Newhart ___</b>*
 
 -----
 
