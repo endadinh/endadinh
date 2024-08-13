@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. "</i></h5>**
+**<h5><i>" Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Plotinus ___</b>*
 
 -----
 
