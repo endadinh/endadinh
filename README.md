@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" They can conquer who believe they can. "</i></h5>**
+**<h5><i>" Don't cry because it's over. Smile because it happened. "</i></h5>**
 
-*<b>___ Virgil ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
