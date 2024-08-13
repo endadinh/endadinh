@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
+**<h5><i>" Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. "</i></h5>**
 
-*<b>___ Léon Blum ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
