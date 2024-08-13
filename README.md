@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
+**<h5><i>" Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
