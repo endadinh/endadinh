@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. "</i></h5>**
+**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Niels Bohr ___</b>*
 
 -----
 
