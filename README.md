@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All I can say about life is, Oh God, enjoy it! "</i></h5>**
+**<h5><i>" Our work is the presentation of our capabilities. "</i></h5>**
 
-*<b>___ Bob Newhart ___</b>*
+*<b>___ Edward Gibbon ___</b>*
 
 -----
 
