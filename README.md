@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
