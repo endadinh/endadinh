@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
+**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
