@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not engaging in ignorance is wisdom. "</i></h5>**
+**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
 
-*<b>___ Bodhidharma ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
