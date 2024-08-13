@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
+**<h5><i>" We don't stop playing because we grow old; we grow old because we stop playing. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
