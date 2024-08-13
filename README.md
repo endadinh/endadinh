@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
+**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
