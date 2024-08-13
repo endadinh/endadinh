@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
+**<h5><i>" A friend in power is a friend lost. "</i></h5>**
 
-*<b>___ Sam Rayburn ___</b>*
+*<b>___ Henry Adams ___</b>*
 
 -----
 
