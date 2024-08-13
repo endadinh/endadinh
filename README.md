@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
+**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
 
-*<b>___ Jimi Hendrix ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
