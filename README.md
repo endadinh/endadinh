@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning is always today. "</i></h5>**
+**<h5><i>" A man is not old as long as he is seeking something. "</i></h5>**
 
-*<b>___ Mary Wollstonecraft ___</b>*
+*<b>___ Edmond Rostand ___</b>*
 
 -----
 
