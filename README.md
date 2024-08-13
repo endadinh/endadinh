@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. "</i></h5>**
+**<h5><i>" The only journey is the one within. "</i></h5>**
 
-*<b>___ Ravi Zacharias ___</b>*
+*<b>___ Rainer Maria Rilke ___</b>*
 
 -----
 
