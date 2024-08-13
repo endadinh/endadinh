@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
+**<h5><i>" Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
