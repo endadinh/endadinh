@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We cannot be more sensitive to pleasure without being more sensitive to pain. "</i></h5>**
+**<h5><i>" No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
