@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt someone doing what you said couldn't be done. "</i></h5>**
+**<h5><i>" The superior man is modest in his speech but exceeds in his actions. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
