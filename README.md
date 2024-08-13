@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wisdom gathered over time I have found that every experience is a form of exploration. "</i></h5>**
+**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
 
-*<b>___ Ansel Adams ___</b>*
+*<b>___ Sam Rayburn ___</b>*
 
 -----
 
