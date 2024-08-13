@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only journey is the one within. "</i></h5>**
+**<h5><i>" Not engaging in ignorance is wisdom. "</i></h5>**
 
-*<b>___ Rainer Maria Rilke ___</b>*
+*<b>___ Bodhidharma ___</b>*
 
 -----
 
