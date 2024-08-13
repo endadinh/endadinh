@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your friend is your needs answered. "</i></h5>**
+**<h5><i>" I can, therefore I am. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
