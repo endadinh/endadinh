@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can, therefore I am. "</i></h5>**
+**<h5><i>" The years teach much which the days never know. "</i></h5>**
 
-*<b>___ Simone Weil ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
