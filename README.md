@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition. "</i></h5>**
+**<h5><i>" The free man is he who does not fear to go to the end of his thought. "</i></h5>**
 
-*<b>___ Plotinus ___</b>*
+*<b>___ Léon Blum ___</b>*
 
 -----
 
