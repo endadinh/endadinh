@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
+**<h5><i>" Beware of false knowledge; it is more dangerous than ignorance. "</i></h5>**
 
-*<b>___ Ted Williams ___</b>*
+*<b>___ Bernard Shaw ___</b>*
 
 -----
 
