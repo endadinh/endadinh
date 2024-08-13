@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
+**<h5><i>" Time you enjoy wasting, was not wasted. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
