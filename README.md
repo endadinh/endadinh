@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A long habit of not thinking a thing wrong gives it a superficial appearance of being right. "</i></h5>**
+**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Ted Williams ___</b>*
 
 -----
 
