@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man can succeed in a line of endeavor which he does not like. "</i></h5>**
+**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Norman Douglas ___</b>*
 
 -----
 
