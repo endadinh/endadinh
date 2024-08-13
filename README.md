@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
