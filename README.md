@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our work is the presentation of our capabilities. "</i></h5>**
+**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
 
-*<b>___ Edward Gibbon ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
