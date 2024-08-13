@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" We should not give up and we should not allow the problem to defeat us. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ A. P. J. Abdul Kalam ___</b>*
 
 -----
 
