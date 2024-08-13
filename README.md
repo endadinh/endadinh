@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
+**<h5><i>" Be slow to fall into friendship; but when thou art in, continue firm and constant. "</i></h5>**
 
-*<b>___ Norman Douglas ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
