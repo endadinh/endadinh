@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
