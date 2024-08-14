@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like riding a bicycle. To keep your balance you must keep moving. "</i></h5>**
+**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
