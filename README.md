@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things change; nothing perishes. "</i></h5>**
+**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
