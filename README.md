@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be great is to be misunderstood. "</i></h5>**
+**<h5><i>" If you have a harem of 40 women, you never get to know any of them very well. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Warren Buffett ___</b>*
 
 -----
 
