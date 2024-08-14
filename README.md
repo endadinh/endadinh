@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you change the way you look at things, the things you look at change. "</i></h5>**
+**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
