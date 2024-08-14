@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. "</i></h5>**
+**<h5><i>" Sometimes the most important thing in a whole day is the rest we take between two deep breaths. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Etty Hillesum ___</b>*
 
 -----
 
