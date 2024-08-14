@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being entirely honest with oneself is a good exercise. "</i></h5>**
+**<h5><i>" Do good by stealth, and blush to find it fame. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
