@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Nargis Fakhri ___</b>*
 
 -----
 
