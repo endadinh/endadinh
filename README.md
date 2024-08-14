@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
+**<h5><i>" He who talks more is sooner exhausted. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
