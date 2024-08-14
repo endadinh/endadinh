@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship is different because everyone's personality is different. "</i></h5>**
+**<h5><i>" Time is the most valuable thing a man can spend. "</i></h5>**
 
-*<b>___ Nargis Fakhri ___</b>*
+*<b>___ Theophrastus ___</b>*
 
 -----
 
