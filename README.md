@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But I'll tell you what hermits realize. If you go off into a far, far forest and get very quiet, you'll come to understand that you're connected with everything. "</i></h5>**
+**<h5><i>" Being entirely honest with oneself is a good exercise. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Sigmund Freud ___</b>*
 
 -----
 
