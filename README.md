@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
+**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
