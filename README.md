@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" Of all possessions a friend is the most precious. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Herodotus ___</b>*
 
 -----
 
