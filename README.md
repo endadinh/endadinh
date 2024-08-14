@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. "</i></h5>**
+**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
 
-*<b>___ Elizabeth Kapu'uwailani Lindsey ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
