@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
+**<h5><i>" You might well remember that nothing can bring you success but yourself. "</i></h5>**
 
-*<b>___ Reinhold Niebuhr ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
