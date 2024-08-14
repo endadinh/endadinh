@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
+**<h5><i>" All things must come to the soul from its roots, from where it is planted. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Teresa of Ávila ___</b>*
 
 -----
 
