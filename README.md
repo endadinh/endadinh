@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We lost because we told ourselves we lost. "</i></h5>**
+**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
