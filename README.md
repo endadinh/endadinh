@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of all possessions a friend is the most precious. "</i></h5>**
+**<h5><i>" The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. "</i></h5>**
 
-*<b>___ Herodotus ___</b>*
+*<b>___ Reinhold Niebuhr ___</b>*
 
 -----
 
