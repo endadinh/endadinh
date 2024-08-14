@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. "</i></h5>**
+**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
 
-*<b>___ Eric Hoffer ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
