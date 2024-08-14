@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful that we have met with a paradox. Now we have some hope of making progress. "</i></h5>**
+**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
 
-*<b>___ Niels Bohr ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
