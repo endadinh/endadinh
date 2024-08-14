@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only do what your heart tells you. "</i></h5>**
+**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
 
-*<b>___ Princess Diana ___</b>*
+*<b>___ Fawn M. Brodie ___</b>*
 
 -----
 
