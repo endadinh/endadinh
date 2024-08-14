@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ Naguib Mahfouz ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
