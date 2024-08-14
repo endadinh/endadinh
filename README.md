@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
+**<h5><i>" To keep your secret is wisdom; but to expect others to keep it is folly. "</i></h5>**
 
-*<b>___ Fawn M. Brodie ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
