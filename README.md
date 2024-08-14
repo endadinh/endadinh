@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is never enough time to do everything, but there is always enough time to do the most important thing. "</i></h5>**
+**<h5><i>" Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ George Foreman ___</b>*
 
 -----
 
