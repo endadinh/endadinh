@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship always benefits; love sometimes injures. "</i></h5>**
+**<h5><i>" You cannot find yourself by going into the past. You can find yourself by coming into the present. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
