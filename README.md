@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart. "</i></h5>**
+**<h5><i>" Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Charles Lindbergh ___</b>*
 
 -----
 
