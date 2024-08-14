@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
+**<h5><i>" Music is a higher revelation than all wisdom and philosophy. "</i></h5>**
 
-*<b>___ Robert F. Kennedy ___</b>*
+*<b>___ Ludwig van Beethoven ___</b>*
 
 -----
 
