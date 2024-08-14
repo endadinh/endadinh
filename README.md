@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
+**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Alexander Chalmers ___</b>*
 
 -----
 
