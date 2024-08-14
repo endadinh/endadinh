@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven. "</i></h5>**
+**<h5><i>" I'm not afraid of storms, for I'm learning how to sail my ship. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Louisa May Alcott ___</b>*
 
 -----
 
