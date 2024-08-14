@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
+**<h5><i>" Yesterday I dared to struggle. Today I dare to win. "</i></h5>**
 
-*<b>___ Alexander Chalmers ___</b>*
+*<b>___ Bernadette Devlin ___</b>*
 
 -----
 
