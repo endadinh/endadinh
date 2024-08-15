@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" You can't win unless you learn how to lose. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ Kareem Abdul-Jabbar ___</b>*
 
 -----
 
