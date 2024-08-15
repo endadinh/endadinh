@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You have to do your own growing no matter how tall your grandfather was. "</i></h5>**
+**<h5><i>" Speak low, if you speak love. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
