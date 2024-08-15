@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. "</i></h5>**
+**<h5><i>" It requires wisdom to understand wisdom: the music is nothing if the audience is deaf. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Walter Lippmann ___</b>*
 
 -----
 
