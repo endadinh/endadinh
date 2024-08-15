@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
+**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Orson Welles ___</b>*
 
 -----
 
