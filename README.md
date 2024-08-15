@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
+**<h5><i>" The gambling known as business looks with austere disfavor upon the business known as gambling. "</i></h5>**
 
-*<b>___ Norman Douglas ___</b>*
+*<b>___ Ambrose Bierce ___</b>*
 
 -----
 
