@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No man was ever wise by chance. "</i></h5>**
+**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ William Wordsworth ___</b>*
 
 -----
 
