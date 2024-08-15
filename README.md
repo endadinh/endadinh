@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Irrigators channel waters; fletchers straighten arrows; carpenters bend wood; the wise master themselves. "</i></h5>**
+**<h5><i>" The young man knows the rules, but the old man knows the exceptions. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
