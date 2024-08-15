@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is eloquence. "</i></h5>**
+**<h5><i>" When we seek to discover the best in others, we somehow bring out the best in ourselves. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ William Arthur Ward ___</b>*
 
 -----
 
