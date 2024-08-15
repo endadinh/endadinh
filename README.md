@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It requires wisdom to understand wisdom: the music is nothing if the audience is deaf. "</i></h5>**
+**<h5><i>" Hatred is never appeased by hatred in this world. By non-hatred alone is hatred appeased. This is a law eternal. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
