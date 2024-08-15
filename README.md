@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
+**<h5><i>" Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
