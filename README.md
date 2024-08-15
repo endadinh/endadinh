@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing happens to any person but what was in his power to go through with. "</i></h5>**
+**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
