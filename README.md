@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
+**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Henry Ward Beecher ___</b>*
 
 -----
 
