@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
+**<h5><i>" I have an everyday religion that works for me. Love yourself first, and everything else falls into line. "</i></h5>**
 
-*<b>___ Frank Abagnale ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
