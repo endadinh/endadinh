@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
+**<h5><i>" The man of knowledge must be able not only to love his enemies but also to hate his friends. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
