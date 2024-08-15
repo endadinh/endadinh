@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You know you're in love when you can't fall asleep because reality is finally better than your dreams. "</i></h5>**
+**<h5><i>" We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Frank Abagnale ___</b>*
 
 -----
 
