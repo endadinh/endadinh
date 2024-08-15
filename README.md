@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
+**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
 
-*<b>___ Don Marquis ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
