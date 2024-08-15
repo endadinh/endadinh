@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no friendship, no love, like that of the parent for the child. "</i></h5>**
+**<h5><i>" One today is worth two tomorrows. "</i></h5>**
 
-*<b>___ Henry Ward Beecher ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
