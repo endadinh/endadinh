@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can do it if you believe you can! "</i></h5>**
+**<h5><i>" Truth is generally the best vindication against slander. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
