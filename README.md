@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
+**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
 
-*<b>___ Jean Antoine Petit-Senn ___</b>*
+*<b>___ Clay Shirky ___</b>*
 
 -----
 
