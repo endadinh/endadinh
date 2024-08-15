@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
