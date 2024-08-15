@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
+**<h5><i>" There is nothing happens to any person but what was in his power to go through with. "</i></h5>**
 
-*<b>___ Ernest Hemingway ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
