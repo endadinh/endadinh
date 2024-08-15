@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we seek to discover the best in others, we somehow bring out the best in ourselves. "</i></h5>**
+**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Bob Knight ___</b>*
 
 -----
 
