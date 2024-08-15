@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One today is worth two tomorrows. "</i></h5>**
+**<h5><i>" I don't want to achieve immortality through my work... I want to achieve it through not dying. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
