@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
+**<h5><i>" I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
