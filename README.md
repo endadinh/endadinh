@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
+**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
