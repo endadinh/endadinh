@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The least of things with a meaning is worth more in life than the greatest of things without it. "</i></h5>**
+**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
