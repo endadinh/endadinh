@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is oftentimes nearer when we stoop than when we soar. "</i></h5>**
+**<h5><i>" Ideas pull the trigger, but instinct loads the gun. "</i></h5>**
 
-*<b>___ William Wordsworth ___</b>*
+*<b>___ Don Marquis ___</b>*
 
 -----
 
