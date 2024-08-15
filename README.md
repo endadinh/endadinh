@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is divided into the horrible and the miserable. "</i></h5>**
+**<h5><i>" A really great talent finds its happiness in execution. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
