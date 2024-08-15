@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
+**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
 
-*<b>___ Herbert Hoover ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
