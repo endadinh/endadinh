@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth is generally the best vindication against slander. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
