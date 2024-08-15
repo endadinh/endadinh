@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. "</i></h5>**
+**<h5><i>" The pine stays green in winter... wisdom in hardship. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Norman Douglas ___</b>*
 
 -----
 
