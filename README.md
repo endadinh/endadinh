@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
+**<h5><i>" Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
