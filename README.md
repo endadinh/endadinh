@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The human spirit must prevail over technology. "</i></h5>**
+**<h5><i>" You know you're in love when you can't fall asleep because reality is finally better than your dreams. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Dr. Seuss ___</b>*
 
 -----
 
