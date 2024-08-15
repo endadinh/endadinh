@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
+**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
