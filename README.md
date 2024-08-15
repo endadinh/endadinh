@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
+**<h5><i>" Everything that happens as it should, and if you observe carefully, you will find this to be so. "</i></h5>**
 
-*<b>___ Clay Shirky ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
