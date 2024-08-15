@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't play against opponents, you play against the game of basketball. "</i></h5>**
+**<h5><i>" Love, friendship and respect do not unite people as much as a common hatred for something. "</i></h5>**
 
-*<b>___ Bob Knight ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
