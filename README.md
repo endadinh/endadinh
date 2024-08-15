@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're going through hell, keep going. "</i></h5>**
+**<h5><i>" You got to be careful if you don't know where you're going, because you might not get there. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
