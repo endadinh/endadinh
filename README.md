@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Treat people as if they were what they ought to be, and you help them to become what they are capable of being. "</i></h5>**
+**<h5><i>" People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
