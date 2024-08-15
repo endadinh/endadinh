@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. "</i></h5>**
+**<h5><i>" I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
