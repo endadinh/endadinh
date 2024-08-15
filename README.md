@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The gambling known as business looks with austere disfavor upon the business known as gambling. "</i></h5>**
+**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
 
-*<b>___ Ambrose Bierce ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
