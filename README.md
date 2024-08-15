@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
+**<h5><i>" No man was ever wise by chance. "</i></h5>**
 
-*<b>___ Bobby Unser ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
