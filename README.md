@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature gave us one tongue and two ears so we could hear twice as much as we speak. "</i></h5>**
+**<h5><i>" If we look at the world with a love of life, the world will reveal its beauty to us. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
