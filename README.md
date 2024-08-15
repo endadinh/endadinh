@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The weak can never forgive. Forgiveness is the attribute of the strong. "</i></h5>**
+**<h5><i>" I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
