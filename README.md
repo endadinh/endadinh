@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. "</i></h5>**
+**<h5><i>" The human spirit must prevail over technology. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
