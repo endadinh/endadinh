@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
+**<h5><i>" If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
