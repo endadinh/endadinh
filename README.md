@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An appeaser is one who feeds a crocodile, hoping it will eat him last. "</i></h5>**
+**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
