@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A really great talent finds its happiness in execution. "</i></h5>**
+**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
