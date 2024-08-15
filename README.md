@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone. "</i></h5>**
+**<h5><i>" You can do it if you believe you can! "</i></h5>**
 
-*<b>___ Orson Welles ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
