@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learn from yesterday, live for today, hope for tomorrow. "</i></h5>**
+**<h5><i>" I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Plutarch ___</b>*
 
 -----
 
