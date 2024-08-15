@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
+**<h5><i>" You have to do your own growing no matter how tall your grandfather was. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
