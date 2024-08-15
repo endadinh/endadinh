@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. "</i></h5>**
+**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Carl Sandburg ___</b>*
 
 -----
 
