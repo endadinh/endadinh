@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
+**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
