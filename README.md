@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
+**<h5><i>" The self is not something ready-made, but something in continuous formation through choice of action. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
