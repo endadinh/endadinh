@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
+**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
 
-*<b>___ Alfred Korzybski ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
