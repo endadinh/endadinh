@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
+**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
 
-*<b>___ Ed Cunningham ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
