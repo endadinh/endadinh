@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do what you've always done, you'll get what you've always gotten. "</i></h5>**
+**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
