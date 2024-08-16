@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
