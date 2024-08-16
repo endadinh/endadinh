@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By believing passionately in something that does not yet exist, we create it. "</i></h5>**
+**<h5><i>" Men are disturbed not by things, but by the view which they take of them. "</i></h5>**
 
-*<b>___ Nikos Kazantzakis ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
