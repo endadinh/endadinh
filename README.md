@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
