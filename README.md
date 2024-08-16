@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
+**<h5><i>" If you do what you've always done, you'll get what you've always gotten. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
