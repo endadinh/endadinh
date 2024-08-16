@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
+**<h5><i>" What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. "</i></h5>**
 
-*<b>___ Anton Chekhov ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
