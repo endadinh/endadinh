@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
+**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
