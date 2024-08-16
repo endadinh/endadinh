@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
+**<h5><i>" Imagination is the highest kite one can fly. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Lauren Bacall ___</b>*
 
 -----
 
