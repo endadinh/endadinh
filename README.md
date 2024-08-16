@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
+**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
 
-*<b>___ Dag Hammarskjöld ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
