@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
+**<h5><i>" Life is what happens while you are making other plans. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
