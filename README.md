@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
+**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
