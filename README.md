@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
