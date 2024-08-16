@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I do not know the American gentleman, god forgive me for putting two such words together. "</i></h5>**
+**<h5><i>" I am an optimist. It does not seem too much use being anything else. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
