@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A short saying often contains much wisdom. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
