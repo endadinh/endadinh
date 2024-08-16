@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Luck is what happens when preparation meets opportunity. "</i></h5>**
+**<h5><i>" The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Cecil B. DeMille ___</b>*
 
 -----
 
