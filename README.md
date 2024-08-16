@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Stewart Brand ___</b>*
 
 -----
 
