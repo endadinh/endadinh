@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
+**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Sam Rayburn ___</b>*
 
 -----
 
