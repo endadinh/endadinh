@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You do not become good by trying to be good, but by finding the goodness that is already within you. "</i></h5>**
+**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
