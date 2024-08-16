@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like the immortality of the soul, is too good to be believed. "</i></h5>**
+**<h5><i>" Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
