@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens while you are making other plans. "</i></h5>**
+**<h5><i>" Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
