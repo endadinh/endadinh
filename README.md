@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
+**<h5><i>" I can't listen to that much Wagner. I start getting the urge to conquer Poland. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
