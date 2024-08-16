@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ideas are the beginning points of all fortunes. "</i></h5>**
+**<h5><i>" There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
