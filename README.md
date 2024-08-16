@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
+**<h5><i>" The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ William Hurt ___</b>*
 
 -----
 
