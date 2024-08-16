@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
+**<h5><i>" Action may not always bring happiness; but there is no happiness without action. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
