@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
+**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
 
-*<b>___ Sam Rayburn ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
