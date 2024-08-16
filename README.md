@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" Beware lest you lose the substance by grasping at the shadow. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
