@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. "</i></h5>**
+**<h5><i>" There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking. "</i></h5>**
 
-*<b>___ Billy Wilder ___</b>*
+*<b>___ Alfred Korzybski ___</b>*
 
 -----
 
