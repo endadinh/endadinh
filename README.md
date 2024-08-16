@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is better to understand a little than to misunderstand a lot. "</i></h5>**
+**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
