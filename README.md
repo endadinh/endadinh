@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware lest you lose the substance by grasping at the shadow. "</i></h5>**
+**<h5><i>" I do not know the American gentleman, god forgive me for putting two such words together. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
