@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't look back. Something might be gaining on you. "</i></h5>**
+**<h5><i>" It is the supreme art of the teacher to awaken joy in creative expression and knowledge. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
