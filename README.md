@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. "</i></h5>**
+**<h5><i>" At the center of your being, you have the answer; you know who you are, and you know what you want. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
