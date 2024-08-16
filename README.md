@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Dag Hammarskjöld ___</b>*
 
 -----
 
