@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is not an act; it is a habit. "</i></h5>**
+**<h5><i>" Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
