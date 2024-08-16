@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort. "</i></h5>**
+**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
