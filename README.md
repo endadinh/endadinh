@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road. "</i></h5>**
+**<h5><i>" Friends are those rare people who ask how we are and then wait to hear the answer. "</i></h5>**
 
-*<b>___ Stewart Brand ___</b>*
+*<b>___ Ed Cunningham ___</b>*
 
 -----
 
