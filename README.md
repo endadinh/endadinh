@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
