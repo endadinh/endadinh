@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let none find fault with others; let none see the omissions and commissions of others. But let one see one's own acts, done and undone. "</i></h5>**
+**<h5><i>" Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
