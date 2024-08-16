@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who angers you conquers you. "</i></h5>**
+**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Edward Everett Hale ___</b>*
 
 -----
 
