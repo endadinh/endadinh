@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
+**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
