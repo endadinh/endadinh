@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" Nothing in life is to be feared. It is only to be understood. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
