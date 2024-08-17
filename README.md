@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
+**<h5><i>" These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Vernon Cooper ___</b>*
 
 -----
 
