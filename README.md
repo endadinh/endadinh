@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Joy is what happens to us when we allow ourselves to recognize how good things really are. "</i></h5>**
+**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
 
-*<b>___ Marianne Williamson ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
