@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
+**<h5><i>" Knowing is not enough; we must apply! "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
