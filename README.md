@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
+**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
