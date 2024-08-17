@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
+**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
 
-*<b>___ Jared Diamond ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
