@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
+**<h5><i>" Trying to define yourself is like trying to bite your own teeth. "</i></h5>**
 
-*<b>___ Lucretius ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
