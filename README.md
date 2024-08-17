@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do one thing every day that scares you. "</i></h5>**
+**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Corita Kent ___</b>*
 
 -----
 
