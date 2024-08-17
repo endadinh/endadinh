@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one is lucky, a solitary fantasy can totally transform one million realities. "</i></h5>**
+**<h5><i>" Love is composed of a single soul inhabiting two bodies. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
