@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply! "</i></h5>**
+**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
