@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
+**<h5><i>" Courage is going from failure to failure without losing enthusiasm. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
