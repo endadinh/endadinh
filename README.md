@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" Until you make peace with who you are, you will never be content with what you have. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Doris Mortman ___</b>*
 
 -----
 
