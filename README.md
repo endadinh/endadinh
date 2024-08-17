@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We never live; we are always in the expectation of living. "</i></h5>**
+**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
