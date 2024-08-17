@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our passion is our strength. "</i></h5>**
+**<h5><i>" The fox has many tricks. The hedgehog has but one. But that is the best of all. "</i></h5>**
 
-*<b>___ Billie Armstrong ___</b>*
+*<b>___ Erasmus ___</b>*
 
 -----
 
