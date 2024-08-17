@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of moments. To live each one is to succeed. "</i></h5>**
+**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
 
-*<b>___ Corita Kent ___</b>*
+*<b>___ Lucretius ___</b>*
 
 -----
 
