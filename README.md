@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
+**<h5><i>" Eternal nothingness is fine if you happen to be dressed for it. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
