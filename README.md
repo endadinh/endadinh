@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
+**<h5><i>" If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. "</i></h5>**
 
-*<b>___ Simone Weil ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
