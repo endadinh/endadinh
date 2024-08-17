@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has ever become poor by giving. "</i></h5>**
+**<h5><i>" No bird soars too high if he soars with his own wings. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
