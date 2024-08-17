@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Faith in oneself is the best and safest course. "</i></h5>**
+**<h5><i>" No one has ever become poor by giving. "</i></h5>**
 
-*<b>___ Michelangelo ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
