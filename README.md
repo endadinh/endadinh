@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The winds and waves are always on the side of the ablest navigators. "</i></h5>**
+**<h5><i>" All is flux; nothing stays still. "</i></h5>**
 
-*<b>___ Edward Gibbon ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
