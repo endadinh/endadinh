@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness can exist only in acceptance. "</i></h5>**
+**<h5><i>" Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
