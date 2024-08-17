@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With every experience, you alone are painting your own canvas, thought by thought, choice by choice. "</i></h5>**
+**<h5><i>" If you love someone, set them free. If they come back, they're yours; if they don't, they never were. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
