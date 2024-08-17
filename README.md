@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is not what happens to a man. It is what a man does with what happens to him. "</i></h5>**
+**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
