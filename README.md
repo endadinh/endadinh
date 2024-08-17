@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All things must come to the soul from its roots, from where it is planted. "</i></h5>**
+**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
 
-*<b>___ Teresa of Ávila ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
