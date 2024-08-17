@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Music in the soul can be heard by the universe. "</i></h5>**
+**<h5><i>" Our passion is our strength. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Billie Armstrong ___</b>*
 
 -----
 
