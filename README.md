@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You don't look out there for God, something in the sky, you look in you. "</i></h5>**
+**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
