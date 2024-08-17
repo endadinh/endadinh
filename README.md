@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you love someone, set them free. If they come back, they're yours; if they don't, they never were. "</i></h5>**
+**<h5><i>" If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Colin Powell ___</b>*
 
 -----
 
