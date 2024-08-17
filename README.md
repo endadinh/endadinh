@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Share your smile with the world. It's a symbol of friendship and peace. "</i></h5>**
+**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
 
-*<b>___ Christie Brinkley ___</b>*
+*<b>___ Jared Diamond ___</b>*
 
 -----
 
