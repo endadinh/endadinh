@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" Wisdom, compassion, and courage are the three universally recognized moral qualities of men. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
