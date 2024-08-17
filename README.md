@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never worry about action, but only inaction. "</i></h5>**
+**<h5><i>" In order to succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Nikos Kazantzakis ___</b>*
 
 -----
 
