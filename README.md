@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
+**<h5><i>" Those who cannot learn from history are doomed to repeat it. "</i></h5>**
 
-*<b>___ Casey Stengel ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
