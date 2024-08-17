@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is deep as Eternity; Speech is shallow as Time. "</i></h5>**
+**<h5><i>" It is fatal to enter any war without the will to win it. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Douglas MacArthur ___</b>*
 
 -----
 
