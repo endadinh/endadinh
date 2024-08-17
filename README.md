@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rare as is true love, true friendship is rarer. "</i></h5>**
+**<h5><i>" One that desires to excel should endeavor in those things that are in themselves most excellent. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
