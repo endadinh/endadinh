@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
+**<h5><i>" Dreams come true. Without that possibility, nature would not incite us to have them. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ John Updike ___</b>*
 
 -----
 
