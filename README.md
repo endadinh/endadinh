@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never make friends with people who are above or below you in status. Such friendships will never give you any happiness. "</i></h5>**
+**<h5><i>" By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. "</i></h5>**
 
-*<b>___ Chanakya ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
