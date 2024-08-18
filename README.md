@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. "</i></h5>**
+**<h5><i>" I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. "</i></h5>**
 
-*<b>___ Amy Tan ___</b>*
+*<b>___ G. K. Chesterton ___</b>*
 
 -----
 
