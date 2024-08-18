@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Coming together is a beginning; keeping together is progress; working together is success. "</i></h5>**
+**<h5><i>" Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Avery Brooks ___</b>*
 
 -----
 
