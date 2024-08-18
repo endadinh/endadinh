@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is not a talent of some men but is the health of every man. "</i></h5>**
+**<h5><i>" All great achievements require time. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
