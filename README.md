@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
+**<h5><i>" One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
