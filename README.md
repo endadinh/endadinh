@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fans don't boo nobodies. "</i></h5>**
+**<h5><i>" Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement. "</i></h5>**
 
-*<b>___ Reggie Jackson (basketball, born 1990) ___</b>*
+*<b>___ Ralph Marston ___</b>*
 
 -----
 
