@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. "</i></h5>**
+**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
 
-*<b>___ Satchel Paige ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
