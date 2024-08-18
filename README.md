@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing. "</i></h5>**
+**<h5><i>" You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
