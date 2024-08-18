@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
+**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
