@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear grows in darkness; if you think there's a bogeyman around, turn on the light. "</i></h5>**
+**<h5><i>" That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Lisa Alther ___</b>*
 
 -----
 
