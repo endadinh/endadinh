@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
+**<h5><i>" Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
