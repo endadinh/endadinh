@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
+**<h5><i>" You and I are all as much continuous with the physical universe as a wave is continuous with the ocean. "</i></h5>**
 
-*<b>___ Pericles ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
