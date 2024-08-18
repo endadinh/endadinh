@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
+**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
