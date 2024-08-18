@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well. "</i></h5>**
+**<h5><i>" Fans don't boo nobodies. "</i></h5>**
 
-*<b>___ Jeff Bezos ___</b>*
+*<b>___ Reggie Jackson (basketball, born 1990) ___</b>*
 
 -----
 
