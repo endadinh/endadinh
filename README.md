@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
