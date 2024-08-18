@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
+**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Don Shula ___</b>*
 
 -----
 
