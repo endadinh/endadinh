@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
+**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
