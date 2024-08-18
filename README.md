@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
+**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
