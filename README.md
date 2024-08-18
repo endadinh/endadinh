@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you. "</i></h5>**
+**<h5><i>" Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing. "</i></h5>**
 
-*<b>___ A. A. Milne ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
