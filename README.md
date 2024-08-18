@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. "</i></h5>**
+**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
