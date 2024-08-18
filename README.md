@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
+**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
