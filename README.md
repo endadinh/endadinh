@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
+**<h5><i>" Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Cleese ___</b>*
 
 -----
 
