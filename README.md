@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
+**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
 
-*<b>___ Susan Orlean ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
