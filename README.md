@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who conquers others is strong; He who conquers himself is mighty. "</i></h5>**
+**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
