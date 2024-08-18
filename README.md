@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
+**<h5><i>" Never reach out your hand unless you're willing to extend an arm. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Pope Paul VI ___</b>*
 
 -----
 
