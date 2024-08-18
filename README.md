@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
+**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
