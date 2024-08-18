@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You and I are all as much continuous with the physical universe as a wave is continuous with the ocean. "</i></h5>**
+**<h5><i>" Do not give your attention to what others do or fail to do; give it to what you do or fail to do. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Dhammapada ___</b>*
 
 -----
 
