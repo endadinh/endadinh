@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing great was ever achieved without enthusiasm. "</i></h5>**
+**<h5><i>" The ultimate promise of technology is to make us master of a world that we command by the push of a button. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Volker Grassmuck ___</b>*
 
 -----
 
