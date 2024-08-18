@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always bear in mind that your own resolution to succeed is more important than any one thing. "</i></h5>**
+**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
