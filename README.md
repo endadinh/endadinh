@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. "</i></h5>**
+**<h5><i>" We shall never know all the good that a simple smile can do. "</i></h5>**
 
-*<b>___ Hanya Yanagihara ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
