@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. "</i></h5>**
+**<h5><i>" Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. "</i></h5>**
 
-*<b>___ Margaret Laurence ___</b>*
+*<b>___ Hanya Yanagihara ___</b>*
 
 -----
 
