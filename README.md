@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them. "</i></h5>**
+**<h5><i>" Everything you can imagine is real. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
