@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" Never make friends with people who are above or below you in status. Such friendships will never give you any happiness. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
