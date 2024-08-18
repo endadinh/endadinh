@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ Amy Tan ___</b>*
 
 -----
 
