@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man blames himself. The inferior man blames others. "</i></h5>**
+**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
 
-*<b>___ Don Shula ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
