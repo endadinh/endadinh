@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our intention creates our reality. "</i></h5>**
+**<h5><i>" Time is the wisest counsellor of all. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Pericles ___</b>*
 
 -----
 
