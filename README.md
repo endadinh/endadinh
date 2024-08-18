@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreams come true. Without that possibility, nature would not incite us to have them. "</i></h5>**
+**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
 
-*<b>___ John Updike ___</b>*
+*<b>___ Charlotte Brontë ___</b>*
 
 -----
 
