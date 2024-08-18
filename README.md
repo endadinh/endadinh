@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
