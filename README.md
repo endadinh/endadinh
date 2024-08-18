@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
