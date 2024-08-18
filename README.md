@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is so constructed that an event does not, cannot, will not, match the expectation. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ Charlotte Brontë ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
