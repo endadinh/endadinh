@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lose an hour in the morning, and you will spend all day looking for it. "</i></h5>**
+**<h5><i>" Go for it now. The future is promised to no one. "</i></h5>**
 
-*<b>___ Richard Whately ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
