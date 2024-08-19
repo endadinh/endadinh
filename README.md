@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot have what you do not want. "</i></h5>**
+**<h5><i>" Take no thought of who is right or wrong or who is better than. Be not for or against. "</i></h5>**
 
-*<b>___ John Acosta ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
