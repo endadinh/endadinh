@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A hero is no braver than an ordinary man, but he is braver five minutes longer. "</i></h5>**
+**<h5><i>" Blessed is the man who expects nothing, for he shall never be disappointed. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Alexander Pope ___</b>*
 
 -----
 
