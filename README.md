@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
+**<h5><i>" Fear makes strangers of people who would be friends. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Shirley MacLaine ___</b>*
 
 -----
 
