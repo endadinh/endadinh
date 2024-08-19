@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" The exercise of an extraordinary gift is the supremist pleasure in life. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
