@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Anything you really want, you can attain, if you really go after it. "</i></h5>**
+**<h5><i>" It is in your moments of decision that your destiny is shaped. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
