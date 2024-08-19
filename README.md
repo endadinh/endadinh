@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The heart has eyes which the brain knows nothing of. "</i></h5>**
+**<h5><i>" If you want things to be different, perhaps the answer is to become different yourself. "</i></h5>**
 
-*<b>___ Charles Henry Parkhurst ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
