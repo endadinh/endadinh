@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
+**<h5><i>" Freedom is not worth having if it does not connote freedom to err. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
