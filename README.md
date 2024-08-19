@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends. "</i></h5>**
+**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Coco Chanel ___</b>*
 
 -----
 
