@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
+**<h5><i>" I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Yolanda Hadid ___</b>*
 
 -----
 
