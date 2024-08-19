@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All action results from thought, so it is thoughts that matter. "</i></h5>**
+**<h5><i>" You're never a loser until you quit trying. "</i></h5>**
 
-*<b>___ Sai Baba ___</b>*
+*<b>___ Mike Ditka ___</b>*
 
 -----
 
