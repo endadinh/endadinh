@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those that know, do. Those that understand, teach. "</i></h5>**
+**<h5><i>" Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Henry Reed ___</b>*
 
 -----
 
