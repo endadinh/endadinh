@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
+**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
