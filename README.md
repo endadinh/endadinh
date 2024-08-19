@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Independence is happiness. "</i></h5>**
+**<h5><i>" Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. "</i></h5>**
 
-*<b>___ Susan B. Anthony ___</b>*
+*<b>___ Paavo Nurmi ___</b>*
 
 -----
 
