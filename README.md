@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is a will, there is a way. If there is a chance in a million that you can do something, anything, to keep what you want from ending, do it. Pry the door open or, if need be, wedge your foot in that door and keep it open. "</i></h5>**
+**<h5><i>" A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. "</i></h5>**
 
-*<b>___ Pauline Kael ___</b>*
+*<b>___ Basil of Caesarea ___</b>*
 
 -----
 
