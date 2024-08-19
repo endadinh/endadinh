@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever happens, take responsibility. "</i></h5>**
+**<h5><i>" Yesterday's home runs don't win today's games. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
