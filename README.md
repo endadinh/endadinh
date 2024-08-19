@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can only grow if you're willing to feel awkward and uncomfortable when you try something new. "</i></h5>**
+**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
