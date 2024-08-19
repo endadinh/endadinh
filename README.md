@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
+**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
