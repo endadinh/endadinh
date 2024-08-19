@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The exercise of an extraordinary gift is the supremist pleasure in life. "</i></h5>**
+**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
