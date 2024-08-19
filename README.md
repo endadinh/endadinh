@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
+**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
 
-*<b>___ Caroline Myss ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
