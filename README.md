@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Holly Near ___</b>*
 
 -----
 
