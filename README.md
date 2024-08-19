@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are made wise not by the recollection of our past, but by the responsibility for our future. "</i></h5>**
+**<h5><i>" It is the neglect of timely repair that makes rebuilding necessary. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Richard Whately ___</b>*
 
 -----
 
