@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
+**<h5><i>" You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless. "</i></h5>**
 
-*<b>___ A. Powell Davies ___</b>*
+*<b>___ Caroline Myss ___</b>*
 
 -----
 
