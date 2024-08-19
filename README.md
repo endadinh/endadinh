@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
+**<h5><i>" To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself. "</i></h5>**
 
-*<b>___ Maureen Dowd ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
