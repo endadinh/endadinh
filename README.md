@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
+**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Edgar Allan Poe ___</b>*
 
 -----
 
