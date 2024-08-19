@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
+**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
 
-*<b>___ Edgar Allan Poe ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
