@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our strength grows out of our weaknesses. "</i></h5>**
+**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
