@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want things to be different, perhaps the answer is to become different yourself. "</i></h5>**
+**<h5><i>" Whatever happens, take responsibility. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
