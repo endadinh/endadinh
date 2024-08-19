@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
+**<h5><i>" You can only grow if you're willing to feel awkward and uncomfortable when you try something new. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
