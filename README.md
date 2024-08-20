@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
+**<h5><i>" I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Marilyn Monroe ___</b>*
 
 -----
 
