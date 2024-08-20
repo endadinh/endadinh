@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Before you put on a frown, make absolutely sure there are no smiles available. "</i></h5>**
+**<h5><i>" Truth is powerful and it prevails. "</i></h5>**
 
-*<b>___ James M. Beggs ___</b>*
+*<b>___ Sojourner Truth ___</b>*
 
 -----
 
