@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do more than dream: work. "</i></h5>**
+**<h5><i>" I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture. "</i></h5>**
 
-*<b>___ William Arthur Ward ___</b>*
+*<b>___ Susan Orlean ___</b>*
 
 -----
 
