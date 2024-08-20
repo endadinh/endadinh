@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
