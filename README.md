@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Once you choose hope, anything's possible. "</i></h5>**
+**<h5><i>" Light tomorrow with today! "</i></h5>**
 
-*<b>___ Christopher Reeve ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
