@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
+**<h5><i>" The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
