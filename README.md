@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
+**<h5><i>" It's not what you look at that matters, it's what you see. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
