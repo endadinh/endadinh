@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. "</i></h5>**
+**<h5><i>" If you love life, don't waste time, for time is what life is made up of. "</i></h5>**
 
-*<b>___ Robert Graves ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
