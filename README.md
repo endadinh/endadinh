@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
