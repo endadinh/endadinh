@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
+**<h5><i>" He that is giddy thinks the world turns round. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
