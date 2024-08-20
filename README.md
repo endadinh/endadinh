@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool. "</i></h5>**
+**<h5><i>" They say that time changes things, but you actually have to change them yourself. "</i></h5>**
 
-*<b>___ Joseph Roux ___</b>*
+*<b>___ Andy Warhol ___</b>*
 
 -----
 
