@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All of our technology is completely unnecessary to a happy life. "</i></h5>**
+**<h5><i>" Who looks outside, dreams, who looks inside, awakes. "</i></h5>**
 
-*<b>___ Tom Hodgkinson ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
