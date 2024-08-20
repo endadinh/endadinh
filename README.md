@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
