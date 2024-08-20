@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. "</i></h5>**
+**<h5><i>" As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. "</i></h5>**
 
-*<b>___ Mother Angelica ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
