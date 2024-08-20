@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
+**<h5><i>" A disciplined mind brings happiness. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
