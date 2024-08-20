@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. "</i></h5>**
+**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
 
-*<b>___ Marilyn Monroe ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
