@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
+**<h5><i>" Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. "</i></h5>**
 
-*<b>___ Daisaku Ikeda ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
