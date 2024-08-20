@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust your own instinct. Your mistakes might as well be your own, instead of someone else's. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ Billy Wilder ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
