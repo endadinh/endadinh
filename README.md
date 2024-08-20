@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Light tomorrow with today! "</i></h5>**
+**<h5><i>" Friendship at first sight, like love at first sight, is said to be the only truth. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Herman Melville ___</b>*
 
 -----
 
