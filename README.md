@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
