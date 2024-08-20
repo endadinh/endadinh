@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" Give me six hours to chop down a tree and I will spend the first four sharpening the axe. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
