@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most complicated achievements of thought are possible without the assistance of consciousness. "</i></h5>**
+**<h5><i>" First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII — and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we've realized it's a brochure. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
