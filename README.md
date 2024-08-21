@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
+**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
