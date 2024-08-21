@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" The most successful people are those who are good at plan B. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ James A. Yorke ___</b>*
 
 -----
 
