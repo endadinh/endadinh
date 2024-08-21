@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You know you're in love when you can't fall asleep because reality is finally better than your dreams. "</i></h5>**
+**<h5><i>" A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve. "</i></h5>**
 
-*<b>___ Dr. Seuss ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
