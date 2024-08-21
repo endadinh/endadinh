@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend to all is a friend to none. "</i></h5>**
+**<h5><i>" True friends stab you in the front. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
