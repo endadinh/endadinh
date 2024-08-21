@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. "</i></h5>**
+**<h5><i>" Read as you taste fruit or savor wine, or enjoy friendship, love or life. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ George Herbert ___</b>*
 
 -----
 
