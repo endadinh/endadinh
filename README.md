@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. "</i></h5>**
+**<h5><i>" There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Sam Walton ___</b>*
 
 -----
 
