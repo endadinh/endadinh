@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
+**<h5><i>" Those who cannot learn from history are doomed to repeat it. "</i></h5>**
 
-*<b>___ Doug Horton ___</b>*
+*<b>___ George Santayana ___</b>*
 
 -----
 
