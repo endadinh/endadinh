@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
+**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
