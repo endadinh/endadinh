@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
+**<h5><i>" Whatever has the nature of arising has the nature of ceasing. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
