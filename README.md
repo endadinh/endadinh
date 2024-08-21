@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Read as you taste fruit or savor wine, or enjoy friendship, love or life. "</i></h5>**
+**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
 
-*<b>___ George Herbert ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
