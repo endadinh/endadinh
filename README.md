@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. "</i></h5>**
+**<h5><i>" The biggest room in the world is room for improvement. "</i></h5>**
 
-*<b>___ Sam Walton ___</b>*
+*<b>___ Helmut Schmidt ___</b>*
 
 -----
 
