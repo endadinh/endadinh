@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. "</i></h5>**
+**<h5><i>" Experience is simply the name we give our mistakes. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
