@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always keep an open mind and a compassionate heart. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
