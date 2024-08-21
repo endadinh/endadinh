@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pain passes, but the beauty remains. "</i></h5>**
+**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
 
-*<b>___ Pierre-Auguste Renoir ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
