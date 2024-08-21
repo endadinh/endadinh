@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
+**<h5><i>" Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
