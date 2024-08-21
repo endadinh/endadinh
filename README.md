@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
+**<h5><i>" Never promise more than you can perform. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
