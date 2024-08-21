@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. "</i></h5>**
+**<h5><i>" If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
