@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. "</i></h5>**
+**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
