@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can't change the direction of the wind, but I can adjust my sails to always reach my destination. "</i></h5>**
+**<h5><i>" I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you. "</i></h5>**
 
-*<b>___ Jimmy Dean ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
