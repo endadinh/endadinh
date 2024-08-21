@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
+**<h5><i>" No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
