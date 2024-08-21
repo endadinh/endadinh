@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
