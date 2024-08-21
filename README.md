@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
+**<h5><i>" Knowing is not enough; we must apply! "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
