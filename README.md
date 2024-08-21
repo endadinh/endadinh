@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loss is nothing else but change, and change is Nature's delight. "</i></h5>**
+**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
