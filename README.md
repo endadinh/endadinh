@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. "</i></h5>**
+**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
