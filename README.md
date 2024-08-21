@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Tryon Edwards ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
