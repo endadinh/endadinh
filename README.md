@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. "</i></h5>**
+**<h5><i>" It is only when the mind and character slumber that the dress can be seen. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
