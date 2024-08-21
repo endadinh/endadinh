@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most successful people are those who are good at plan B. "</i></h5>**
+**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
 
-*<b>___ James A. Yorke ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
