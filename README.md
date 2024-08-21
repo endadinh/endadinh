@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man watches three football games in a row, he should be declared legally dead. "</i></h5>**
+**<h5><i>" A leader is one who knows the way, goes the way, and shows the way. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ John C. Maxwell ___</b>*
 
 -----
 
