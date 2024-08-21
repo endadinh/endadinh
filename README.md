@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" From error to error one discovers the entire truth. "</i></h5>**
+**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
