@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
+**<h5><i>" Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Mary Kay Ash ___</b>*
 
 -----
 
