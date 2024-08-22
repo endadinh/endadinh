@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To succeed, we must first believe that we can. "</i></h5>**
+**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
 
-*<b>___ Michael Korda ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
