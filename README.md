@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your big opportunity may be right where you are now. "</i></h5>**
+**<h5><i>" Genuine sincerity opens people's hearts, while manipulation causes them to close. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
