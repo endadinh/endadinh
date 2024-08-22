@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
