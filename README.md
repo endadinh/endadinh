@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As a cure for worrying, work is better than whisky. "</i></h5>**
+**<h5><i>" His lack of education is more than compensated for by his keenly developed moral bankruptcy. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
