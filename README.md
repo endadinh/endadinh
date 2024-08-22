@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence is a source of great strength. "</i></h5>**
+**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
