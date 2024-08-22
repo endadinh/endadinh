@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only real valuable thing is intuition. "</i></h5>**
+**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Franz Liszt ___</b>*
 
 -----
 
