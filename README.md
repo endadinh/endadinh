@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Formula for success: under promise and over deliver. "</i></h5>**
+**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
 
-*<b>___ Tom Peters ___</b>*
+*<b>___ Jimi Hendrix ___</b>*
 
 -----
 
