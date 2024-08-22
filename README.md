@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is charity and wisdom, there is neither fear nor ignorance. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
