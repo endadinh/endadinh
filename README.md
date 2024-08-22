@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Follow your instincts. That is where true wisdom manifests itself. "</i></h5>**
+**<h5><i>" Kindness is the language which the deaf can hear and the blind can see. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
