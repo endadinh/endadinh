@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
+**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
