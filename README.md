@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship, like credit, is highest when it is not used. "</i></h5>**
+**<h5><i>" You must welcome change as the rule but not as your ruler. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
