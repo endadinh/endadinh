@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world. "</i></h5>**
+**<h5><i>" The journey of a thousand miles begins with one step. "</i></h5>**
 
-*<b>___ Harriet Tubman ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
