@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
+**<h5><i>" A friend is a gift you give yourself. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Robert Louis Stevenson ___</b>*
 
 -----
 
