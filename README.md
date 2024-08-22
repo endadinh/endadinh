@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
+**<h5><i>" The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. "</i></h5>**
 
-*<b>___ W. H. Auden ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
