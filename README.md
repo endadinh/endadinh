@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who cannot learn from history are doomed to repeat it. "</i></h5>**
+**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
 
-*<b>___ George Santayana ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
