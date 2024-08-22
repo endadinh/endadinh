@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Light tomorrow with today! "</i></h5>**
+**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
 
-*<b>___ Elizabeth Browning ___</b>*
+*<b>___ Brian Tracy ___</b>*
 
 -----
 
