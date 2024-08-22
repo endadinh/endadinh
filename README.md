@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
+**<h5><i>" The fox has many tricks. The hedgehog has but one. But that is the best of all. "</i></h5>**
 
-*<b>___ Joe Paterno ___</b>*
+*<b>___ Erasmus ___</b>*
 
 -----
 
