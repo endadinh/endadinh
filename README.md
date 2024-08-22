@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We have two ears and one mouth so that we can listen twice as much as we speak. "</i></h5>**
+**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
