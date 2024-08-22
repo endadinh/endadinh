@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
+**<h5><i>" To choose what is difficult all one's days, as if it were easy, that is faith. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ W. H. Auden ___</b>*
 
 -----
 
