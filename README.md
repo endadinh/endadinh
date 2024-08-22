@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Goals are the fuel in the furnace of achievement. "</i></h5>**
+**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
 
-*<b>___ Brian Tracy ___</b>*
+*<b>___ Joe Paterno ___</b>*
 
 -----
 
