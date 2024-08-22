@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Beware of missing chances; otherwise it may be altogether too late someday. "</i></h5>**
+**<h5><i>" Light tomorrow with today! "</i></h5>**
 
-*<b>___ Franz Liszt ___</b>*
+*<b>___ Elizabeth Browning ___</b>*
 
 -----
 
