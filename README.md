@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. "</i></h5>**
+**<h5><i>" There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Thomas Carlyle ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
