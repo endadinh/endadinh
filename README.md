@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
+**<h5><i>" The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief. "</i></h5>**
 
-*<b>___ Ernie Banks ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
