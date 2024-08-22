@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge speaks, but wisdom listens. "</i></h5>**
+**<h5><i>" To succeed, we must first believe that we can. "</i></h5>**
 
-*<b>___ Jimi Hendrix ___</b>*
+*<b>___ Michael Korda ___</b>*
 
 -----
 
