@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
