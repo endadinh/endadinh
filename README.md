@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the quality of our work which will please God, not the quantity. "</i></h5>**
+**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
