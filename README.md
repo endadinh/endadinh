@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
+**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
