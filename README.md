@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing happens to any person but what was in his power to go through with. "</i></h5>**
+**<h5><i>" I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
