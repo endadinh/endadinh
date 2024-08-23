@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
+**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
