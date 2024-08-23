@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
+**<h5><i>" Kind words do not cost much. Yet they accomplish much. "</i></h5>**
 
-*<b>___ Woodrow Wilson ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
