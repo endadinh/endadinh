@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
+**<h5><i>" The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
