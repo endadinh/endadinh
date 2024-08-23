@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is only when the mind and character slumber that the dress can be seen. "</i></h5>**
+**<h5><i>" There is nothing so useless as doing efficiently that which should not be done at all. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Peter Drucker ___</b>*
 
 -----
 
