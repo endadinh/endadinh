@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ William Penn ___</b>*
 
 -----
 
