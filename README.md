@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
+**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
