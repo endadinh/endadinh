@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friendship founded on business is better than a business founded on friendship. "</i></h5>**
+**<h5><i>" It is only when the mind and character slumber that the dress can be seen. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
