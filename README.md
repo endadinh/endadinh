@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you're busy making other plans. "</i></h5>**
+**<h5><i>" Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Woodrow Wilson ___</b>*
 
 -----
 
