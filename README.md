@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
+**<h5><i>" Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
