@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
+**<h5><i>" To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
