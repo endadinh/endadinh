@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. "</i></h5>**
+**<h5><i>" I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Herbert Bayard Swope ___</b>*
 
 -----
 
