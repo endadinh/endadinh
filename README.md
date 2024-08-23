@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" It is the quality of our work which will please God, not the quantity. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
