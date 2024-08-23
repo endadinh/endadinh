@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
+**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
 
-*<b>___ Jean-Jacques Rousseau ___</b>*
+*<b>___ Danilo Dolci ___</b>*
 
 -----
 
