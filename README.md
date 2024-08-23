@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that sometimes not getting what you want is a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
