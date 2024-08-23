@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is full of magical things, patiently waiting for our wits to grow sharper. "</i></h5>**
+**<h5><i>" The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. "</i></h5>**
 
-*<b>___ Eden Phillpotts ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
