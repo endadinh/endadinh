@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" There is nothing happens to any person but what was in his power to go through with. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
