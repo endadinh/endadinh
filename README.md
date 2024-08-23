@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
+**<h5><i>" The universe is full of magical things, patiently waiting for our wits to grow sharper. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Eden Phillpotts ___</b>*
 
 -----
 
