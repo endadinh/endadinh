@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. "</i></h5>**
+**<h5><i>" When people are like each other they tend to like each other. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
