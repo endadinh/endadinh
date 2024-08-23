@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others. "</i></h5>**
+**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
