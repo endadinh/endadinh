@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. "</i></h5>**
+**<h5><i>" Trust your hunches. They're usually based on facts filed away just below the conscious level. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Joyce Brothers ___</b>*
 
 -----
 
