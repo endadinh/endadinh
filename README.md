@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
+**<h5><i>" Once you label me you negate me. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
