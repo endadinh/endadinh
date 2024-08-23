@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
+**<h5><i>" I have always found that mercy bears richer fruits than strict justice. "</i></h5>**
 
-*<b>___ René Descartes ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
