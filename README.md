@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Doing nothing is better than being busy doing nothing. "</i></h5>**
+**<h5><i>" Remember that a gesture of friendship, no matter how small, is always appreciated. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ H. Jackson Brown Jr. ___</b>*
 
 -----
 
