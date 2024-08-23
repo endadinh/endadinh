@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words do not cost much. Yet they accomplish much. "</i></h5>**
+**<h5><i>" Remember that sometimes not getting what you want is a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
