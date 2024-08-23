@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. "</i></h5>**
+**<h5><i>" What you get by achieving your goals is not as important as what you become by achieving your goals. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
