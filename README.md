@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is always an overmatch for strength. "</i></h5>**
+**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
 
-*<b>___ Phil Jackson ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
