@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Conquer anger with non-anger. Conquer badness with goodness. Conquer meanness with generosity. Conquer dishonesty with truth. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
