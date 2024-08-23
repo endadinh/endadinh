@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
+**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Casey Stengel ___</b>*
 
 -----
 
