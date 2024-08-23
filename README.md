@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Finding good players is easy. Getting them to play as a team is another story. "</i></h5>**
+**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
 
-*<b>___ Casey Stengel ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
