@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom. "</i></h5>**
+**<h5><i>" Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. "</i></h5>**
 
-*<b>___ Isaac Asimov ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
