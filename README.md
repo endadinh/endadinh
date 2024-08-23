@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All phenomena are preceded by the mind, created by the mind, and have the mind as their master. "</i></h5>**
+**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Jean-Jacques Rousseau ___</b>*
 
 -----
 
