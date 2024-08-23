@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to win, you must expect to win. "</i></h5>**
+**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
