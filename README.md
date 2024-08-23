@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Brooks Adams ___</b>*
 
 -----
 
