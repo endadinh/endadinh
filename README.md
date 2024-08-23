@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. "</i></h5>**
+**<h5><i>" It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
