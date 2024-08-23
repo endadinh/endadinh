@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge. "</i></h5>**
+**<h5><i>" By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. "</i></h5>**
 
-*<b>___ Masayoshi Son ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
