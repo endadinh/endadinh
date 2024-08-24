@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown. "</i></h5>**
+**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
