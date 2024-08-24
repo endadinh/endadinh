@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
+**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Iris Murdoch ___</b>*
 
 -----
 
