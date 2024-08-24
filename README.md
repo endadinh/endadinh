@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Honesty is the first chapter in the book of wisdom. "</i></h5>**
+**<h5><i>" Fear makes strangers of people who would be friends. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Shirley MacLaine ___</b>*
 
 -----
 
