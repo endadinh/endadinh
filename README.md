@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
+**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ E. E. Cummings ___</b>*
 
 -----
 
