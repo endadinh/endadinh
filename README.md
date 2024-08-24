@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear makes strangers of people who would be friends. "</i></h5>**
+**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
 
-*<b>___ Shirley MacLaine ___</b>*
+*<b>___ Jerome ___</b>*
 
 -----
 
