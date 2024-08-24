@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
+**<h5><i>" Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ John Burroughs ___</b>*
 
 -----
 
