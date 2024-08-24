@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Lucretius ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
