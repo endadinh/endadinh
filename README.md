@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. "</i></h5>**
+**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
 
-*<b>___ Harbhajan Singh ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
