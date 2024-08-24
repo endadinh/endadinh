@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
+**<h5><i>" Patience is the companion of wisdom. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
