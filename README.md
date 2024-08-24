@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Between saying and doing, many a pair of shoes is worn out. "</i></h5>**
+**<h5><i>" I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence. "</i></h5>**
 
-*<b>___ Iris Murdoch ___</b>*
+*<b>___ Frederick Douglass ___</b>*
 
 -----
 
