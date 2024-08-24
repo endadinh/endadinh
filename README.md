@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The friendship that can cease has never been real. "</i></h5>**
+**<h5><i>" Nothing is softer or more flexible than water, yet nothing can resist it. "</i></h5>**
 
-*<b>___ Jerome ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
