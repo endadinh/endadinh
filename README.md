@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
