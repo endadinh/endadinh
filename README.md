@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
+**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
 
-*<b>___ E. E. Cummings ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
