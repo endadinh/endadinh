@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Will Durant ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
