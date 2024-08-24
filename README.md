@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
+**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
