@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
+**<h5><i>" In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. "</i></h5>**
 
-*<b>___ Leo Buscaglia ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
