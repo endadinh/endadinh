@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is the campfire around which we tell our stories. "</i></h5>**
+**<h5><i>" A friend is what the heart needs all the time. "</i></h5>**
 
-*<b>___ Laurie Anderson ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
