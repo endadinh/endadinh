@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
+**<h5><i>" It is not in the stars to hold our destiny but in ourselves. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
