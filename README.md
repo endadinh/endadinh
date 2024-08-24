@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Rejoicing in our joy, not suffering over our suffering, makes someone a friend. "</i></h5>**
+**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
