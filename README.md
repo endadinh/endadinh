@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's important to know that words don't move mountains. Work, exacting work moves mountains. "</i></h5>**
+**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
 
-*<b>___ Danilo Dolci ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
