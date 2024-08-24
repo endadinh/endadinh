@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. "</i></h5>**
+**<h5><i>" Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
