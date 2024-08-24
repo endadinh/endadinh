@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one tugs at a single thing in nature, he finds it attached to the rest of the world. "</i></h5>**
+**<h5><i>" Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible. "</i></h5>**
 
-*<b>___ John Muir ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
