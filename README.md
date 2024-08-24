@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Russia is a riddle wrapped in a mystery inside an enigma. "</i></h5>**
+**<h5><i>" We know what we are but know not what we may be. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
