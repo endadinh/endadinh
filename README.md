@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
+**<h5><i>" If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
