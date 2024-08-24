@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The lure of the distant and the difficult is deceptive. The great opportunity is where you are. "</i></h5>**
+**<h5><i>" Dost thou love life? Then do not squander time, for that is the stuff life is made of. "</i></h5>**
 
-*<b>___ John Burroughs ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
