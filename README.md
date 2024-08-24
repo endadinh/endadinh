@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
