@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
+**<h5><i>" Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Denis Waitley ___</b>*
 
 -----
 
