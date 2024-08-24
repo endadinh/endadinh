@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
+**<h5><i>" There are no strangers here; Only friends you haven't yet met. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ William Butler Yeats ___</b>*
 
 -----
 
