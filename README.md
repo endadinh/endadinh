@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
+**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
