@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
+**<h5><i>" Don't smother each other. No one can grow in the shade. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Leo Buscaglia ___</b>*
 
 -----
 
