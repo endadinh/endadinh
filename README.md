@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The self is not something ready-made, but something in continuous formation through choice of action. "</i></h5>**
+**<h5><i>" True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. "</i></h5>**
 
-*<b>___ John Dewey ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
