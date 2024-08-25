@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens while you are making other plans. "</i></h5>**
+**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
