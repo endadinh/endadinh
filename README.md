@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
+**<h5><i>" The world turns aside to let any man pass who knows where he is going. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
