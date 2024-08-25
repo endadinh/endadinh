@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our dreams can come true, if we have the courage to pursue them. "</i></h5>**
+**<h5><i>" We know the truth, not only by the reason, but by the heart. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
