@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
+**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
 
-*<b>___ Dorothy Thompson ___</b>*
+*<b>___ Libby Larsen ___</b>*
 
 -----
 
