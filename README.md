@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
