@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark. "</i></h5>**
+**<h5><i>" Life is what happens while you are making other plans. "</i></h5>**
 
-*<b>___ Whoopi Goldberg ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
