@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
+**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
 
-*<b>___ Loretta Young ___</b>*
+*<b>___ Wolfgang Amadeus Mozart ___</b>*
 
 -----
 
