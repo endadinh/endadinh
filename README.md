@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
+**<h5><i>" Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Steven Van Zandt ___</b>*
 
 -----
 
