@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
+**<h5><i>" The minute you settle for less than you deserve, you get even less than you settled for. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Maureen Dowd ___</b>*
 
 -----
 
