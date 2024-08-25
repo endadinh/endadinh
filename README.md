@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
+**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
