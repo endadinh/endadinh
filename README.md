@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
+**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
