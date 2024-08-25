@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Barack Obama ___</b>*
 
 -----
 
