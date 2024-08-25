@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Try not to become a man of success, but rather try to become a man of value. "</i></h5>**
+**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Doug Horton ___</b>*
 
 -----
 
