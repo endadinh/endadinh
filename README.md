@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The great myth of our times is that technology is communication. "</i></h5>**
+**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
 
-*<b>___ Libby Larsen ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
