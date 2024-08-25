@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
+**<h5><i>" Respect should be earned by actions, and not acquired by years. "</i></h5>**
 
-*<b>___ Philip Sidney ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
