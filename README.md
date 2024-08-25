@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. "</i></h5>**
+**<h5><i>" Love does not consist of gazing at each other, but in looking together in the same direction. "</i></h5>**
 
-*<b>___ Wolfgang Amadeus Mozart ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
