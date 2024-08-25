@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
+**<h5><i>" Love is the only force capable of transforming an enemy into a friend. "</i></h5>**
 
-*<b>___ Ezra Taft Benson ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
