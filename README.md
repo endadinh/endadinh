@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
