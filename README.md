@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It requires wisdom to understand wisdom: the music is nothing if the audience is deaf. "</i></h5>**
+**<h5><i>" Let us always meet each other with smile, for the smile is the beginning of love. "</i></h5>**
 
-*<b>___ Walter Lippmann ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
