@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions. "</i></h5>**
+**<h5><i>" The thing always happens that you really believe in; and the belief in a thing makes it happen. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Frank Lloyd Wright ___</b>*
 
 -----
 
