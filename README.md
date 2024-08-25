@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be your own hero, it's cheaper than a movie ticket. "</i></h5>**
+**<h5><i>" Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful. "</i></h5>**
 
-*<b>___ Doug Horton ___</b>*
+*<b>___ Harvey Mackay ___</b>*
 
 -----
 
