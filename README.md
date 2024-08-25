@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't watch the clock; do what it does. Keep going. "</i></h5>**
+**<h5><i>" Don't settle for a relationship that won't let you be yourself. "</i></h5>**
 
-*<b>___ Sam Levenson ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
