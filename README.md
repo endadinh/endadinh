@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are what we repeatedly do. Excellence, then, is not an act, but a habit. "</i></h5>**
+**<h5><i>" Friendship often ends in love, but love in friendship - never. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
