@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
+**<h5><i>" Only when we are no longer afraid do we begin to live. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Dorothy Thompson ___</b>*
 
 -----
 
