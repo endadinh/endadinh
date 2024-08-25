@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
+**<h5><i>" Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Paavo Nurmi ___</b>*
 
 -----
 
