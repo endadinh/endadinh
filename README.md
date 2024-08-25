@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. "</i></h5>**
+**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
 
-*<b>___ Barack Obama ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
