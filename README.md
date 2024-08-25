@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love does not consist of gazing at each other, but in looking together in the same direction. "</i></h5>**
+**<h5><i>" Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other. "</i></h5>**
 
-*<b>___ Antoine de Saint-Exupéry ___</b>*
+*<b>___ Carrie Snow ___</b>*
 
 -----
 
