@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In all chaos there is a cosmos, in all disorder a secret order. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
