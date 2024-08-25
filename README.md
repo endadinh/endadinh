@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
+**<h5><i>" Love isn't something you find. Love is something that finds you. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Loretta Young ___</b>*
 
 -----
 
