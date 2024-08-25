@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Excellence is to do a common thing in an uncommon way. "</i></h5>**
+**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
