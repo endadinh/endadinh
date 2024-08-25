@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Minds are like parachutes. They only function when open. "</i></h5>**
+**<h5><i>" Be faithful in small things because it is in them that your strength lies. "</i></h5>**
 
-*<b>___ Thomas Dewar ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
