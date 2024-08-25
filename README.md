@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The bird of paradise alights only upon the hand that does not grasp. "</i></h5>**
+**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
 
-*<b>___ John Berry ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
