@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us always meet each other with smile, for the smile is the beginning of love. "</i></h5>**
+**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
