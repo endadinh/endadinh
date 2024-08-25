@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A thing long expected takes the form of the unexpected when at last it comes. "</i></h5>**
+**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
