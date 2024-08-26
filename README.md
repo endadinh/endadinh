@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. "</i></h5>**
+**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
 
-*<b>___ Victoria Osteen ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
