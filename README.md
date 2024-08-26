@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned that to be with those I like is enough. "</i></h5>**
+**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
 
-*<b>___ Walt Whitman ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
