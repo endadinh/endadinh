@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It takes courage to grow up and become who you really are. "</i></h5>**
+**<h5><i>" Peace begins with a smile. "</i></h5>**
 
-*<b>___ E. E. Cummings ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
