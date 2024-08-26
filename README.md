@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Choose a job you love, and you will never have to work a day in your life. "</i></h5>**
+**<h5><i>" Change your life today. Don't gamble on the future, act now, without delay. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Simone de Beauvoir ___</b>*
 
 -----
 
