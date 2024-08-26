@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what you make of it. Always has been, always will be. "</i></h5>**
+**<h5><i>" Learning is finding out what you already know. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
