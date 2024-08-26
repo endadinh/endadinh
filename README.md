@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don't know where you are going, you will probably end up somewhere else. "</i></h5>**
+**<h5><i>" If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own. "</i></h5>**
 
-*<b>___ Laurence J. Peter ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
