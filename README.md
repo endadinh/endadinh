@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" To invent, you need a good imagination and a pile of junk. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
