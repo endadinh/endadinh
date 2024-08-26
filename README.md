@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best cure for the body is a quiet mind. "</i></h5>**
+**<h5><i>" Every gift from a friend is a wish for your happiness. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
