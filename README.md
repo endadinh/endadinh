@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Action is the foundational key to all success. "</i></h5>**
+**<h5><i>" Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
