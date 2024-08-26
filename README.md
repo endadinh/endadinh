@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every gift from a friend is a wish for your happiness. "</i></h5>**
+**<h5><i>" Action is the foundational key to all success. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
