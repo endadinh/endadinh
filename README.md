@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
+**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do. "</i></h5>**
 
-*<b>___ Jean Cocteau ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
