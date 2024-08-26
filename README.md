@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How far that little candle throws its beams! So shines a good deed in a naughty world. "</i></h5>**
+**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Henry van Dyke Jr. ___</b>*
 
 -----
 
