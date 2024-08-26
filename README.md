@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have often regretted my speech, never my silence. "</i></h5>**
+**<h5><i>" Don't leave a stone unturned. It's always something, to know you have done the most you could. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Charles Dickens ___</b>*
 
 -----
 
