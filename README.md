@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
