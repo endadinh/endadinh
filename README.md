@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You might well remember that nothing can bring you success but yourself. "</i></h5>**
+**<h5><i>" Freedom is the right to live as we wish. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
