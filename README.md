@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. "</i></h5>**
+**<h5><i>" The power of intuitive understanding will protect you from harm until the end of your days. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
