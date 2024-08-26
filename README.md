@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Appearances are often deceiving. "</i></h5>**
+**<h5><i>" One fails forward toward success. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Charles F. Kettering ___</b>*
 
 -----
 
