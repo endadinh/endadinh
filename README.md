@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never promise more than you can perform. "</i></h5>**
+**<h5><i>" If you don't know where you are going, you will probably end up somewhere else. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Laurence J. Peter ___</b>*
 
 -----
 
