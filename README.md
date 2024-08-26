@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
+**<h5><i>" You might well remember that nothing can bring you success but yourself. "</i></h5>**
 
-*<b>___ Havelock Ellis ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
