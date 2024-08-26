@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
+**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
