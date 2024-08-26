@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
+**<h5><i>" There is only one success - to be able to spend your life in your own way. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Christopher Morley ___</b>*
 
 -----
 
