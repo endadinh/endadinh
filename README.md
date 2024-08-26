@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest remedy for anger is delay. "</i></h5>**
+**<h5><i>" Wise men make more opportunities than they find. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
