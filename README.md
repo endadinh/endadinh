@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
