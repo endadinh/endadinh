@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reviewing what you have learned and learning anew, you are fit to be a teacher. "</i></h5>**
+**<h5><i>" I have learned that to be with those I like is enough. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Walt Whitman ___</b>*
 
 -----
 
