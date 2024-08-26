@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
+**<h5><i>" Nothing diminishes anxiety faster than action. "</i></h5>**
 
-*<b>___ Marilyn vos Savant ___</b>*
+*<b>___ Walter Inglis Anderson ___</b>*
 
 -----
 
