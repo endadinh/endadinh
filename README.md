@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best. "</i></h5>**
+**<h5><i>" Choose a job you love, and you will never have to work a day in your life. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
