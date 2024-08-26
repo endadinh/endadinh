@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one success - to be able to spend your life in your own way. "</i></h5>**
+**<h5><i>" A house divided against itself cannot stand. "</i></h5>**
 
-*<b>___ Christopher Morley ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
