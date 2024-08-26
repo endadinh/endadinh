@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" A man is great by deeds, not by birth. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Chanakya ___</b>*
 
 -----
 
