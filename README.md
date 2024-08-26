@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging. "</i></h5>**
+**<h5><i>" It is on our failures that we base a new and different and better success. "</i></h5>**
 
-*<b>___ Hank Aaron ___</b>*
+*<b>___ Havelock Ellis ___</b>*
 
 -----
 
