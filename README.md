@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing diminishes anxiety faster than action. "</i></h5>**
+**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
 
-*<b>___ Walter Inglis Anderson ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
