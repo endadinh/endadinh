@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more man meditates upon good thoughts, the better will be his world and the world at large. "</i></h5>**
+**<h5><i>" Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Zhuang Zhou ___</b>*
 
 -----
 
