@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A man is great by deeds, not by birth. "</i></h5>**
+**<h5><i>" Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. "</i></h5>**
 
-*<b>___ Chanakya ___</b>*
+*<b>___ Archimedes ___</b>*
 
 -----
 
