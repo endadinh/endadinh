@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
+**<h5><i>" You are never given a wish without also being given the power to make it come true. You may have to work for it, however. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
