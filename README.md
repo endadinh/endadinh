@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" Most powerful is he who has himself in his own power. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
