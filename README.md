@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To profit from good advice requires more wisdom than to give it. "</i></h5>**
+**<h5><i>" Lose an hour in the morning, and you will spend all day looking for it. "</i></h5>**
 
-*<b>___ Wilson Mizner ___</b>*
+*<b>___ Richard Whately ___</b>*
 
 -----
 
