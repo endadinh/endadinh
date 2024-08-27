@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
+**<h5><i>" The man who trusts men will make fewer mistakes than he who distrusts them. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Camillo Benso, Count of Cavour ___</b>*
 
 -----
 
