@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Silence at the proper season is wisdom, and better than any speech. "</i></h5>**
+**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ John Eliot ___</b>*
 
 -----
 
