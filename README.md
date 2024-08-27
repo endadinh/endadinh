@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The art of progress is to preserve order amid change, and to preserve change amid order. "</i></h5>**
+**<h5><i>" Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. "</i></h5>**
 
-*<b>___ Alfred North Whitehead ___</b>*
+*<b>___ Stephen Hawking ___</b>*
 
 -----
 
