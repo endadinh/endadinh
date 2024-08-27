@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adopt the pace of nature: her secret is patience. "</i></h5>**
+**<h5><i>" Happiness is when what you think, what you say, and what you do are in harmony. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
