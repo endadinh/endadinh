@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
+**<h5><i>" It always seems impossible until it's done. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
