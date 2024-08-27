@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
+**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
