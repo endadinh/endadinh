@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious. "</i></h5>**
+**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
 
-*<b>___ Stephen Hawking ___</b>*
+*<b>___ Francis de Sales ___</b>*
 
 -----
 
