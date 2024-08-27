@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a characteristic of wisdom not to do desperate things. "</i></h5>**
+**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
