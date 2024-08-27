@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning is always today. "</i></h5>**
+**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
 
-*<b>___ Mary Wollstonecraft ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
