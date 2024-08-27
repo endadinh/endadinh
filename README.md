@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. "</i></h5>**
+**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
 
-*<b>___ Eustace Budgell ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
