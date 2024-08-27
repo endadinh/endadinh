@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
