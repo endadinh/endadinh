@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
+**<h5><i>" I want my friend to miss me as long as I miss him. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
