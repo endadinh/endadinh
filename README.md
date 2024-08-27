@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is necessary to change a person is to change his awareness of himself. "</i></h5>**
+**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
 
-*<b>___ Abraham Maslow ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
