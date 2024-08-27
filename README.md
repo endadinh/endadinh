@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut. "</i></h5>**
+**<h5><i>" Gravitation cannot be held responsible for people falling in love. How on earth can you explain in terms of chemistry and physics so important a biological phenomenon as first love? Put your hand on a stove for a minute and it seems like an hour. Sit with that special girl for an hour and it seems like a minute. That's relativity. "</i></h5>**
 
 *<b>___ Albert Einstein ___</b>*
 
