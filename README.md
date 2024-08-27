@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation. "</i></h5>**
+**<h5><i>" Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. "</i></h5>**
 
-*<b>___ Paul Theroux ___</b>*
+*<b>___ Hermann Hesse ___</b>*
 
 -----
 
