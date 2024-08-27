@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
+**<h5><i>" Life is just a chance to grow a soul. "</i></h5>**
 
-*<b>___ Jane Austen ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
