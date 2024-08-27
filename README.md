@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to experience one's death objectively and still carry a tune. "</i></h5>**
+**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Henry J. Kaiser ___</b>*
 
 -----
 
