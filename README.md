@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one is useless in this world who lightens the burdens of another. "</i></h5>**
+**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
