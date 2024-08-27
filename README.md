@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
+**<h5><i>" People are not lazy. They simply have impotent goals - that is, goals that do not inspire them. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
