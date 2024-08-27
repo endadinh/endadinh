@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
+**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
 
-*<b>___ John Eliot ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
