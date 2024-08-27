@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To bring anything into your life, imagine that it's already there. "</i></h5>**
+**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
