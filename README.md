@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one happiness in life, to love and be loved. "</i></h5>**
+**<h5><i>" He who controls others may be powerful, but he who has mastered himself is mightier still. "</i></h5>**
 
-*<b>___ George Sand ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
