@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trouble is only opportunity in work clothes. "</i></h5>**
+**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
 
-*<b>___ Henry J. Kaiser ___</b>*
+*<b>___ John Brunner ___</b>*
 
 -----
 
