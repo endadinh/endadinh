@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
+**<h5><i>" A lie gets halfway around the world before the truth has a chance to get its pants on. "</i></h5>**
 
-*<b>___ Francis de Sales ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
