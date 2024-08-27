@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition. "</i></h5>**
+**<h5><i>" Think for yourselves and let others enjoy the privilege to do so too. "</i></h5>**
 
-*<b>___ Ralph Abernathy ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
