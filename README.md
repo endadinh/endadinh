@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truest greatness lies in being kind, the truest wisdom in a happy mind. "</i></h5>**
+**<h5><i>" Difficulties increase the nearer we get to the goal. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
