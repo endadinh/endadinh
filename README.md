@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no way to happiness, happiness is the way. "</i></h5>**
+**<h5><i>" Important principles may, and must, be inflexible. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
