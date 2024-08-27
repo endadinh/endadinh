@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
+**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
