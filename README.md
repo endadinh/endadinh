@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thought is the blossom; language the bud; action the fruit behind it. "</i></h5>**
+**<h5><i>" It is the province of knowledge to speak, and it is the privilege of wisdom to listen. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
