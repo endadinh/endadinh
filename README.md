@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Lose an hour in the morning, and you will spend all day looking for it. "</i></h5>**
+**<h5><i>" Ignorance never settles a question. "</i></h5>**
 
-*<b>___ Richard Whately ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
