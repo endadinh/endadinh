@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The man who trusts men will make fewer mistakes than he who distrusts them. "</i></h5>**
+**<h5><i>" But man is not made for defeat. A man can be destroyed but not defeated. "</i></h5>**
 
-*<b>___ Camillo Benso, Count of Cavour ___</b>*
+*<b>___ Ernest Hemingway ___</b>*
 
 -----
 
