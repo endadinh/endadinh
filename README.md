@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you know yourself, the more you forgive yourself. "</i></h5>**
+**<h5><i>" If you want to kill any idea in the world, get a committee working on it. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Charles F. Kettering ___</b>*
 
 -----
 
