@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Speak low, if you speak love. "</i></h5>**
+**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
