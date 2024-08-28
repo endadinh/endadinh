@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hope arouses, as nothing else can arouse, a passion for the possible. "</i></h5>**
+**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
 
-*<b>___ William Sloane Coffin ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
