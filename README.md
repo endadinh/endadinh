@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. "</i></h5>**
+**<h5><i>" An organization, no matter how well designed, is only as good as the people who live and work in it. "</i></h5>**
 
-*<b>___ Theodore Isaac Rubin ___</b>*
+*<b>___ Dee Hock ___</b>*
 
 -----
 
