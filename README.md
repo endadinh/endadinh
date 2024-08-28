@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that I am, or hope to be, I owe to my angel mother. "</i></h5>**
+**<h5><i>" To change one's life, start immediately, do it flamboyantly, no exceptions. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
