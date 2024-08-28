@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The personal life deeply lived always expands into truths beyond itself. "</i></h5>**
+**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
