@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
+**<h5><i>" Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
