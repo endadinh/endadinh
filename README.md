@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. "</i></h5>**
+**<h5><i>" Know from the rivers in clefts and in crevices: those in small channels flow noisily, the great flow silent. Whatever's not full makes noise. Whatever is full is quiet. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
