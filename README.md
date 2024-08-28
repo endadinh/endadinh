@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
+**<h5><i>" No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Robert Southey ___</b>*
 
 -----
 
