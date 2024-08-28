@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port one is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" With the realization of one's own potential and self-confidence in one's ability, one can build a better world. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
