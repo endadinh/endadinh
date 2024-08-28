@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
+**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Margaret Mead ___</b>*
 
 -----
 
