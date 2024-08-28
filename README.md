@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In skating over thin ice our safety is in our speed. "</i></h5>**
+**<h5><i>" I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Elizabeth Montagu ___</b>*
 
 -----
 
