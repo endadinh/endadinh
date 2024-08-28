@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
+**<h5><i>" The superior man understands what is right; the inferior man understands what will sell. "</i></h5>**
 
-*<b>___ Sandy Koufax ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
