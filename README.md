@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How many cares one loses when one decides not to be something but to be someone. "</i></h5>**
+**<h5><i>" In skating over thin ice our safety is in our speed. "</i></h5>**
 
-*<b>___ Coco Chanel ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
