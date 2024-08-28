@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never promise more than you can perform. "</i></h5>**
+**<h5><i>" If only wed stop trying to be happy wed have a pretty good time. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
