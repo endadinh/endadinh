@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
+**<h5><i>" I never did a day's work in my life.  It was all fun. "</i></h5>**
 
-*<b>___ Herbert Hoover ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
