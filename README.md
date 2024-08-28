@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
+**<h5><i>" The only thing to do with good advice is to pass it on. It is never of any use to oneself. "</i></h5>**
 
-*<b>___ George Orwell ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
