@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our strength grows out of our weaknesses. "</i></h5>**
+**<h5><i>" Pitching is the art of instilling fear. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Sandy Koufax ___</b>*
 
 -----
 
