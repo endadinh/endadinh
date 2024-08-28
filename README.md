@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Joseph Campbell ___</b>*
 
 -----
 
