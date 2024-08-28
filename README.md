@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
+**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
 
-*<b>___ Chuck Swindoll ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
