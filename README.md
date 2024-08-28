@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is just a chance to grow a soul. "</i></h5>**
+**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
 
-*<b>___ A. Powell Davies ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
