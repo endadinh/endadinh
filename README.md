@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
+**<h5><i>" We are all faced with a series of great opportunities brilliantly disguised as impossible situations. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Chuck Swindoll ___</b>*
 
 -----
 
