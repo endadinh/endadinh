@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no failures. Just experiences and your reactions to them. "</i></h5>**
+**<h5><i>" Our strength grows out of our weaknesses. "</i></h5>**
 
-*<b>___ Tom Krause ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
