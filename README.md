@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness. "</i></h5>**
+**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Henry Wadsworth Longfellow ___</b>*
 
 -----
 
