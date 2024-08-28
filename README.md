@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
+**<h5><i>" Life is just a chance to grow a soul. "</i></h5>**
 
-*<b>___ Jon Kabat-Zinn ___</b>*
+*<b>___ A. Powell Davies ___</b>*
 
 -----
 
