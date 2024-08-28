@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You teach best what you most need to learn. "</i></h5>**
+**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Carl Sandburg ___</b>*
 
 -----
 
