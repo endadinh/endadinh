@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God. "</i></h5>**
+**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Mike Singletary (basketball) ___</b>*
 
 -----
 
