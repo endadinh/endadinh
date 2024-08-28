@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" All is flux; nothing stays still. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Heraclitus ___</b>*
 
 -----
 
