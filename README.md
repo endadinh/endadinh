@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
+**<h5><i>" He who lives in harmony with himself lives in harmony with the universe. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
