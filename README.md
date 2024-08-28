@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Know, first, who you are, and then adorn yourself accordingly. "</i></h5>**
+**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Jean-Jacques Rousseau ___</b>*
 
 -----
 
