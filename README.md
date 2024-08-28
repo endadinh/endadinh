@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ego is nothing other than the focus of conscious attention. "</i></h5>**
+**<h5><i>" He has no enemies, but is intensely disliked by his friends. "</i></h5>**
 
-*<b>___ Alan Watts ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
