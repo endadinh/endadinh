@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you know what my favorite part of the game is? The opportunity to play. "</i></h5>**
+**<h5><i>" Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom. "</i></h5>**
 
-*<b>___ Mike Singletary (basketball) ___</b>*
+*<b>___ Theodore Isaac Rubin ___</b>*
 
 -----
 
