@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it. "</i></h5>**
+**<h5><i>" A goal is a dream with a deadline. "</i></h5>**
 
-*<b>___ A. Powell Davies ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
