@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If only wed stop trying to be happy wed have a pretty good time. "</i></h5>**
+**<h5><i>" You can't stop the waves, but you can learn to surf. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Jon Kabat-Zinn ___</b>*
 
 -----
 
