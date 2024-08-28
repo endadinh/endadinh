@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has. "</i></h5>**
+**<h5><i>" We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Elizabeth Kapu'uwailani Lindsey ___</b>*
 
 -----
 
