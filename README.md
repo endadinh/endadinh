@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When in doubt, don't. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
