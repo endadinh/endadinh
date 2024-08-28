@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is where preparation and opportunity meet. "</i></h5>**
+**<h5><i>" What you do not want done to yourself, do not do to others. "</i></h5>**
 
-*<b>___ Bobby Unser ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
