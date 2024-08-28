@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. "</i></h5>**
+**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
 
-*<b>___ Washington Irving ___</b>*
+*<b>___ John Lubbock ___</b>*
 
 -----
 
