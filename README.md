@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. "</i></h5>**
+**<h5><i>" It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things. "</i></h5>**
 
-*<b>___ Bernard Shaw ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
