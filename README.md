@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing is not enough; we must apply. Willing is not enough; we must do. "</i></h5>**
+**<h5><i>" Wisdom often times consists of knowing what to do next. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Herbert Hoover ___</b>*
 
 -----
 
