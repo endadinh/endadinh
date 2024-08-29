@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A true friend is the most precious of all possessions and the one we take the least thought about acquiring. "</i></h5>**
+**<h5><i>" In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. "</i></h5>**
 
-*<b>___ François de La Rochefoucauld ___</b>*
+*<b>___ Janet Jackson ___</b>*
 
 -----
 
