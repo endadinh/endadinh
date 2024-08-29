@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life has no blessing like a prudent friend. "</i></h5>**
+**<h5><i>" If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. "</i></h5>**
 
-*<b>___ Euripides ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
