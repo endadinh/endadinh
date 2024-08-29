@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
+**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
 
-*<b>___ Jane Roberts ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
