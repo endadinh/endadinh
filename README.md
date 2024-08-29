@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
+**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Desmond Tutu ___</b>*
 
 -----
 
