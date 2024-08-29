@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
+**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
