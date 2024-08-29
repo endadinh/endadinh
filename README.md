@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
+**<h5><i>" Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in. "</i></h5>**
 
-*<b>___ Dwight D. Eisenhower ___</b>*
+*<b>___ Katherine Mansfield ___</b>*
 
 -----
 
