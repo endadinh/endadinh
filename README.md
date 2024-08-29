@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorance and bungling with love are better than wisdom and skill without. "</i></h5>**
+**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
