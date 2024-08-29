@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Continuous effort - not strength or intelligence - is the key to unlocking our potential. "</i></h5>**
+**<h5><i>" In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
