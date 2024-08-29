@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The truth you believe and cling to makes you unavailable to hear anything new. "</i></h5>**
+**<h5><i>" It is not only for what we do that we are held responsible, but also for what we do not do. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Molière ___</b>*
 
 -----
 
