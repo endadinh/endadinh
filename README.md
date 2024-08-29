@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want my friend to miss me as long as I miss him. "</i></h5>**
+**<h5><i>" Divide each difficulty into as many parts as is feasible and necessary to resolve it. "</i></h5>**
 
-*<b>___ Augustine of Hippo ___</b>*
+*<b>___ René Descartes ___</b>*
 
 -----
 
