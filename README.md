@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty. "</i></h5>**
+**<h5><i>" Life has no blessing like a prudent friend. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
