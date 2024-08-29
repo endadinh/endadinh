@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
+**<h5><i>" The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. "</i></h5>**
 
-*<b>___ Jane Roberts ___</b>*
+*<b>___ Dwight D. Eisenhower ___</b>*
 
 -----
 
