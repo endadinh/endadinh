@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must not allow ourselves to become like the system we oppose. "</i></h5>**
+**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
 
-*<b>___ Desmond Tutu ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
