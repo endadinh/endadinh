@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest good you can do for another is not just share your riches but reveal to them their own. "</i></h5>**
+**<h5><i>" Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
