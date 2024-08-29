@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I never did anything worth doing by accident, nor did any of my inventions come by accident "</i></h5>**
+**<h5><i>" The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Margaret Chase Smith ___</b>*
 
 -----
 
