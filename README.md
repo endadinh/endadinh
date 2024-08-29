@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ardently do today what must be done. Who knows? Tomorrow, death comes. "</i></h5>**
+**<h5><i>" Who sows virtue reaps honor. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
