@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The secret of getting ahead is getting started. "</i></h5>**
+**<h5><i>" From wonder into wonder existence opens. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
