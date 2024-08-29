@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your life to be more rewarding, you have to change the way you think. "</i></h5>**
+**<h5><i>" I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Muhammad Ali ___</b>*
 
 -----
 
