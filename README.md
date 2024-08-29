@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Make it your habit not to be critical about small things. "</i></h5>**
+**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
 
-*<b>___ Edward Everett Hale ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
