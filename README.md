@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In three words I can sum up everything I've learned about life: it goes on. "</i></h5>**
+**<h5><i>" The world has the habit of making room for the man whose actions show that he knows where he is going. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
