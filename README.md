@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
+**<h5><i>" As you walk down the fairway of life you must smell the roses, for you only get to play one round. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Ben Hogan ___</b>*
 
 -----
 
