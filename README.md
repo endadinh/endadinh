@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a mother would protect her only child with her life, even so let one cultivate a boundless love towards all beings. "</i></h5>**
+**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Buckminster Fuller ___</b>*
 
 -----
 
