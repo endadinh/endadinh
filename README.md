@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing happens unless first we dream. "</i></h5>**
+**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
 
-*<b>___ Carl Sandburg ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
