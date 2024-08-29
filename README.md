@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never promise more than you can perform. "</i></h5>**
+**<h5><i>" The secret of getting ahead is getting started. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
