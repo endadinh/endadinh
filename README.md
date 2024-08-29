@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
+**<h5><i>" If we are not fully ourselves, truly in the present moment, we miss everything. "</i></h5>**
 
-*<b>___ Man Ray ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
