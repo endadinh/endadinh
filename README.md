@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who sows virtue reaps honor. "</i></h5>**
+**<h5><i>" When in doubt, tell the truth. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
