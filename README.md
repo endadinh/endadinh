@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" God has given you one face, and you make yourself another. "</i></h5>**
+**<h5><i>" Continuous effort - not strength or intelligence - is the key to unlocking our potential. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
