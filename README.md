@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The less effort, the faster and more powerful you will be. "</i></h5>**
+**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Jane Roberts ___</b>*
 
 -----
 
