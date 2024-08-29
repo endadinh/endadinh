@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm not interested in age. People who tell me their age are silly. You're as old as you feel. "</i></h5>**
+**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
 
-*<b>___ Elizabeth Arden ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
