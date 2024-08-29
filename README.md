@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your mind will answer most questions if you learn to relax and wait for the answer. "</i></h5>**
+**<h5><i>" Ardently do today what must be done. Who knows? Tomorrow, death comes. "</i></h5>**
 
-*<b>___ William Burroughs ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
