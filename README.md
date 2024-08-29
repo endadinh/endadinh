@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone thinks of changing the world, but no one thinks of changing himself. "</i></h5>**
+**<h5><i>" By accepting yourself and being fully what you are, your presence can make others happy. "</i></h5>**
 
-*<b>___ Leo Tolstoy ___</b>*
+*<b>___ Jane Roberts ___</b>*
 
 -----
 
