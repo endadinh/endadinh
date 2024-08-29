@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Quality is never an accident; it is always the result of intelligent effort. "</i></h5>**
+**<h5><i>" I am not bothered by the fact that I am unknown. I am bothered when I do not know others. "</i></h5>**
 
-*<b>___ John Ruskin ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
