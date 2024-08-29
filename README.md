@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing so useless as doing efficiently that which should not be done at all. "</i></h5>**
+**<h5><i>" Technology is anything that wasn't around when you were born. "</i></h5>**
 
-*<b>___ Peter Drucker ___</b>*
+*<b>___ Man Ray ___</b>*
 
 -----
 
