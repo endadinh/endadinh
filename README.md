@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. "</i></h5>**
+**<h5><i>" I'm not interested in age. People who tell me their age are silly. You're as old as you feel. "</i></h5>**
 
-*<b>___ Margaret Chase Smith ___</b>*
+*<b>___ Elizabeth Arden ___</b>*
 
 -----
 
