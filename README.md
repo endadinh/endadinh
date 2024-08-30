@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
+**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
