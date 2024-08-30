@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
+**<h5><i>" If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. "</i></h5>**
 
-*<b>___ Sam Rayburn ___</b>*
+*<b>___ Rachel Carson ___</b>*
 
 -----
 
