@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To lead people walk behind them. "</i></h5>**
+**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Buckminster Fuller ___</b>*
 
 -----
 
