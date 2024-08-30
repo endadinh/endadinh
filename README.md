@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge. "</i></h5>**
+**<h5><i>" As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer. "</i></h5>**
 
-*<b>___ Masayoshi Son ___</b>*
+*<b>___ James Gleick ___</b>*
 
 -----
 
