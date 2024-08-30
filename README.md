@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't wait. The time will never be just right. "</i></h5>**
+**<h5><i>" Wisdom has never made a bigot, but learning has. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Josh Billings ___</b>*
 
 -----
 
