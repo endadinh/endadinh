@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should a person do good, let him do it again and again. Let him find pleasure therein, for blissful is the accumulation of good. "</i></h5>**
+**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
