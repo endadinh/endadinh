@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Autumn is a second spring when every leaf is a flower. "</i></h5>**
+**<h5><i>" No one has a finer command of language than the person who keeps his mouth shut. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ Sam Rayburn ___</b>*
 
 -----
 
