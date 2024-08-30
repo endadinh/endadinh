@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
+**<h5><i>" The world makes way for the man who knows where he is going. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
