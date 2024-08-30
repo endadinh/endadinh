@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
+**<h5><i>" If you only have a hammer, you tend to see every problem as a nail. "</i></h5>**
 
-*<b>___ Jared Diamond ___</b>*
+*<b>___ Abraham Maslow ___</b>*
 
 -----
 
