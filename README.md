@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is round and the place which may seem like the end may also be the beginning. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Ivy Baker Priest ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
