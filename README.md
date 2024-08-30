@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The secret of getting ahead is getting started. "</i></h5>**
+**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
