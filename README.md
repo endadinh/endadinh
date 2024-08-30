@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life's most persistent and urgent question is, 'What are you doing for others?' "</i></h5>**
+**<h5><i>" Patience is the companion of wisdom. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Augustine of Hippo ___</b>*
 
 -----
 
