@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
+**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
 
-*<b>___ Walter Benjamin ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
