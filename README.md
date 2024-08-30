@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Successful people ask better questions, and as a result, they get better answers. "</i></h5>**
+**<h5><i>" One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
