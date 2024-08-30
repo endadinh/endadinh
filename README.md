@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who will play with cats must expect to be scratched. "</i></h5>**
+**<h5><i>" The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
