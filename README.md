@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
+**<h5><i>" The attempt to combine wisdom and power has only rarely been successful and then only for a short while. "</i></h5>**
 
-*<b>___ Francis de Sales ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
