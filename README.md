@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. "</i></h5>**
+**<h5><i>" You yourself must strive. The Buddhas only point the way. "</i></h5>**
 
-*<b>___ Henry Wadsworth Longfellow ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
