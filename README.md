@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
+**<h5><i>" Technology has to be invented or adopted. "</i></h5>**
 
-*<b>___ Buckminster Fuller ___</b>*
+*<b>___ Jared Diamond ___</b>*
 
 -----
 
