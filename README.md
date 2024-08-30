@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" So much technology, so little talent. "</i></h5>**
+**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
 
-*<b>___ Vernor Vinge ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
