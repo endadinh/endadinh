@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
+**<h5><i>" Character develops itself in the stream of life. "</i></h5>**
 
-*<b>___ Edward Young ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
