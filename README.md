@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Logic is the beginning of wisdom, not the end. "</i></h5>**
+**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
 
-*<b>___ Leonard Nimoy ___</b>*
+*<b>___ Fawn M. Brodie ___</b>*
 
 -----
 
