@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Almost everything comes from nothing. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
