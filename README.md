@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Character develops itself in the stream of life. "</i></h5>**
+**<h5><i>" Many sophisticated, intelligent people lack wisdom and common sense. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Joyce Meyer ___</b>*
 
 -----
 
