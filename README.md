@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" To lead people walk behind them. "</i></h5>**
 
 *<b>___ Laozi ___</b>*
 
