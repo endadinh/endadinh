@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
+**<h5><i>" On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Edward Young ___</b>*
 
 -----
 
