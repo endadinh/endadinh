@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
+**<h5><i>" Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. "</i></h5>**
 
-*<b>___ Albert Camus ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
