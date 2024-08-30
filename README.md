@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness depends upon ourselves. "</i></h5>**
+**<h5><i>" Those who will play with cats must expect to be scratched. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
