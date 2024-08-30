@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
