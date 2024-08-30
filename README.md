@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who are free of resentful thoughts surely find peace. "</i></h5>**
+**<h5><i>" Through perseverance many people win success out of what seemed destined to be certain failure. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
