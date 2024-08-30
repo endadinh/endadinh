@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
+**<h5><i>" Autumn is a second spring when every leaf is a flower. "</i></h5>**
 
-*<b>___ Arthur Rubinstein ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
