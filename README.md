@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Paavo Nurmi ___</b>*
 
 -----
 
