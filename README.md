@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. "</i></h5>**
+**<h5><i>" A friend may well be reckoned the masterpiece of nature. "</i></h5>**
 
-*<b>___ Fawn M. Brodie ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
