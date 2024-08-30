@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
+**<h5><i>" Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Arthur Rubinstein ___</b>*
 
 -----
 
