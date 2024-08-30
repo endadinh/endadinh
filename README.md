@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. "</i></h5>**
+**<h5><i>" To be happy is to be able to become aware of oneself without fright. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Walter Benjamin ___</b>*
 
 -----
 
