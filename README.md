@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
