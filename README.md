@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nature is a mutable cloud which is always and never the same. "</i></h5>**
+**<h5><i>" Almost everything comes from nothing. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Henri-Frédéric Amiel ___</b>*
 
 -----
 
