@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" While we stop to think, we often miss our opportunity. "</i></h5>**
+**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
