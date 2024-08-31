@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
