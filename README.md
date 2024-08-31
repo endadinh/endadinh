@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Almost everything comes from nothing. "</i></h5>**
+**<h5><i>" Science is organized knowledge. Wisdom is organized life. "</i></h5>**
 
-*<b>___ Henri-Frédéric Amiel ___</b>*
+*<b>___ Immanuel Kant ___</b>*
 
 -----
 
