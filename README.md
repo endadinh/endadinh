@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just trust yourself, then you will know how to live. "</i></h5>**
+**<h5><i>" Nothing strengthens authority so much as silence. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
