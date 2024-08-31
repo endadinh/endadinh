@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's better to be a lion for a day than a sheep all your life. "</i></h5>**
+**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
 
-*<b>___ Elizabeth Kenny ___</b>*
+*<b>___ Paul Cézanne ___</b>*
 
 -----
 
