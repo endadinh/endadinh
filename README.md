@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am always doing that which I cannot do, in order that I may learn how to do it. "</i></h5>**
+**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
