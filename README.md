@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Humanity is acquiring all the right technology for all the wrong reasons. "</i></h5>**
+**<h5><i>" Short words are best and the old words when short are best of all. "</i></h5>**
 
-*<b>___ Buckminster Fuller ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
