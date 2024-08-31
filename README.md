@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the master key that opens the gates of happiness. "</i></h5>**
+**<h5><i>" If you would take, you must first give, this is the beginning of intelligence. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
