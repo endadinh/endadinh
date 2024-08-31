@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can change our lives. We can do, have, and be exactly what we wish. "</i></h5>**
+**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
