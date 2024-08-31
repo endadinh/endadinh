@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's easier to resist at the beginning than at the end. "</i></h5>**
+**<h5><i>" A friend in power is a friend lost. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Henry Adams ___</b>*
 
 -----
 
