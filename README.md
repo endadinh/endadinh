@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
+**<h5><i>" Better be ignorant of a matter than half know it. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Publilius Syrus ___</b>*
 
 -----
 
