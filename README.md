@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can do no great things, only small things with great love. "</i></h5>**
+**<h5><i>" It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
