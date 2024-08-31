@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" We can do no great things, only small things with great love. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
