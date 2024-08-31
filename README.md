@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Better be ignorant of a matter than half know it. "</i></h5>**
+**<h5><i>" If you cannot do great things, do small things in a great way. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
