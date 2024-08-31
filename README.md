@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing your own darkness is the best method for dealing with the darkness of other people. "</i></h5>**
+**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
