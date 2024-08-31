@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discipline is the bridge between goals and accomplishment. "</i></h5>**
+**<h5><i>" Let the beauty of what you love be what you do. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
