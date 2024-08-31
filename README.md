@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
+**<h5><i>" The person who lives life fully, glowing with life's energy, is the person who lives a successful life. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
