@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you cannot do great things, do small things in a great way. "</i></h5>**
+**<h5><i>" Independence is happiness. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Susan B. Anthony ___</b>*
 
 -----
 
