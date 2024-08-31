@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
+**<h5><i>" The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world. "</i></h5>**
 
-*<b>___ Rumi ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
