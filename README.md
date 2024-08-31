@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
+**<h5><i>" Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Steven Van Zandt ___</b>*
 
 -----
 
