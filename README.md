@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
+**<h5><i>" This is why I loved technology: if you used it right, it could give you power and privacy. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Cory Doctorow ___</b>*
 
 -----
 
