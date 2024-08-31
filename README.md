@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
+**<h5><i>" A wise person should be urgently moved on occasions that make for urgency. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
