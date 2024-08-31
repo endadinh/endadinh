@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" The heart has its reasons which reason knows not of. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
