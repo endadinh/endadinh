@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Can you imagine what I would do if I could do all I can? "</i></h5>**
+**<h5><i>" Never complain and never explain. "</i></h5>**
 
-*<b>___ Sun Tzu ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
