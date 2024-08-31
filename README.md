@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a succession of lessons, which must be lived to be understood. "</i></h5>**
+**<h5><i>" The only journey is the one within. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Rainer Maria Rilke ___</b>*
 
 -----
 
