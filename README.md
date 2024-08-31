@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
+**<h5><i>" Well done is better than well said. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
