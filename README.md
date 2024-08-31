@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" Can you imagine what I would do if I could do all I can? "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Sun Tzu ___</b>*
 
 -----
 
