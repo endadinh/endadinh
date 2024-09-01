@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To conquer fear is the beginning of wisdom. "</i></h5>**
+**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
 
-*<b>___ Bertrand Russell ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
