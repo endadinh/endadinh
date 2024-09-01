@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" Everyone has been made for some particular work, and the desire for that work has been put in every heart. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Rumi ___</b>*
 
 -----
 
