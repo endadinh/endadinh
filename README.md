@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
+**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
