@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows himself is enlightened. "</i></h5>**
+**<h5><i>" If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
