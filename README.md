@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The universe is transformation; our life is what our thoughts make it. "</i></h5>**
+**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
