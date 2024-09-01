@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not turn back when you are just at the goal. "</i></h5>**
+**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
 
-*<b>___ Publilius Syrus ___</b>*
+*<b>___ Jonathan Swift ___</b>*
 
 -----
 
