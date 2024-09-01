@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
+**<h5><i>" To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Theodore H. White ___</b>*
 
 -----
 
