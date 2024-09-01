@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Where there is charity and wisdom, there is neither fear nor ignorance. "</i></h5>**
+**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
 
-*<b>___ Francis of Assisi ___</b>*
+*<b>___ Alexander Chalmers ___</b>*
 
 -----
 
