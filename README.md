@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. "</i></h5>**
+**<h5><i>" Things do not change; we change. "</i></h5>**
 
-*<b>___ Henry van Dyke Jr. ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
