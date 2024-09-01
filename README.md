@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. "</i></h5>**
+**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
 
-*<b>___ Jane Addams ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
