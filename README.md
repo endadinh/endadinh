@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" Learning never exhausts the mind. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
