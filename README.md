@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Persuasion is often more effectual than force. "</i></h5>**
+**<h5><i>" The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. "</i></h5>**
 
-*<b>___ Aesop ___</b>*
+*<b>___ Daniel J. Boorstin ___</b>*
 
 -----
 
