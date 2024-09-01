@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. "</i></h5>**
+**<h5><i>" All our dreams can come true, if we have the courage to pursue them. "</i></h5>**
 
-*<b>___ Napoleon ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
