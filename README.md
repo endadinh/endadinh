@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
+**<h5><i>" No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution. "</i></h5>**
 
-*<b>___ Václav Havel ___</b>*
+*<b>___ Niccolò Machiavelli ___</b>*
 
 -----
 
