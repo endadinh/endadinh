@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Peace begins with a smile. "</i></h5>**
+**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Voltaire ___</b>*
 
 -----
 
