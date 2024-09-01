@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
+**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
 
-*<b>___ Mary Pickford ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
