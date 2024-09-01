@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always do your best. What you plant now, you will harvest later. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
