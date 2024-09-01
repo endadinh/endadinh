@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. "</i></h5>**
+**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
