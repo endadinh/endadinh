@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't explain it simply, you don't understand it well enough. "</i></h5>**
+**<h5><i>" However rare true love may be, it is less so than true friendship. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ François de La Rochefoucauld ___</b>*
 
 -----
 
