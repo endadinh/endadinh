@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strong beliefs win strong men, and then make them stronger. "</i></h5>**
+**<h5><i>" He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
