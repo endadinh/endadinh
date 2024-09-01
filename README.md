@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" Where there is charity and wisdom, there is neither fear nor ignorance. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
