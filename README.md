@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. "</i></h5>**
+**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
 
-*<b>___ Daniel J. Boorstin ___</b>*
+*<b>___ William Blake ___</b>*
 
 -----
 
