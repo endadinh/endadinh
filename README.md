@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The language of friendship is not words but meanings. "</i></h5>**
+**<h5><i>" You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back? "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
