@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The grand essentials of happiness are: something to do, something to love, and something to hope for. "</i></h5>**
+**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
 
-*<b>___ Alexander Chalmers ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
