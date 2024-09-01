@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Truth, and goodness, and beauty are but different faces of the same all. "</i></h5>**
+**<h5><i>" To accomplish great things, we must not only act, but also dream; not only plan, but also believe. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Anatole France ___</b>*
 
 -----
 
