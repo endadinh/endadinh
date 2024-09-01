@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In seed time learn, in harvest teach, in winter enjoy. "</i></h5>**
+**<h5><i>" Work for something because it is good, not just because it stands a chance to succeed. "</i></h5>**
 
-*<b>___ William Blake ___</b>*
+*<b>___ Václav Havel ___</b>*
 
 -----
 
