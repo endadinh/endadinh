@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To enjoy life, we must touch much of it lightly. "</i></h5>**
+**<h5><i>" Either I will find a way, or I will make one. "</i></h5>**
 
-*<b>___ Voltaire ___</b>*
+*<b>___ Philip Sidney ___</b>*
 
 -----
 
