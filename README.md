@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your sacred space is where you can find yourself again and again. "</i></h5>**
+**<h5><i>" The smaller the mind the greater the conceit. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Aesop ___</b>*
 
 -----
 
