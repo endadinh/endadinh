@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
+**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
