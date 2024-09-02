@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I can, therefore I am. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Simone Weil ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
