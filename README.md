@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The amount of happiness that you have depends on the amount of freedom you have in your heart. "</i></h5>**
+**<h5><i>" When the solution is simple, God is answering. "</i></h5>**
 
-*<b>___ Thích Nhất Hạnh ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
