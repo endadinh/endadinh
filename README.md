@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
+**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
