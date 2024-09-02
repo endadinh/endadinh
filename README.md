@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure. "</i></h5>**
+**<h5><i>" Always remember that you are absolutely unique. Just like everyone else. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Margaret Mead ___</b>*
 
 -----
 
