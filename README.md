@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
+**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
