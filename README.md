@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
+**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
 
-*<b>___ George S. Patton ___</b>*
+*<b>___ Jean Cocteau ___</b>*
 
 -----
 
