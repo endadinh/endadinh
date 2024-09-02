@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life. "</i></h5>**
+**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
 
-*<b>___ Sigmund Freud ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
