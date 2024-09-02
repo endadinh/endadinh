@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
