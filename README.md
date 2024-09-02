@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. "</i></h5>**
+**<h5><i>" Living at risk is jumping off the cliff and building your wings on the way down. "</i></h5>**
 
-*<b>___ Hermann Hesse ___</b>*
+*<b>___ Ray Bradbury ___</b>*
 
 -----
 
