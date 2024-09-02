@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
+**<h5><i>" Only those who dare to fail greatly can ever achieve greatly. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
