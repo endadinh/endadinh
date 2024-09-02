@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. "</i></h5>**
+**<h5><i>" Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. "</i></h5>**
 
-*<b>___ Louis Pasteur ___</b>*
+*<b>___ Hermann Hesse ___</b>*
 
 -----
 
