@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Champions keep playing until they get it right. "</i></h5>**
+**<h5><i>" Cleverness is not wisdom. "</i></h5>**
 
-*<b>___ Billie Jean King ___</b>*
+*<b>___ Euripides ___</b>*
 
 -----
 
