@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Trust only movement. Life happens at the level of events, not of words. Trust movement. "</i></h5>**
+**<h5><i>" It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something. "</i></h5>**
 
-*<b>___ Alfred Adler ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
