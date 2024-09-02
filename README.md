@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The awareness of our own strength makes us modest. "</i></h5>**
+**<h5><i>" The secret of getting ahead is getting started. "</i></h5>**
 
-*<b>___ Paul Cézanne ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
