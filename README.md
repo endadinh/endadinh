@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is a perfume you cannot pour on others without getting a few drops on yourself. "</i></h5>**
+**<h5><i>" People don't notice whether it's winter or summer when they're happy. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Anton Chekhov ___</b>*
 
 -----
 
