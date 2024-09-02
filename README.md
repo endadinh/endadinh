@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Let us always meet each other with smile, for the smile is the beginning of love. "</i></h5>**
+**<h5><i>" Blessed are the hearts that can bend; they shall never be broken. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Albert Camus ___</b>*
 
 -----
 
