@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To accomplish great things, we must dream as well as act. "</i></h5>**
+**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
 
-*<b>___ Anatole France ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
