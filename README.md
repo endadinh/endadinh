@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. "</i></h5>**
+**<h5><i>" First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
