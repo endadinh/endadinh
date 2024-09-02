@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowledge rests not upon truth alone, but upon error also. "</i></h5>**
+**<h5><i>" Conditions fall apart. Persist with diligence. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
