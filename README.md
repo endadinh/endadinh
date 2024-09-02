@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. "</i></h5>**
+**<h5><i>" The noblest worship is to make yourself as good and as just as you can. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
