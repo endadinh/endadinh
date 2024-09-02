@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only true wisdom is in knowing you know nothing. "</i></h5>**
+**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Julian Casablancas ___</b>*
 
 -----
 
