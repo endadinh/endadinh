@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Feeling and longing are the motive forces behind all human endeavor and human creations. "</i></h5>**
+**<h5><i>" I know but one freedom and that is the freedom of the mind. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Antoine de Saint-Exupéry ___</b>*
 
 -----
 
