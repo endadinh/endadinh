@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something. "</i></h5>**
+**<h5><i>" Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Charles Spurgeon ___</b>*
 
 -----
 
