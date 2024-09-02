@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination. "</i></h5>**
+**<h5><i>" Accept the challenges so that you can feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
