@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
+**<h5><i>" People are not lazy. They simply have impotent goals - that is, goals that do not inspire them. "</i></h5>**
 
-*<b>___ Jim Morrison ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
