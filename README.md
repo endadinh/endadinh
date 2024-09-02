@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" A friend is someone who gives you total freedom to be yourself. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Jim Morrison ___</b>*
 
 -----
 
