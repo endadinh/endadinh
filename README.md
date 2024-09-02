@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vanity can easily overtake wisdom. It usually overtakes common sense. "</i></h5>**
+**<h5><i>" Let us always meet each other with smile, for the smile is the beginning of love. "</i></h5>**
 
-*<b>___ Julian Casablancas ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
