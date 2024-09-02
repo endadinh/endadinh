@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Always remember that you are absolutely unique. Just like everyone else. "</i></h5>**
+**<h5><i>" There is no charm equal to tenderness of heart. "</i></h5>**
 
-*<b>___ Margaret Mead ___</b>*
+*<b>___ Jane Austen ___</b>*
 
 -----
 
