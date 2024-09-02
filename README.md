@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. "</i></h5>**
+**<h5><i>" Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. "</i></h5>**
 
-*<b>___ Denis Waitley ___</b>*
+*<b>___ Louis Pasteur ___</b>*
 
 -----
 
