@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Train up a fig tree in the way it should go, and when you are old sit under the shade of it. "</i></h5>**
+**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
 
-*<b>___ Charles Dickens ___</b>*
+*<b>___ Alexis Carrel ___</b>*
 
 -----
 
