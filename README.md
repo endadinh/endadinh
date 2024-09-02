@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship multiplies the good of life and divides the evil. "</i></h5>**
+**<h5><i>" The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. "</i></h5>**
 
-*<b>___ Baltasar Gracián ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
