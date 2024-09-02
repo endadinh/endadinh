@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education is the most powerful weapon which you can use to change the world. "</i></h5>**
+**<h5><i>" If you have one true friend, you have more than your share. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Thomas Fuller ___</b>*
 
 -----
 
