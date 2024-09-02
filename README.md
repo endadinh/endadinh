@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Failure will never overtake me if my determination to succeed is strong enough. "</i></h5>**
+**<h5><i>" I want you to be everything that's you, deep at the center of your being. "</i></h5>**
 
-*<b>___ Og Mandino ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
