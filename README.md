@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love all, trust a few, do wrong to none. "</i></h5>**
+**<h5><i>" Before we acquire great power, we must acquire wisdom to use it well. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
