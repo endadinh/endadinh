@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take no thought of who is right or wrong or who is better than. Be not for or against. "</i></h5>**
+**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
