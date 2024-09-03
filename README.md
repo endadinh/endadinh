@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I believe that every person is born with talent. "</i></h5>**
+**<h5><i>" He who has imagination without learning has wings but no feet. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Joseph Joubert ___</b>*
 
 -----
 
