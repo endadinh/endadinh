@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our work is the presentation of our capabilities. "</i></h5>**
+**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
 
-*<b>___ Edward Gibbon ___</b>*
+*<b>___ John Bercow ___</b>*
 
 -----
 
