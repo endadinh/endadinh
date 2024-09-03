@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen. "</i></h5>**
+**<h5><i>" An invasion of armies can be resisted, but not an idea whose time has come. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Victor Hugo ___</b>*
 
 -----
 
