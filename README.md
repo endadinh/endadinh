@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to have a friend is to be one. "</i></h5>**
+**<h5><i>" Rejoicing in our joy, not suffering over our suffering, makes someone a friend. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
