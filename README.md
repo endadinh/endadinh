@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
