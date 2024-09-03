@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best preparation for tomorrow is doing your best today. "</i></h5>**
+**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Ellen Glasgow ___</b>*
 
 -----
 
