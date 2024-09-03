@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest way to live with honor in this world is to be what we pretend to be. "</i></h5>**
+**<h5><i>" Never interrupt your enemy when he is making a mistake. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Napoleon ___</b>*
 
 -----
 
