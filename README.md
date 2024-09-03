@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
+**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
 
-*<b>___ Hugh Miller ___</b>*
+*<b>___ Hubert Humphrey ___</b>*
 
 -----
 
