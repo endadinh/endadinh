@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest healing therapy is friendship and love. "</i></h5>**
+**<h5><i>" There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
