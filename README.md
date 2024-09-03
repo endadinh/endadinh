@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God. "</i></h5>**
+**<h5><i>" All difficult things have their origin in that which is easy, and great things in that which is small. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
