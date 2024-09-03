@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are always free to change your mind and choose a different future, or a different past. "</i></h5>**
+**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ John Brunner ___</b>*
 
 -----
 
