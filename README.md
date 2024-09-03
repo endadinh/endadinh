@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" I'm not in this world to live up to your expectations and you're not in this world to live up to mine. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
