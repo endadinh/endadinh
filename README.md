@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not fair to ask of others what you are unwilling to do yourself. "</i></h5>**
+**<h5><i>" If you focus on results, you will never change. If you focus on change, you will get results. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Jack Dixon ___</b>*
 
 -----
 
