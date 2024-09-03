@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
+**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
 
-*<b>___ Ellen Glasgow ___</b>*
+*<b>___ Hannah More ___</b>*
 
 -----
 
