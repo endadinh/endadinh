@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The extreme limit of wisdom, that's what the public calls madness. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Jean Cocteau ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
