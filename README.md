@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing ever goes away until it has taught us what we need to know. "</i></h5>**
+**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
 
-*<b>___ Pema Chödrön ___</b>*
+*<b>___ Ellen Glasgow ___</b>*
 
 -----
 
