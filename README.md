@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Barbara De Angelis ___</b>*
 
 -----
 
