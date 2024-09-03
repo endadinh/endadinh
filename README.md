@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An invasion of armies can be resisted, but not an idea whose time has come. "</i></h5>**
+**<h5><i>" True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. "</i></h5>**
 
-*<b>___ Victor Hugo ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
