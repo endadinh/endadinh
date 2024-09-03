@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Sam Keen ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
