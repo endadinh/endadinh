@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those things you see when you take your eyes off the goal. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Hannah More ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
