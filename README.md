@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
+**<h5><i>" Always tell the truth. That way, you don't have to remember what you said. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
