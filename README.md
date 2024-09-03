@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
+**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ George Washington ___</b>*
 
 -----
 
