@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Douglas Adams ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
