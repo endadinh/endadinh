@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is far better to be alone, than to be in bad company. "</i></h5>**
+**<h5><i>" We are stuck with technology when what we really want is just stuff that works. "</i></h5>**
 
-*<b>___ George Washington ___</b>*
+*<b>___ Douglas Adams ___</b>*
 
 -----
 
