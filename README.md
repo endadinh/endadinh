@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
+**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
 
-*<b>___ Ellen Glasgow ___</b>*
+*<b>___ Lord Byron ___</b>*
 
 -----
 
