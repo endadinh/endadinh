@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
+**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
 
-*<b>___ Marilyn vos Savant ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
