@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is at last sacred but the integrity of your own mind. "</i></h5>**
+**<h5><i>" You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Ravi Zacharias ___</b>*
 
 -----
 
