@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you think you can, you can. And if you think you can't, you're right. "</i></h5>**
+**<h5><i>" Be kind whenever possible. It is always possible. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
