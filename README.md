@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The price of greatness is responsibility. "</i></h5>**
+**<h5><i>" To acquire knowledge, one must study; but to acquire wisdom, one must observe. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Marilyn vos Savant ___</b>*
 
 -----
 
