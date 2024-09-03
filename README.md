@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity. "</i></h5>**
+**<h5><i>" He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God. "</i></h5>**
 
-*<b>___ Barbara De Angelis ___</b>*
+*<b>___ Aeschylus ___</b>*
 
 -----
 
