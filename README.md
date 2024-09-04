@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is essentially a partnership. "</i></h5>**
+**<h5><i>" Practice yourself, for heaven's sake in little things, and then proceed to greater. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
