@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" O, what a tangled web we weave when first we practice to deceive! "</i></h5>**
+**<h5><i>" The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same. "</i></h5>**
 
-*<b>___ Walter Scott ___</b>*
+*<b>___ Carlos Castaneda ___</b>*
 
 -----
 
