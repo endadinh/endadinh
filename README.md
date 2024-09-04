@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
+**<h5><i>" Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
