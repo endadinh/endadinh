@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha "</i></h5>**
+**<h5><i>" A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Basil of Caesarea ___</b>*
 
 -----
 
