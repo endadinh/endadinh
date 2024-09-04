@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
+**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
 
-*<b>___ Oliver Wendell Holmes Jr. ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
