@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is fixed to a star does not change his mind. "</i></h5>**
+**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
