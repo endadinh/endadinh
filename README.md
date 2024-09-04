@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the flower for which love is the honey. "</i></h5>**
+**<h5><i>" We should all be thankful for those people who rekindle the inner spirit. "</i></h5>**
 
-*<b>___ Victor Hugo ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
