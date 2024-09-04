@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
+**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Mariella Frostrup ___</b>*
 
 -----
 
