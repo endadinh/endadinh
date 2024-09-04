@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. "</i></h5>**
+**<h5><i>" To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. "</i></h5>**
 
-*<b>___ Mariella Frostrup ___</b>*
+*<b>___ Henri Bergson ___</b>*
 
 -----
 
