@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
+**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
