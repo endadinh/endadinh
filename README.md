@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly. "</i></h5>**
+**<h5><i>" A friend in power is a friend lost. "</i></h5>**
 
-*<b>___ Henri Bergson ___</b>*
+*<b>___ Henry Adams ___</b>*
 
 -----
 
