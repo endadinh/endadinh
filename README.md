@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A friend in power is a friend lost. "</i></h5>**
+**<h5><i>" Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. "</i></h5>**
 
-*<b>___ Henry Adams ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
