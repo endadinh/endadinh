@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
