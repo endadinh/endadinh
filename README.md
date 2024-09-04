@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Act as if what you do makes a difference. It does. "</i></h5>**
+**<h5><i>" Stay away from what might have been and look at what will be. "</i></h5>**
 
-*<b>___ William James ___</b>*
+*<b>___ Marsha Petrie Sue ___</b>*
 
 -----
 
