@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To see things in the seed, that is genius. "</i></h5>**
+**<h5><i>" Friendship is essentially a partnership. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
