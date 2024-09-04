@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Until you make peace with who you are, you'll never be content with what you have. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
 
-*<b>___ Doris Mortman ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
