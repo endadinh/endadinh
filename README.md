@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is good even for old men to learn wisdom. "</i></h5>**
+**<h5><i>" Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. "</i></h5>**
 
-*<b>___ Aeschylus ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
