@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
+**<h5><i>" Friendship is one mind in two bodies. "</i></h5>**
 
-*<b>___ Francis Bacon ___</b>*
+*<b>___ Mencius ___</b>*
 
 -----
 
