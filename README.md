@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. "</i></h5>**
+**<h5><i>" Problems are only opportunities with thorns on them. "</i></h5>**
 
-*<b>___ John Locke ___</b>*
+*<b>___ Hugh Miller ___</b>*
 
 -----
 
