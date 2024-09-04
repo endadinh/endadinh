@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
+**<h5><i>" If a man going down into a river, swollen and swiftly flowing, is carried away by the current — how can he help others across? – The Buddha "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
