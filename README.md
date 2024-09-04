@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can't feed a hundred people, then feed just one. "</i></h5>**
+**<h5><i>" Half the lies they tell about me aren't true. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
