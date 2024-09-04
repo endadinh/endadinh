@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't win unless you learn how to lose. "</i></h5>**
+**<h5><i>" Mistakes are the usual bridge between inexperience and wisdom. "</i></h5>**
 
-*<b>___ Kareem Abdul-Jabbar ___</b>*
+*<b>___ Phyllis Grissim-Theroux ___</b>*
 
 -----
 
