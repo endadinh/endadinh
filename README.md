@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't turn away from possible futures before you're certain you don't have anything to learn from them. "</i></h5>**
+**<h5><i>" Kindness is the golden chain by which society is bound together. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
