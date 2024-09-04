@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure. "</i></h5>**
+**<h5><i>" A prudent question is one half of wisdom. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
