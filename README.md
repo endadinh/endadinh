@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All great men are gifted with intuition. They know without reasoning or analysis, what they need to know. "</i></h5>**
+**<h5><i>" We do not quit playing because we grow old, we grow old because we quit playing. "</i></h5>**
 
-*<b>___ Alexis Carrel ___</b>*
+*<b>___ Oliver Wendell Holmes Jr. ___</b>*
 
 -----
 
