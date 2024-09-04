@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit. "</i></h5>**
+**<h5><i>" I can't imagine a person becoming a success who doesn't give this game of life everything he's got. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Walter Cronkite ___</b>*
 
 -----
 
