@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. "</i></h5>**
+**<h5><i>" Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
