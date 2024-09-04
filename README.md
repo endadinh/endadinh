@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
+**<h5><i>" If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Mary Pickford ___</b>*
 
 -----
 
