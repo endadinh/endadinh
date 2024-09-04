@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
+**<h5><i>" Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
