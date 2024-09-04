@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. "</i></h5>**
+**<h5><i>" The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
