@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. "</i></h5>**
+**<h5><i>" True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Daisaku Ikeda ___</b>*
 
 -----
 
