@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important because without it one cannot be friends with anybody else in the world. "</i></h5>**
+**<h5><i>" I think somehow, we learn who we really are and then live with that decision. "</i></h5>**
 
 *<b>___ Eleanor Roosevelt ___</b>*
 
