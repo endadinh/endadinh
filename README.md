@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
+**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
 
-*<b>___ Northrop Frye ___</b>*
+*<b>___ John F. Kennedy ___</b>*
 
 -----
 
