@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A single lamp may light hundreds of thousands of lamps without itself being diminished. "</i></h5>**
+**<h5><i>" What the caterpillar calls the end of the world, the master calls a butterfly. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
