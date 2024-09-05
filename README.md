@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reality does not conform to the ideal but confirms it. "</i></h5>**
+**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
 
-*<b>___ Gustave Flaubert ___</b>*
+*<b>___ Horace ___</b>*
 
 -----
 
