@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born. "</i></h5>**
+**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
 
-*<b>___ Anaïs Nin ___</b>*
+*<b>___ Isocrates ___</b>*
 
 -----
 
