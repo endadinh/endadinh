@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is impossible for a man to learn what he thinks he already knows. "</i></h5>**
+**<h5><i>" When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Morihei Ueshiba ___</b>*
 
 -----
 
