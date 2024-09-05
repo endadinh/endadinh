@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is the wisdom of the fool and the folly of the wise. "</i></h5>**
+**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
 
-*<b>___ Samuel Johnson ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
