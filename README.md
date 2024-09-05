@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
+**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
