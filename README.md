@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change is the law of life. And those who look only to the past or present are certain to miss the future. "</i></h5>**
+**<h5><i>" You really can change the world if you care enough. "</i></h5>**
 
-*<b>___ John F. Kennedy ___</b>*
+*<b>___ Marian Wright Edelman ___</b>*
 
 -----
 
