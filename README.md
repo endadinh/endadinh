@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. "</i></h5>**
+**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
