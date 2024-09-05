@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness often sneaks in through a door you didn't know you left open. "</i></h5>**
+**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
 
-*<b>___ John Barrymore ___</b>*
+*<b>___ Janis Joplin ___</b>*
 
 -----
 
