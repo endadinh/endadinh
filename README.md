@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. "</i></h5>**
+**<h5><i>" We don't know a millionth of one percent about anything. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
