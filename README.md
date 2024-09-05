@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" My best friend is the one who brings out the best in me. "</i></h5>**
+**<h5><i>" Fear not for the future, weep not for the past. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Percy Bysshe Shelley ___</b>*
 
 -----
 
