@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't know a millionth of one percent about anything. "</i></h5>**
+**<h5><i>" What happens is not as important as how you react to what happens. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Ellen Glasgow ___</b>*
 
 -----
 
