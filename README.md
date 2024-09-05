@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
+**<h5><i>" Love is never lost. If not reciprocated, it will flow back and soften and purify the heart. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Washington Irving ___</b>*
 
 -----
 
