@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
+**<h5><i>" I have never been hurt by anything I didn't say. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Calvin Coolidge ___</b>*
 
 -----
 
