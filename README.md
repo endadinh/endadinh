@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Even youngish men can acquire wisdom as time goes by. "</i></h5>**
+**<h5><i>" The winner ain't the one with the fastest car it's the one who refuses to lose. "</i></h5>**
 
-*<b>___ John Bercow ___</b>*
+*<b>___ Dale Earnhardt ___</b>*
 
 -----
 
