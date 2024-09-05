@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We've got to have a dream if we are going to make a dream come true. "</i></h5>**
+**<h5><i>" Be great in act, as you have been in thought. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ William Shakespeare ___</b>*
 
 -----
 
