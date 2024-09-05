@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way. "</i></h5>**
+**<h5><i>" Mistakes are always forgivable, if one has the courage to admit them. "</i></h5>**
 
-*<b>___ Morihei Ueshiba ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
