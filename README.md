@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
+**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
 
-*<b>___ Peter Abelard ___</b>*
+*<b>___ Edith Wharton ___</b>*
 
 -----
 
