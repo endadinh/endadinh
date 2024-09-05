@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
+**<h5><i>" We've got to have a dream if we are going to make a dream come true. "</i></h5>**
 
-*<b>___ Henry Miller ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
