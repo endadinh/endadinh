@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements. "</i></h5>**
+**<h5><i>" The doorstep to the temple of wisdom is a knowledge of our own ignorance. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
