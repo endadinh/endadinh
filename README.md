@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" True knowledge exists in knowing that you know nothing. "</i></h5>**
+**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
 
-*<b>___ Isocrates ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
