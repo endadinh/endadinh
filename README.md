@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The happiness of a man in this life does not consist in the absence but in the mastery of his passions. "</i></h5>**
+**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
 
-*<b>___ Alfred Tennyson ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
