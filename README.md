@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. "</i></h5>**
+**<h5><i>" Happiness often sneaks in through a door you didn't know you left open. "</i></h5>**
 
-*<b>___ Horace ___</b>*
+*<b>___ John Barrymore ___</b>*
 
 -----
 
