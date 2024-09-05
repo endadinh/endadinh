@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. "</i></h5>**
+**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
 
-*<b>___ Muhammad Ali ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
