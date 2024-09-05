@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No garden is without its weeds. "</i></h5>**
+**<h5><i>" The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark. "</i></h5>**
 
-*<b>___ Thomas Fuller ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
