@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no retirement for an artist, it's your way of living so there is no end to it. "</i></h5>**
+**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
 
-*<b>___ Henry Moore ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
