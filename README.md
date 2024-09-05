@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good actions give strength to ourselves and inspire good actions in others. "</i></h5>**
+**<h5><i>" Friendship needs no words - it is solitude delivered from the anguish of loneliness. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Dag Hammarskjöld ___</b>*
 
 -----
 
