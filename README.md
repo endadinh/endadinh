@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that exists is in a manner the seed of that which will be. "</i></h5>**
+**<h5><i>" There are things so deep and complex that only intuition can reach it in our stage of development as human beings. "</i></h5>**
 
-*<b>___ Marcus Aurelius ___</b>*
+*<b>___ John Astin ___</b>*
 
 -----
 
