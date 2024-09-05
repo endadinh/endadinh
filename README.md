@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. "</i></h5>**
+**<h5><i>" Our passion is our strength. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Billie Armstrong ___</b>*
 
 -----
 
