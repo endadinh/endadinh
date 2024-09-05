@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You really can change the world if you care enough. "</i></h5>**
+**<h5><i>" Real magic in relationships means an absence of judgement of others. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Wayne Dyer ___</b>*
 
 -----
 
