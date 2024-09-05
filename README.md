@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. "</i></h5>**
+**<h5><i>" We are all something, but none of us are everything. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
