@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What we see depends mainly on what we look for. "</i></h5>**
+**<h5><i>" No person is your friend who demands your silence or denies your right to grow. "</i></h5>**
 
-*<b>___ John Lubbock ___</b>*
+*<b>___ Alice Walker ___</b>*
 
 -----
 
