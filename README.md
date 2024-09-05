@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take things as they are. Punch when you have to punch. Kick when you have to kick. "</i></h5>**
+**<h5><i>" The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Henry Miller ___</b>*
 
 -----
 
