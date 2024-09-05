@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. "</i></h5>**
+**<h5><i>" The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. "</i></h5>**
 
-*<b>___ William C. Menninger ___</b>*
+*<b>___ Peter Abelard ___</b>*
 
 -----
 
