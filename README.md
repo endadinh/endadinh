@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our passion is our strength. "</i></h5>**
+**<h5><i>" All our knowledge has its origins in our perceptions. "</i></h5>**
 
-*<b>___ Billie Armstrong ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
