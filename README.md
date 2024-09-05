@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no limitations to the mind except those we acknowledge. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
