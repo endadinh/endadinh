@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. "</i></h5>**
+**<h5><i>" When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self. "</i></h5>**
 
-*<b>___ Edith Wharton ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
