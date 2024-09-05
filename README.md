@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don't compromise yourself. You are all you've got. "</i></h5>**
+**<h5><i>" In all things of nature there is something of the marvelous. "</i></h5>**
 
-*<b>___ Janis Joplin ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
