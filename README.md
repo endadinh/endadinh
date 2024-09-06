@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
+**<h5><i>" Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. "</i></h5>**
 
-*<b>___ Samuel Butler ___</b>*
+*<b>___ William Saroyan ___</b>*
 
 -----
 
