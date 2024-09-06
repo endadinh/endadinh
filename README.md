@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" TV and the Internet are good because they keep stupid people from spending too much time out in public. "</i></h5>**
+**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
 
-*<b>___ Douglas Coupland ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
