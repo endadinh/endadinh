@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
+**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Viktor Frankl ___</b>*
 
 -----
 
