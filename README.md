@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals. "</i></h5>**
+**<h5><i>" Ignorant men don't know what good they hold in their hands until they've flung it away. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
