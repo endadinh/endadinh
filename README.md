@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go to your bosom: Knock there and ask your heart what it doth know. "</i></h5>**
+**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
 
-*<b>___ William Shakespeare ___</b>*
+*<b>___ Arthur Schopenhauer ___</b>*
 
 -----
 
