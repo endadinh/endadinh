@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning never exhausts the mind. "</i></h5>**
+**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Søren Kierkegaard ___</b>*
 
 -----
 
