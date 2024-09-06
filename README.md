@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
+**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
 
-*<b>___ Jean de La Fontaine ___</b>*
+*<b>___ Thomas Jefferson ___</b>*
 
 -----
 
