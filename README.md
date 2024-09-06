@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
+**<h5><i>" If you can dream it, you can do it. "</i></h5>**
 
-*<b>___ Benjamin Haydon ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
