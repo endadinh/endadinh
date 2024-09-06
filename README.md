@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
+**<h5><i>" Happiness often sneaks in through a door you didn't know you left open. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ John Barrymore ___</b>*
 
 -----
 
