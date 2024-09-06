@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. "</i></h5>**
+**<h5><i>" If you don't like something, change it. If you can't change it, change your attitude. "</i></h5>**
 
-*<b>___ William Saroyan ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
