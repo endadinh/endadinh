@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Purity and impurity depend on oneself; no one can purify another. "</i></h5>**
+**<h5><i>" There is not one big cosmic meaning for all, there is only the meaning we each give to our life. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Anaïs Nin ___</b>*
 
 -----
 
