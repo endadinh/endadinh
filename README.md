@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. "</i></h5>**
+**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
 
-*<b>___ Marcel Proust ___</b>*
+*<b>___ Jack Welch ___</b>*
 
 -----
 
