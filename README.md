@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can do it. "</i></h5>**
+**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Peter Elbow ___</b>*
 
 -----
 
