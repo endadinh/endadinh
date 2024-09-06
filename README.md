@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
+**<h5><i>" I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. "</i></h5>**
 
-*<b>___ Jack Welch ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
