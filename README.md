@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'm a great believer in luck and I find the harder I work, the more I have of it. "</i></h5>**
+**<h5><i>" Don't ruin the present with the ruined past. "</i></h5>**
 
-*<b>___ Thomas Jefferson ___</b>*
+*<b>___ Ellen Gilchrist ___</b>*
 
 -----
 
