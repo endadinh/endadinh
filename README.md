@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship may, and often does, grow into love, but love never subsides into friendship. "</i></h5>**
+**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
 
-*<b>___ Lord Byron ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
