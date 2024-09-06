@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is no failure except in no longer trying. "</i></h5>**
+**<h5><i>" Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. "</i></h5>**
 
-*<b>___ Elbert Hubbard ___</b>*
+*<b>___ Nathaniel Hawthorne ___</b>*
 
 -----
 
