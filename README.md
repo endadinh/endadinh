@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. "</i></h5>**
+**<h5><i>" Ignorant men raise questions that wise men answered a thousand years ago. "</i></h5>**
 
-*<b>___ Arthur Conan Doyle ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
