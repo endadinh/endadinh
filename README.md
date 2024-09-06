@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To dare is to lose ones footing momentarily. To not dare is to lose oneself. "</i></h5>**
+**<h5><i>" Sadness flies away on the wings of time. "</i></h5>**
 
-*<b>___ Søren Kierkegaard ___</b>*
+*<b>___ Jean de La Fontaine ___</b>*
 
 -----
 
