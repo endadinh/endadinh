@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To profit from good advice requires more wisdom than to give it. "</i></h5>**
+**<h5><i>" There surely is in human nature an inherent propensity to extract all the good out of all the evil. "</i></h5>**
 
-*<b>___ Wilson Mizner ___</b>*
+*<b>___ Benjamin Haydon ___</b>*
 
 -----
 
