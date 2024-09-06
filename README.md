@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In action a great heart is the chief qualification. In work, a great head. "</i></h5>**
+**<h5><i>" I don't want to achieve immortality through my work... I want to achieve it through not dying. "</i></h5>**
 
-*<b>___ Arthur Schopenhauer ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
