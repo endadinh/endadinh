@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The least movement is of importance to all nature. The entire ocean is affected by a pebble. "</i></h5>**
+**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Ezra Taft Benson ___</b>*
 
 -----
 
