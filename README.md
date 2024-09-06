@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our passion is our strength. "</i></h5>**
+**<h5><i>" All the great performers I have worked with are fueled by a personal dream. "</i></h5>**
 
-*<b>___ Billie Armstrong ___</b>*
+*<b>___ John Eliot ___</b>*
 
 -----
 
