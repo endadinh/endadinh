@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If one does not know to which port one is sailing, no wind is favorable. "</i></h5>**
+**<h5><i>" Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Amy Bloom ___</b>*
 
 -----
 
