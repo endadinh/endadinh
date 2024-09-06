@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" With pride, there are many curses. With humility, there come many blessings. "</i></h5>**
+**<h5><i>" Learning never exhausts the mind. "</i></h5>**
 
-*<b>___ Ezra Taft Benson ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
