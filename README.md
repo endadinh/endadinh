@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest gift of life is friendship, and I have received it. "</i></h5>**
+**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
 
-*<b>___ Hubert Humphrey ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
