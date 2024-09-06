@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect. "</i></h5>**
+**<h5><i>" Very little is needed to make a happy life; it is all within yourself, in your way of thinking. "</i></h5>**
 
-*<b>___ Joan Didion ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
