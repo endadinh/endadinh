@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
+**<h5><i>" I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
