@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
+**<h5><i>" Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
