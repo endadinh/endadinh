@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Meaning is not what you start with but what you end up with. "</i></h5>**
+**<h5><i>" Opportunity is missed by most because it is dressed in overalls and looks like work. "</i></h5>**
 
-*<b>___ Peter Elbow ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
