@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
+**<h5><i>" Friendship increases in visiting friends, but in visiting them seldom. "</i></h5>**
 
-*<b>___ Lucille Ball ___</b>*
+*<b>___ Francis Bacon ___</b>*
 
 -----
 
