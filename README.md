@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. "</i></h5>**
+**<h5><i>" I'd rather regret the things I've done than regret the things I haven't done. "</i></h5>**
 
-*<b>___ Nathaniel Hawthorne ___</b>*
+*<b>___ Lucille Ball ___</b>*
 
 -----
 
