@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All that we see or seem is but a dream within a dream. "</i></h5>**
+**<h5><i>" If one does not know to which port one is sailing, no wind is favorable. "</i></h5>**
 
-*<b>___ Edgar Allan Poe ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
