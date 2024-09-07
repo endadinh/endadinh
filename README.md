@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
+**<h5><i>" We make a living by what we get, but we make a life by what we give. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
