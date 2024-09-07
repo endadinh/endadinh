@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
+**<h5><i>" If you want to kill any idea in the world, get a committee working on it. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Charles F. Kettering ___</b>*
 
 -----
 
