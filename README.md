@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to a better understanding of ourselves. "</i></h5>**
+**<h5><i>" Numberless are the worlds wonders, but none more wonderful than man. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
