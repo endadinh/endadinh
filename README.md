@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
+**<h5><i>" All serious daring starts from within. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Harriet Beecher Stowe ___</b>*
 
 -----
 
