@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only real mistake is the one from which we learn nothing. "</i></h5>**
+**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
 
-*<b>___ John Powell ___</b>*
+*<b>___ Franz Kafka ___</b>*
 
 -----
 
