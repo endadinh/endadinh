@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
+**<h5><i>" Learning without reflection is a waste, reflection without learning is dangerous. "</i></h5>**
 
-*<b>___ James Oppenheim ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
