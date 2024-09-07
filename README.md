@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to kill any idea in the world, get a committee working on it. "</i></h5>**
+**<h5><i>" You are the only person on earth who can use your ability. "</i></h5>**
 
-*<b>___ Charles F. Kettering ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
