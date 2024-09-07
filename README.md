@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. "</i></h5>**
+**<h5><i>" He who knows others is wise. He who knows himself is enlightened. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
