@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
+**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
