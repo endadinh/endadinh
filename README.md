@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start with what is right rather than what is acceptable. "</i></h5>**
+**<h5><i>" A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. "</i></h5>**
 
-*<b>___ Franz Kafka ___</b>*
+*<b>___ George Bernard Shaw ___</b>*
 
 -----
 
