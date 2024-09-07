@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want things to be different, perhaps the answer is to become different yourself. "</i></h5>**
+**<h5><i>" The person born with a talent they are meant to use will find their greatest happiness in using it. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
