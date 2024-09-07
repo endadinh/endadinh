@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Obstacles are those frightful things you see when you take your eyes off your goal. "</i></h5>**
+**<h5><i>" Friendship is like money, easier made than kept. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Samuel Butler ___</b>*
 
 -----
 
