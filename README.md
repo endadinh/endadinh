@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
+**<h5><i>" The best thing about the future is that it only comes one day at a time. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
