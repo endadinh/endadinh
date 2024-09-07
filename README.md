@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
+**<h5><i>" A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ David Brinkley ___</b>*
 
 -----
 
