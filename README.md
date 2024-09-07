@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All serious daring starts from within. "</i></h5>**
+**<h5><i>" Attitude is a little thing that makes a big difference. "</i></h5>**
 
-*<b>___ Harriet Beecher Stowe ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
