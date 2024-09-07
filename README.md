@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wish to be a writer, write. "</i></h5>**
+**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Benjamin Disraeli ___</b>*
 
 -----
 
