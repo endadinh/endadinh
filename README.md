@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friends are the siblings God never gave us. "</i></h5>**
+**<h5><i>" You must do the things you think you cannot do. "</i></h5>**
 
-*<b>___ Mencius ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
