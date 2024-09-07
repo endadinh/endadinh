@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First say to yourself what you would be; and then do what you have to do. "</i></h5>**
+**<h5><i>" The foolish man seeks happiness in the distance, the wise grows it under his feet. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ James Oppenheim ___</b>*
 
 -----
 
