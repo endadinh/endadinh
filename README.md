@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never apologize for showing feeling. When you do so, you apologize for truth. "</i></h5>**
+**<h5><i>" Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation. "</i></h5>**
 
-*<b>___ Benjamin Disraeli ___</b>*
+*<b>___ Samuel Richardson ___</b>*
 
 -----
 
