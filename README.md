@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. "</i></h5>**
+**<h5><i>" The world is but a canvas to the imagination. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
