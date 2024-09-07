@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
+**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
 
-*<b>___ Ovid ___</b>*
+*<b>___ John Brunner ___</b>*
 
 -----
 
