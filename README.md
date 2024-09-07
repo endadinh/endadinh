@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Attitude is a little thing that makes a big difference. "</i></h5>**
+**<h5><i>" If you want things to be different, perhaps the answer is to become different yourself. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
