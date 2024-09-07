@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
+**<h5><i>" The virtue of justice consists in moderation, as regulated by wisdom. "</i></h5>**
 
-*<b>___ Clay Shirky ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
