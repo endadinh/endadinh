@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never find fault with the absent. "</i></h5>**
+**<h5><i>" The fall of dropping water wears away the Stone. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ Lucretius ___</b>*
 
 -----
 
