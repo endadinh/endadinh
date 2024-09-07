@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I gave my life to become the person I am right now. Was it worth it? "</i></h5>**
+**<h5><i>" When we are no longer able to change a situation - we are challenged to change ourselves. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Viktor Frankl ___</b>*
 
 -----
 
