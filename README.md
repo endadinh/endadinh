@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow in choosing a friend, slower in changing. "</i></h5>**
+**<h5><i>" Communications tools don't get socially interesting until they get technologically boring. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Clay Shirky ___</b>*
 
 -----
 
