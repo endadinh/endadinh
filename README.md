@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wise men talk because they have something to say; fools, because they have to say something. "</i></h5>**
+**<h5><i>" It has become appallingly obvious that our technology has exceeded our humanity. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
