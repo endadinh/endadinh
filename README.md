@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise person should be urgently moved on occasions that make for urgency. "</i></h5>**
+**<h5><i>" If you wish to be a writer, write. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Epictetus ___</b>*
 
 -----
 
