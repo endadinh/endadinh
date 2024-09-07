@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It's supposed to be automatic, but actually you have to push this button. "</i></h5>**
+**<h5><i>" The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live. "</i></h5>**
 
-*<b>___ John Brunner ___</b>*
+*<b>___ Bertrand Russell ___</b>*
 
 -----
 
