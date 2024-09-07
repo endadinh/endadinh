@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Argue for your limitations, and sure enough they're yours. "</i></h5>**
+**<h5><i>" Spread love everywhere you go. Let no one ever come to you without leaving happier. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
