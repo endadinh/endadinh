@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As an organizer I start from where the world is, as it is, not as I would like it to be. "</i></h5>**
+**<h5><i>" Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues. "</i></h5>**
 
-*<b>___ Saul Alinsky ___</b>*
+*<b>___ Abigail Adams ___</b>*
 
 -----
 
