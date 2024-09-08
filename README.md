@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The sincere friends of this world are as ship lights in the stormiest of nights. "</i></h5>**
+**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
 
-*<b>___ Giotto ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
