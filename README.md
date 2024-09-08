@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. "</i></h5>**
+**<h5><i>" Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
