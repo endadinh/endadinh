@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
+**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Dale Carnegie ___</b>*
 
 -----
 
