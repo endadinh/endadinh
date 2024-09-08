@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
+**<h5><i>" Two persons cannot long be friends if they cannot forgive each other's little failings. "</i></h5>**
 
-*<b>___ Mahatma Gandhi ___</b>*
+*<b>___ Jean de La Bruyère ___</b>*
 
 -----
 
