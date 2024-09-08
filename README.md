@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Experience is not what happens to a man. It is what a man does with what happens to him. "</i></h5>**
+**<h5><i>" The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be. "</i></h5>**
 
-*<b>___ Aldous Huxley ___</b>*
+*<b>___ William James ___</b>*
 
 -----
 
