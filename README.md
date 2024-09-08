@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You are always free to change your mind and choose a different future, or a different past. "</i></h5>**
+**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
