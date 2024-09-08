@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to go east, don't go west. "</i></h5>**
+**<h5><i>" Happiness is the reward we get for living to the highest right we know. "</i></h5>**
 
-*<b>___ Ramakrishna ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
