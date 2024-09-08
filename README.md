@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
+**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
 
-*<b>___ Simone Weil ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
