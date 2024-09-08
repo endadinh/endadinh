@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have not failed. I've just found 10,000 ways that won't work. "</i></h5>**
+**<h5><i>" You can stand tall without standing on someone. You can be a victor without having victims. "</i></h5>**
 
-*<b>___ Thomas Edison ___</b>*
+*<b>___ Harriet Woods ___</b>*
 
 -----
 
