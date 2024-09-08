@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You yourself must strive. The Buddhas only point the way. "</i></h5>**
+**<h5><i>" Accept challenges, so that you may feel the exhilaration of victory. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ George S. Patton ___</b>*
 
 -----
 
