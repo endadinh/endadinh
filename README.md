@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The opportunity for brotherhood presents itself every time you meet a human being. "</i></h5>**
+**<h5><i>" I owe my solitude to other people. "</i></h5>**
 
-*<b>___ Jane Wyman ___</b>*
+*<b>___ Alan Watts ___</b>*
 
 -----
 
