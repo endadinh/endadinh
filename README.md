@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is really simple, but we insist on making it complicated. "</i></h5>**
+**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
