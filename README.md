@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
+**<h5><i>" The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ The Buddha ___</b>*
 
 -----
 
