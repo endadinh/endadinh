@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every man is a volume if you know how to read him. "</i></h5>**
+**<h5><i>" The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers. "</i></h5>**
 
-*<b>___ William Ellery Channing ___</b>*
+*<b>___ Thích Nhất Hạnh ___</b>*
 
 -----
 
