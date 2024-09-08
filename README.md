@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk. "</i></h5>**
+**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
 
-*<b>___ Cicero ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
