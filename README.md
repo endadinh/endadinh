@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two persons cannot long be friends if they cannot forgive each other's little failings. "</i></h5>**
+**<h5><i>" The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back. "</i></h5>**
 
-*<b>___ Jean de La Bruyère ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
