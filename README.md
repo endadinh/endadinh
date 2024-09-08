@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
+**<h5><i>" He who knows that enough is enough will always have enough. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
