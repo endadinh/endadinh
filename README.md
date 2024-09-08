@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions. "</i></h5>**
+**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Joe Paterno ___</b>*
 
 -----
 
