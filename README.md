@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship is an arrangement by which we undertake to exchange small favors for big ones. "</i></h5>**
+**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
 
-*<b>___ Montesquieu ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
