@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life. "</i></h5>**
+**<h5><i>" He who knows, does not speak. He who speaks, does not know. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
