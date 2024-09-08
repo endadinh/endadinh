@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe deep down in your heart that you're destined to do great things. "</i></h5>**
+**<h5><i>" It's the little details that are vital. Little things make big things happen. "</i></h5>**
 
-*<b>___ Joe Paterno ___</b>*
+*<b>___ John Wooden ___</b>*
 
 -----
 
