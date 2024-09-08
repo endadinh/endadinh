@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wherever a man turns he can find someone who needs him. "</i></h5>**
+**<h5><i>" Our greatness lies not so much in being able to remake the world as being able to remake ourselves. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Mahatma Gandhi ___</b>*
 
 -----
 
