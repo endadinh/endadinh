@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for. "</i></h5>**
+**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
 
-*<b>___ Oscar Wilde ___</b>*
+*<b>___ Ted Williams ___</b>*
 
 -----
 
