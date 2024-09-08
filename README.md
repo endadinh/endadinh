@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Applause is a receipt, not a bill. "</i></h5>**
+**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
 
-*<b>___ Dale Carnegie ___</b>*
+*<b>___ Eckhart Tolle ___</b>*
 
 -----
 
