@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything has beauty, but not everyone sees it. "</i></h5>**
+**<h5><i>" Never bend your head. Always hold it high. Look the world right in the eye. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
