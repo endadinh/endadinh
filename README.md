@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not a lack of love, but a lack of friendship that makes unhappy marriages. "</i></h5>**
+**<h5><i>" Be slow of tongue and quick of eye. "</i></h5>**
 
-*<b>___ Friedrich Nietzsche ___</b>*
+*<b>___ Miguel de Cervantes ___</b>*
 
 -----
 
