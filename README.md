@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In wartime, truth is so precious that she should always be attended by a bodyguard of lies. "</i></h5>**
+**<h5><i>" The sincere friends of this world are as ship lights in the stormiest of nights. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Giotto ___</b>*
 
 -----
 
