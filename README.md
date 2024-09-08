@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
+**<h5><i>" Few people are capable of expressing with equanimity opinions which differ from the prejudices of their social environment. Most people are even incapable of forming such opinions. "</i></h5>**
 
-*<b>___ Ted Williams ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
