@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" More often than not, anger is actually an indication of weakness rather than of strength. "</i></h5>**
+**<h5><i>" Experience is not what happens to a man. It is what a man does with what happens to him. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Aldous Huxley ___</b>*
 
 -----
 
