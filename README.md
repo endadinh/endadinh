@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
+**<h5><i>" An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ Jack Welch ___</b>*
 
 -----
 
