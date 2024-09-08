@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives. "</i></h5>**
+**<h5><i>" Liberty, taking the word in its concrete sense, consists in the ability to choose. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Simone Weil ___</b>*
 
 -----
 
