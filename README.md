@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you come to the end of your rope, tie a knot and hang on. "</i></h5>**
+**<h5><i>" When you are content to be simply yourself and don't compare or compete, everybody will respect you. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
