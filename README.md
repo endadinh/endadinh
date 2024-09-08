@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not uncommon for people to spend their whole life waiting to start living. "</i></h5>**
+**<h5><i>" The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for. "</i></h5>**
 
-*<b>___ Eckhart Tolle ___</b>*
+*<b>___ Oscar Wilde ___</b>*
 
 -----
 
