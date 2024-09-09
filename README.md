@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
+**<h5><i>" A quarrel between friends, when made up, adds a new tie to friendship. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Francis de Sales ___</b>*
 
 -----
 
