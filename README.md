@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
+**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
 
-*<b>___ Laozi ___</b>*
+*<b>___ Yogi Berra ___</b>*
 
 -----
 
