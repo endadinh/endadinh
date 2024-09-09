@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
+**<h5><i>" The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work. "</i></h5>**
 
-*<b>___ Norman Cousins ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
