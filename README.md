@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. "</i></h5>**
+**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
 
-*<b>___ Muhammad Ali ___</b>*
+*<b>___ Blaise Pascal ___</b>*
 
 -----
 
