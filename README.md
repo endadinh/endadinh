@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is a learning experience, only if you learn. "</i></h5>**
+**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
 
-*<b>___ Yogi Berra ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
