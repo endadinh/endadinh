@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If we open a quarrel between past and present, we shall find that we have lost the future. "</i></h5>**
+**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
