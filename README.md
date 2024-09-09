@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You're not obligated to win. You're obligated to keep trying to do the best you can every day. "</i></h5>**
+**<h5><i>" Things that were hard to bear are sweet to remember. "</i></h5>**
 
-*<b>___ Marian Wright Edelman ___</b>*
+*<b>___ Seneca the Younger ___</b>*
 
 -----
 
