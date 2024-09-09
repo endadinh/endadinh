@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
+**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
 
-*<b>___ Ella Wheeler Wilcox ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
