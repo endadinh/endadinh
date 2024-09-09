@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
+**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
