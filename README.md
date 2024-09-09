@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind unlearns with difficulty what it has long learned. "</i></h5>**
+**<h5><i>" Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ William Ellery Channing ___</b>*
 
 -----
 
