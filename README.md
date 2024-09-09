@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. "</i></h5>**
+**<h5><i>" Many men go fishing all of their lives without knowing that it is not fish they are after. "</i></h5>**
 
-*<b>___ Blaise Pascal ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
