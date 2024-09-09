@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He is a wise man who does not grieve for the things which he has not but rejoices for those which he has. "</i></h5>**
+**<h5><i>" The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. "</i></h5>**
 
-*<b>___ Epictetus ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
