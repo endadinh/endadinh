@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
