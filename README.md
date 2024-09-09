@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You just can't beat the person who never gives up. "</i></h5>**
+**<h5><i>" Not all those who wander are lost. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ J. R. R. Tolkien ___</b>*
 
 -----
 
