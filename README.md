@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. "</i></h5>**
+**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Walt Disney ___</b>*
 
 -----
 
