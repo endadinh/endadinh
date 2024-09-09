@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. "</i></h5>**
+**<h5><i>" When you realize there is nothing lacking, the whole world belongs to you. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Laozi ___</b>*
 
 -----
 
