@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. "</i></h5>**
+**<h5><i>" All love that has not friendship for its base, is like a mansion built upon the sand. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Ella Wheeler Wilcox ___</b>*
 
 -----
 
