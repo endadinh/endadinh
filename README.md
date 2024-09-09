@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What is not started today is never finished tomorrow. "</i></h5>**
+**<h5><i>" Lord, make me an instrument of thy peace. Where there is hatred, let me sow love. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Francis of Assisi ___</b>*
 
 -----
 
