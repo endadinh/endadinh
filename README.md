@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives are a sum total of the choices we have made. "</i></h5>**
+**<h5><i>" All things must come to the soul from its roots, from where it is planted. "</i></h5>**
 
-*<b>___ Wayne Dyer ___</b>*
+*<b>___ Teresa of Ávila ___</b>*
 
 -----
 
