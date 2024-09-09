@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do not wait for leaders; do it alone, person to person. "</i></h5>**
+**<h5><i>" Wisdom consists of the anticipation of consequences. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Norman Cousins ___</b>*
 
 -----
 
