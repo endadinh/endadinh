@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. "</i></h5>**
+**<h5><i>" The World is my country, all mankind are my brethren, and to do good is my religion. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Thomas Paine ___</b>*
 
 -----
 
