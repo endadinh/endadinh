@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Never do things others can do and will do, if there are things others cannot do or will not do. "</i></h5>**
+**<h5><i>" A failure is a man who has blundered but is not capable of cashing in on the experience. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Elbert Hubbard ___</b>*
 
 -----
 
