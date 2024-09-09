@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I walk slowly, but I never walk backward. "</i></h5>**
+**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Liberace ___</b>*
 
 -----
 
