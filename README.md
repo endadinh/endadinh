@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who will play with cats must expect to be scratched. "</i></h5>**
+**<h5><i>" Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions. "</i></h5>**
 
-*<b>___ Miguel de Cervantes ___</b>*
+*<b>___ Samuel Johnson ___</b>*
 
 -----
 
