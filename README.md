@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love has no age, no limit; and no death. "</i></h5>**
+**<h5><i>" If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. "</i></h5>**
 
-*<b>___ John Galsworthy ___</b>*
+*<b>___ Morris West ___</b>*
 
 -----
 
