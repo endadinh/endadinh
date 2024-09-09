@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Blessed is the man who expects nothing, for he shall never be disappointed. "</i></h5>**
+**<h5><i>" Love has no age, no limit; and no death. "</i></h5>**
 
-*<b>___ Alexander Pope ___</b>*
+*<b>___ John Galsworthy ___</b>*
 
 -----
 
