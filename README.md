@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back. "</i></h5>**
+**<h5><i>" Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. "</i></h5>**
 
-*<b>___ Seneca the Younger ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
