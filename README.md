@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The more you like yourself, the less you are like anyone else, which makes you unique. "</i></h5>**
+**<h5><i>" We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light. "</i></h5>**
 
-*<b>___ Walt Disney ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
