@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You cannot have what you do not want. "</i></h5>**
+**<h5><i>" Not what we have but what we enjoy constitutes our abundance. "</i></h5>**
 
-*<b>___ John Acosta ___</b>*
+*<b>___ Jean Antoine Petit-Senn ___</b>*
 
 -----
 
