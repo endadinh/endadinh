@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nobody will believe in you unless you believe in yourself. "</i></h5>**
+**<h5><i>" Tragedy is a tool for the living to gain wisdom, not a guide by which to live. "</i></h5>**
 
-*<b>___ Liberace ___</b>*
+*<b>___ Robert F. Kennedy ___</b>*
 
 -----
 
