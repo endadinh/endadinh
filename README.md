@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is a friendship set to music. "</i></h5>**
+**<h5><i>" The greatest obstacle to connecting with our joy is resentment. "</i></h5>**
 
-*<b>___ Joseph Campbell ___</b>*
+*<b>___ Pema Chödrön ___</b>*
 
 -----
 
