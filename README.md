@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. "</i></h5>**
+**<h5><i>" If you're changing the world, you're working on important things. You're excited to get up in the morning. "</i></h5>**
 
-*<b>___ John Steinbeck ___</b>*
+*<b>___ Larry Page ___</b>*
 
 -----
 
