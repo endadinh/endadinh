@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" He that respects himself is safe from others; he wears a coat of mail that none can pierce. "</i></h5>**
+**<h5><i>" Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children. "</i></h5>**
 
-*<b>___ Henry Wadsworth Longfellow ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
