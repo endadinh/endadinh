@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can't let praise or criticism get to you. It's a weakness to get caught up in either one. "</i></h5>**
+**<h5><i>" You need chaos in your soul to give birth to a dancing star. "</i></h5>**
 
-*<b>___ John Wooden ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
