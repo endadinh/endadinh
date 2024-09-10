@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is nothing permanent except change. "</i></h5>**
+**<h5><i>" Learning is finding out what you already know. "</i></h5>**
 
-*<b>___ Heraclitus ___</b>*
+*<b>___ Richard Bach ___</b>*
 
 -----
 
