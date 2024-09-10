@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer. "</i></h5>**
+**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
 
-*<b>___ Ted Williams ___</b>*
+*<b>___ Mother Teresa ___</b>*
 
 -----
 
