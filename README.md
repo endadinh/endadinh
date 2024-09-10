@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
+**<h5><i>" Myths which are believed in tend to become true. "</i></h5>**
 
-*<b>___ Charles Péguy ___</b>*
+*<b>___ George Orwell ___</b>*
 
 -----
 
