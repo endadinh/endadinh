@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
+**<h5><i>" The most I can do for my friend is simply be his friend. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
