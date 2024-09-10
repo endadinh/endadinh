@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
+**<h5><i>" The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. "</i></h5>**
 
-*<b>___ Jean-Jacques Rousseau ___</b>*
+*<b>___ Michelangelo ___</b>*
 
 -----
 
