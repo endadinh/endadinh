@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Wisdom is the supreme part of happiness. "</i></h5>**
+**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
 
-*<b>___ Sophocles ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
