@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Jonathan Swift ___</b>*
 
 -----
 
