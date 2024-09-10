@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future. "</i></h5>**
+**<h5><i>" Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart. "</i></h5>**
 
-*<b>___ Plutarch ___</b>*
+*<b>___ Marcus Aurelius ___</b>*
 
 -----
 
