@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Heedfulness is the path to the Deathless. Heedlessness is the path to death. The heedful die not. The heedless are as if already dead. "</i></h5>**
+**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
 
-*<b>___ The Buddha ___</b>*
+*<b>___ Ernie Banks ___</b>*
 
 -----
 
