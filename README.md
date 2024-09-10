@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
+**<h5><i>" What wisdom can you find that is greater than kindness? "</i></h5>**
 
-*<b>___ Jean-Paul Sartre ___</b>*
+*<b>___ Jean-Jacques Rousseau ___</b>*
 
 -----
 
