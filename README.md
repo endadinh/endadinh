@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
+**<h5><i>" Genius is one percent inspiration and ninety-nine percent perspiration. "</i></h5>**
 
-*<b>___ Carl Jung ___</b>*
+*<b>___ Thomas Edison ___</b>*
 
 -----
 
