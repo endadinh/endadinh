@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Marriage: A friendship recognized by the police. "</i></h5>**
+**<h5><i>" A real friend is one who walks in when the rest of the world walks out. "</i></h5>**
 
-*<b>___ Robert Louis Stevenson ___</b>*
+*<b>___ Walter Winchell ___</b>*
 
 -----
 
