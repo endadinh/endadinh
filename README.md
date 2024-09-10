@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
+**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
 
-*<b>___ Kahlil Gibran ___</b>*
+*<b>___ Northrop Frye ___</b>*
 
 -----
 
