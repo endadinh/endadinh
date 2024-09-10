@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. "</i></h5>**
+**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
 
-*<b>___ Ernie Banks ___</b>*
+*<b>___ Sri Chinmoy ___</b>*
 
 -----
 
