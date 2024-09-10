@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
+**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Bruce Lee ___</b>*
 
 -----
 
