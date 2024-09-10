@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most technologically efficient machine that man has ever invented is the book. "</i></h5>**
+**<h5><i>" Freedom is what you do with what's been done to you. "</i></h5>**
 
-*<b>___ Northrop Frye ___</b>*
+*<b>___ Jean-Paul Sartre ___</b>*
 
 -----
 
