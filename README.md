@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the end we retain from our studies only that which we practically apply. "</i></h5>**
+**<h5><i>" Everything that irritates us about others can lead us to an understanding of ourselves. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Carl Jung ___</b>*
 
 -----
 
