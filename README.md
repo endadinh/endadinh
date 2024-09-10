@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To find a man's true character, play golf with him. "</i></h5>**
+**<h5><i>" You win the victory when you yield to friends. "</i></h5>**
 
-*<b>___ P. G. Wodehouse ___</b>*
+*<b>___ Sophocles ___</b>*
 
 -----
 
