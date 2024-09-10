@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not. "</i></h5>**
+**<h5><i>" Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. "</i></h5>**
 
-*<b>___ Dhammapada ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
