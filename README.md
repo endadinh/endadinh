@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Discovery consists of seeing what everybody has seen and thinking what nobody else has thought. "</i></h5>**
+**<h5><i>" Every great advance in science has issued from a new audacity of the imagination. "</i></h5>**
 
-*<b>___ Jonathan Swift ___</b>*
+*<b>___ John Dewey ___</b>*
 
 -----
 
