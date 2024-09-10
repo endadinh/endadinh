@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. "</i></h5>**
+**<h5><i>" Love is rarer than genius itself. And friendship is rarer than love. "</i></h5>**
 
-*<b>___ Sri Chinmoy ___</b>*
+*<b>___ Charles Péguy ___</b>*
 
 -----
 
