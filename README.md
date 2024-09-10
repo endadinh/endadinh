@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Learning is finding out what you already know. "</i></h5>**
+**<h5><i>" Take rest; a field that has rested gives a bountiful crop. "</i></h5>**
 
-*<b>___ Richard Bach ___</b>*
+*<b>___ Ovid ___</b>*
 
 -----
 
