@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Think big thoughts but relish small pleasures. "</i></h5>**
+**<h5><i>" It has long been an axiom of mine that the little things are infinitely the most important. "</i></h5>**
 
-*<b>___ H. Jackson Brown Jr. ___</b>*
+*<b>___ Arthur Conan Doyle ___</b>*
 
 -----
 
