@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A wise man can learn more from a foolish question than a fool can learn from a wise answer. "</i></h5>**
+**<h5><i>" All this modern technology just makes people try to do everything at once. "</i></h5>**
 
-*<b>___ Bruce Lee ___</b>*
+*<b>___ Bill Watterson ___</b>*
 
 -----
 
