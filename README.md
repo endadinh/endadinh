@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most formidable weapon against errors of every kind is reason. "</i></h5>**
+**<h5><i>" A little knowledge that acts is worth infinitely more than much knowledge that is idle. "</i></h5>**
 
-*<b>___ Thomas Paine ___</b>*
+*<b>___ Kahlil Gibran ___</b>*
 
 -----
 
