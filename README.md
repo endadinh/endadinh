@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Computers are useless. They can only give you answers. "</i></h5>**
+**<h5><i>" There is more wisdom in your body than in your deepest philosophy. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Friedrich Nietzsche ___</b>*
 
 -----
 
