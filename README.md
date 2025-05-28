@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Yuuji Kazami ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
