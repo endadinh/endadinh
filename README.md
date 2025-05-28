@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Kind words can be short and easy to speak, but their echoes are truly endless. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Mother Teresa ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
