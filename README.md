@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
