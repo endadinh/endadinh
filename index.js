@@ -10,11 +10,11 @@ async function main() {
     ).toString("utf-8");
 
     const quote = await (
-        await fetch("https://api.quotable.io/random")
+        await fetch("https://quotes-api-self.vercel.app/quote")
     ).json();
 
     const readme = readmeTemplate
-        .replace("{__quote}", `" ${quote?.content} "`)
+        .replace("{__quote}", `" ${quote?.quote} "`)
         .replace("{__character}", `___ ${quote?.author ? quote?.author : "0xEnda"} ___`)
     await fs.writeFile("README.md", readme);
 }
