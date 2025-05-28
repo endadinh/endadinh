@@ -1,4 +1,4 @@
-<h2 title="hehehe"> Hey 👋, I'm Endale !</h2>
+<h2 title="hehehe"> Hey 👋, I'm Enda Dinh!</h2>
 
 <a href="https://www.linkedin.com/in/endadinh/">
   <img align="left" alt="Enda's LinkedIn" width="24px" src="https://img.icons8.com/nolan/96/linkedin.png" />
@@ -29,12 +29,12 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
-Credits: [Endale](https://github.com/endadinh)
+Credits: [Enda Dinh](https://github.com/endadinh)
               
-Last Edited on: 28/05/2025
+Last Edited on: 29/03/2022
