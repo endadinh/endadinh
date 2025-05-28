@@ -1,4 +1,4 @@
-<h2 title="hehehe"> Hey 👋, I'm Enda Dinh!</h2>
+<h2 title="hehehe"> Hey 👋, I'm Endale !</h2>
 
 <a href="https://www.linkedin.com/in/endadinh/">
   <img align="left" alt="Enda's LinkedIn" width="24px" src="https://img.icons8.com/nolan/96/linkedin.png" />
@@ -35,6 +35,6 @@
 
 -----
 
-Credits: [Enda Dinh](https://github.com/endadinh)
+Credits: [Endale](https://github.com/endadinh)
               
-Last Edited on: 29/03/2022
+Last Edited on: 28/05/2025
