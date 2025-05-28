@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
