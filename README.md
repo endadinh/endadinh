@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
