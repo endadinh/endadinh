@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
