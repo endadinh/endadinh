@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
