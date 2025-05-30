@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
