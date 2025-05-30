@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Renton Thurston ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
