@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Saber ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
