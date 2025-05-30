@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
