@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An unexamined life is not worth living. "</i></h5>**
+**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ –Audrey Hepburn ___</b>*
 
 -----
 
