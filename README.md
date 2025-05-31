@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" Everything has beauty, but not everyone can see. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
