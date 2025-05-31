@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
