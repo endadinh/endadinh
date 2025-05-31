@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. "</i></h5>**
+**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
 
-*<b>___ Jesse Owens ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
