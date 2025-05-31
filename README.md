@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Simon ___</b>*
 
 -----
 
