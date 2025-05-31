@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
