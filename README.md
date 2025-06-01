@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
