@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Alice Walker ___</b>*
 
 -----
 
