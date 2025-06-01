@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" Everything has beauty, but not everyone can see. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
