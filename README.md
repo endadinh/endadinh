@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
