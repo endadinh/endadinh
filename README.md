@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Les Brown ___</b>*
 
 -----
 
