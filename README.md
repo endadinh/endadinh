@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
