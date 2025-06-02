@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
