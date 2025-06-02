@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
+**<h5><i>" Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Kyousuke Natsume ___</b>*
 
 -----
 
