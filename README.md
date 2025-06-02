@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Canaan ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
