@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
