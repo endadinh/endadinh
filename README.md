@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
