@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
