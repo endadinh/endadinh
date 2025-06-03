@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
