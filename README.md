@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
