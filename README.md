@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
