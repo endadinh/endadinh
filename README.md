@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
