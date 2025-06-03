@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
