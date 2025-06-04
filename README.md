@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
