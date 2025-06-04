@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
+**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
 
-*<b>___ Shiroe ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
