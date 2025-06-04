@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
