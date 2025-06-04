@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
