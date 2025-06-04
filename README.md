@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Mavis Vermillion ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
