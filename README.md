@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
