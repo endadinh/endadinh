@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
