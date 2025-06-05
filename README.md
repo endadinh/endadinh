@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Anais Nin ___</b>*
 
 -----
 
