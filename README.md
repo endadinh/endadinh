@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
