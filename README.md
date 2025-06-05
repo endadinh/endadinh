@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough. "</i></h5>**
+**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Seiya Kanie ___</b>*
 
 -----
 
