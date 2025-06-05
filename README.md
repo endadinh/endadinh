@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Wayne Gretzky ___</b>*
 
 -----
 
