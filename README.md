@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
