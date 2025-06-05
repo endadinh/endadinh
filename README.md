@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Simon ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
