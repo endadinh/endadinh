@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
