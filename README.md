@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
