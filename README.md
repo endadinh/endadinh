@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
