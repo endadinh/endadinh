@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" The two most important days in your life are the day you are born and the day you find out why. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
