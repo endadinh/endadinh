@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
