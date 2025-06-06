@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
