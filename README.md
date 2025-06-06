@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
 
-*<b>___ Lao Tzu ___</b>*
+*<b>___ Mavis Vermillion ___</b>*
 
 -----
 
