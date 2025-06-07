@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough. "</i></h5>**
+**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
