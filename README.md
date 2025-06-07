@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
