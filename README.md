@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
+**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
