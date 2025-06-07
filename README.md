@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Kagome ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
