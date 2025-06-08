@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
+**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
 
-*<b>___ Ichigo Kurosaki ___</b>*
+*<b>___ Latin Proverb ___</b>*
 
 -----
 
