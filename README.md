@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
+**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
 
-*<b>___ Erza Scarlet ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
