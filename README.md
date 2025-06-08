@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
