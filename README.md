@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
