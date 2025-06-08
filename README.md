@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
