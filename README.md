@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
