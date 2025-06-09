@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Wayne Gretzky ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
