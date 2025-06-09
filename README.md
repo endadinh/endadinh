@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___  Ancient Indian Proverb ___</b>*
 
 -----
 
