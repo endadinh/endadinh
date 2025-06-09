@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
