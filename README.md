@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
