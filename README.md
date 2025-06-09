@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
