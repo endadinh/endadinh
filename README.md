@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
