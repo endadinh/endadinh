@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Touko Aozaki ___</b>*
 
 -----
 
