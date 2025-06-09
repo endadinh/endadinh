@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
