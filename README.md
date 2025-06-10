@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Kyousuke Natsume ___</b>*
 
 -----
 
