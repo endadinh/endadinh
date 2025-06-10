@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
