@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
