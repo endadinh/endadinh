@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
+**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Ymir ___</b>*
 
 -----
 
