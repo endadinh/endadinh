@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
