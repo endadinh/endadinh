@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
