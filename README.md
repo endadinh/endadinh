@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
+**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Ymir ___</b>*
 
 -----
 
