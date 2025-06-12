@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
