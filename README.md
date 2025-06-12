@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
