@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
