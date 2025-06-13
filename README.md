@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
