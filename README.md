@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
