@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
