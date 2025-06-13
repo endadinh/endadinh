@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
