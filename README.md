@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Lao Tzu ___</b>*
 
 -----
 
