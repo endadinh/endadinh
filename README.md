@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
