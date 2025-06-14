@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Alucard ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
