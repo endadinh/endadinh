@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
