@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
