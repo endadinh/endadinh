@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
