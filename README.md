@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
