@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" “A lesson without pain is meaningless. That’s because no one can gain without sacrificing something. But by enduring that pain and overcoming it, he shall obtain a powerful, unmatched heart. "</i></h5>**
+**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
 
-*<b>___ Edward Elric  ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
