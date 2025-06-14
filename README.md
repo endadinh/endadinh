@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
