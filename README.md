@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
