@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
