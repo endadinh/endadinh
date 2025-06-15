@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
