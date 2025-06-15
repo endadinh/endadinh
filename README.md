@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Roronoa Zoro ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
