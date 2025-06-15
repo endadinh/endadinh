@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
+**<h5><i>" You become what you believe. "</i></h5>**
 
-*<b>___ Maimonides ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
