@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
