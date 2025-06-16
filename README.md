@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ Clare ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
