@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
