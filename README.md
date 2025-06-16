@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
