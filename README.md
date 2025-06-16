@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Rosa Parks ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
