@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
