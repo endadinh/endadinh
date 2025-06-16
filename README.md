@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
