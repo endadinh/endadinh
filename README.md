@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
+**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Yuuji Kazami ___</b>*
 
 -----
 
