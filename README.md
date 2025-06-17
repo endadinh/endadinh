@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
