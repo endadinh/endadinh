@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
