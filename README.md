@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
