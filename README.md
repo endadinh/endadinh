@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Saber ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
