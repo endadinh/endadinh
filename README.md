@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
