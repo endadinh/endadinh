@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Shintar Midorima ___</b>*
 
 -----
 
