@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
+**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
 
-*<b>___ Mavis Vermillion ___</b>*
+*<b>___ Alucard ___</b>*
 
 -----
 
