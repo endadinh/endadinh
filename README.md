@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
