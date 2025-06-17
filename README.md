@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Matsumoto Rangiku ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
