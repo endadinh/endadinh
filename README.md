@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
