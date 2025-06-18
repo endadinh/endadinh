@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
