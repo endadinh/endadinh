@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
+**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Matsumoto Rangiku ___</b>*
 
 -----
 
