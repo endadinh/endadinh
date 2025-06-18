@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Sir Claus Moser ___</b>*
 
 -----
 
