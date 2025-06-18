@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Jesse Owens ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
