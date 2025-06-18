@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Sebastian Michaelis ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
