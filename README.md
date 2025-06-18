@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Jesus ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
