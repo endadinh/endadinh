@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
+**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
 
-*<b>___ Les Brown ___</b>*
+*<b>___ Don Quixote Doflamingo ___</b>*
 
 -----
 
