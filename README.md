@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
