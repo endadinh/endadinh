@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
+**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
