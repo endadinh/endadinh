@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
