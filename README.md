@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
