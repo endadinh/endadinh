@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
