@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
