@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
