@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
