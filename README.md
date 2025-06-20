@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Seishuu Handa ___</b>*
 
 -----
 
