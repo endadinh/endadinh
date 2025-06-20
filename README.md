@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
