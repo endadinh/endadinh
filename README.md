@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
+**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Canaan ___</b>*
 
 -----
 
