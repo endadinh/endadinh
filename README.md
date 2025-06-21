@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
