@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
