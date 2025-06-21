@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
