@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
+**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
 
-*<b>___ Abigail Van Buren ___</b>*
+*<b>___ Rosa Parks ___</b>*
 
 -----
 
