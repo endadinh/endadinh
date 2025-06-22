@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
+**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
 
-*<b>___ Abigail Van Buren ___</b>*
+*<b>___ Miche Zacharius ___</b>*
 
 -----
 
