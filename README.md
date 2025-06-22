@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ Maka Albarn ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
