@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
