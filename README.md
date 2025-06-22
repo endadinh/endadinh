@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
+**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
 
-*<b>___ Alucard ___</b>*
+*<b>___ Sir Claus Moser ___</b>*
 
 -----
 
