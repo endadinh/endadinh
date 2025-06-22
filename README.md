@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
