@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
