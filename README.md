@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Don Quixote Doflamingo ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
