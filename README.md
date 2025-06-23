@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
