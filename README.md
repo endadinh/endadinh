@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything has beauty, but not everyone can see. "</i></h5>**
+**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Satsuki Kiryuuin ___</b>*
 
 -----
 
