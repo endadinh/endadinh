@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
+**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
 
-*<b>___ Ichigo Kurosaki ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
