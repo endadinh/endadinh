@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
+**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
 
-*<b>___ Keiichi Maebara ___</b>*
+*<b>___ Les Brown ___</b>*
 
 -----
 
