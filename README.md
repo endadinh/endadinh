@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Anais Nin ___</b>*
 
 -----
 
