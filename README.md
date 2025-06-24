@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
