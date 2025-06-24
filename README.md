@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
