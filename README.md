@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Milly Thompson ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
