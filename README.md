@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Yato ___</b>*
 
 -----
 
