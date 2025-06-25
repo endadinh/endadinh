@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
