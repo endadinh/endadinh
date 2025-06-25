@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
