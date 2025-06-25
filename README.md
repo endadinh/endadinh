@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
+**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Julis Alexia Van Riessfeld ___</b>*
 
 -----
 
