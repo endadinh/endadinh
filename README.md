@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
+**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Kanade Jinguuji ___</b>*
 
 -----
 
