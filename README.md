@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
