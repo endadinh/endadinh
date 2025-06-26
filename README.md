@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Shintar Midorima ___</b>*
 
 -----
 
