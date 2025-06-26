@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
