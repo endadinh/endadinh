@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
