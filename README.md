@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
