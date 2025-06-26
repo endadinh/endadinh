@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
+**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
 
-*<b>___ Yato ___</b>*
+*<b>___ Vincent Van Gogh ___</b>*
 
 -----
 
