@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
