@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
