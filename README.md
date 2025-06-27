@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
