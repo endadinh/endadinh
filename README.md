@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
