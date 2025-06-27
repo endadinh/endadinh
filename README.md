@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
