@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Latin Proverb ___</b>*
 
 -----
 
