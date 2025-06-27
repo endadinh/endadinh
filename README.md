@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
