@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
