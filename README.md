@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
