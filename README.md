@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Rider ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
