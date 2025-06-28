@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
+**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
