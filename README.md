@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
