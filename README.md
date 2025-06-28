@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Mavis Vermillion ___</b>*
 
 -----
 
