@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Wayne Gretzky ___</b>*
 
 -----
 
