@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
