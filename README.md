@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Might Guy ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
