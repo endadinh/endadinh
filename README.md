@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
+**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
