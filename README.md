@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
