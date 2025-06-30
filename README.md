@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Bill Cosby ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
