@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
