@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
