@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
