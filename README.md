@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
