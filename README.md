@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
+**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
 
-*<b>___ Ann Landers ___</b>*
+*<b>___ Renton Thurston ___</b>*
 
 -----
 
