@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Matsumoto Rangiku ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
