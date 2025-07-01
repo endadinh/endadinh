@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
