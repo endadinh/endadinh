@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Canaan ___</b>*
 
 -----
 
