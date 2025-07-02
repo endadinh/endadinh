@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Canaan ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
