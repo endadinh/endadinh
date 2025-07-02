@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Maka Albarn ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
