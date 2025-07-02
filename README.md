@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" We become what we think about. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Earl Nightingale ___</b>*
 
 -----
 
