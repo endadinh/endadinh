@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
+**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Touko Aozaki ___</b>*
 
 -----
 
