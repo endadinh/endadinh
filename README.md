@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
