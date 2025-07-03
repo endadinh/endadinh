@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ George Addair ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
