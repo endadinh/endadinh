@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ George Addair ___</b>*
 
 -----
 
