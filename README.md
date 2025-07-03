@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Miche Zacharius ___</b>*
 
 -----
 
