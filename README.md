@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Akame ___</b>*
 
 -----
 
