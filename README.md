@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
