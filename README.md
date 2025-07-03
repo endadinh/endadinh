@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
