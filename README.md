@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
+**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
