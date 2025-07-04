@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Maka Albarn ___</b>*
 
 -----
 
