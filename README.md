@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
