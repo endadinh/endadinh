@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
