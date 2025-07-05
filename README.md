@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
