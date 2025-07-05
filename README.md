@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
