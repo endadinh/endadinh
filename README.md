@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
