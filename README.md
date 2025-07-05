@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ –Audrey Hepburn ___</b>*
 
 -----
 
