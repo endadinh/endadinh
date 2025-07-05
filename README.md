@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
+**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Nobito ___</b>*
 
 -----
 
