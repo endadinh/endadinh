@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
