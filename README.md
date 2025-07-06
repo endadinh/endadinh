@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
