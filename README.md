@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
+**<h5><i>" We become what we think about. "</i></h5>**
 
-*<b>___ Might Guy ___</b>*
+*<b>___ Earl Nightingale ___</b>*
 
 -----
 
