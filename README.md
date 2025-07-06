@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Mae Jemison ___</b>*
+*<b>___ Himura Kenshin ___</b>*
 
 -----
 
