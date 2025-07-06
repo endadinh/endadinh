@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Deneil Young ___</b>*
 
 -----
 
