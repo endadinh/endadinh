@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
