@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
