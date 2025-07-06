@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
+**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
 
-*<b>___ Ymir ___</b>*
+*<b>___ Kagome ___</b>*
 
 -----
 
