@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Erwin Smith ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
