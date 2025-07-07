@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
