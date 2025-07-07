@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
+**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Buddha ___</b>*
 
 -----
 
