@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Shintar Midorima ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
