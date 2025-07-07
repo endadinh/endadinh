@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
+**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Armin Arlelt ___</b>*
 
 -----
 
