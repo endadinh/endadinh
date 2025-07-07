@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
