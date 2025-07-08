@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
