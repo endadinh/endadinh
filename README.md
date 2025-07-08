@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
+**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___  Ancient Indian Proverb ___</b>*
 
 -----
 
