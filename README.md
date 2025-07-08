@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
