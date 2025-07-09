@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
+**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
 
-*<b>___ Mae Jemison ___</b>*
+*<b>___ Erwin Smith ___</b>*
 
 -----
 
