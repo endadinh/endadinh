@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
