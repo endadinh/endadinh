@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
+**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Hange Zoë ___</b>*
 
 -----
 
