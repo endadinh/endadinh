@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
+**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
 
-*<b>___ Izuku Midoriya ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
