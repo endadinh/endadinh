@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
