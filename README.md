@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Roronoa Zoro ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
