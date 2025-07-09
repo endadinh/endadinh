@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
