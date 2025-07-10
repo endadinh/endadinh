@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
+**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Might Guy ___</b>*
 
 -----
 
