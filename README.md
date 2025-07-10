@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
