@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
+**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Rock Lee ___</b>*
 
 -----
 
