@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Japanese Proverb ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
