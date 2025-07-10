@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
