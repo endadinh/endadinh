@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Shintar Midorima ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
