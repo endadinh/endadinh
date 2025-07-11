@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Saber ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
