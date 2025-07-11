@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
