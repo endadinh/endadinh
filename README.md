@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
