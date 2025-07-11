@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
