@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Alibaba Saluja ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
