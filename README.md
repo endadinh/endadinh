@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
+**<h5><i>" Do not think about other things, there is only one thing you can do. So master that one thing. Do not forget. What you must imagine is always that you, yourself, are the strongest. You do not need outside enemies. For you, the one you have to fight is none other than your own image. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Archer ___</b>*
 
 -----
 
