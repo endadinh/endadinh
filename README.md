@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Yuuya Mochizuki ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
