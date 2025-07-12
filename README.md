@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
