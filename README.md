@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
