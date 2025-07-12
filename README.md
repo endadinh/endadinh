@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
