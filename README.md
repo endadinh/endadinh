@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
