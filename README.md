@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
 
-*<b>___ Lao Tzu ___</b>*
+*<b>___ Bill Cosby ___</b>*
 
 -----
 
