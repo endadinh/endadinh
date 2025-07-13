@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Kenny Ackerman ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
