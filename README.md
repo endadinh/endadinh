@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
