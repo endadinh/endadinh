@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Renton Thurston ___</b>*
 
 -----
 
