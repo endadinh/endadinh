@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Ichigo Kurosaki ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
