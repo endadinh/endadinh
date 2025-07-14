@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Might Guy ___</b>*
 
 -----
 
