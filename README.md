@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
+**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Fuegoleon Vermillion ___</b>*
+*<b>___ Shintar Midorima ___</b>*
 
 -----
 
