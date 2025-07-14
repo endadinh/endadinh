@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
