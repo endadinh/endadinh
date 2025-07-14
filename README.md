@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
