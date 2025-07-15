@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Mikasa ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
