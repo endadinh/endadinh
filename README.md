@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Ann Landers ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
