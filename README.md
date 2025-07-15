@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
