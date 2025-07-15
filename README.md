@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
