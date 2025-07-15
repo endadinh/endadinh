@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
+**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
 
-*<b>___ Mitsuyoshi Anzai ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
