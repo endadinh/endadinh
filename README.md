@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
+**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
 
-*<b>___ Kenny Ackerman ___</b>*
+*<b>___ Roger Staubach ___</b>*
 
 -----
 
