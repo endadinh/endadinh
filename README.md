@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Ann Landers ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
