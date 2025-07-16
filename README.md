@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
