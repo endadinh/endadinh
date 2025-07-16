@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
