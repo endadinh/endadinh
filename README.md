@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
