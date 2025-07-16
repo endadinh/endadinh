@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
