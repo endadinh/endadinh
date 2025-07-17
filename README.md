@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Touko Aozaki ___</b>*
 
 -----
 
