@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Princess Lenessia ___</b>*
 
 -----
 
