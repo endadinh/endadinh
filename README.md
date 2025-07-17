@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
