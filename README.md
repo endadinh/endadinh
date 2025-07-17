@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
