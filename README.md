@@ -29,7 +29,7 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
 
 *<b>___ Chinese Proverb ___</b>*
 
