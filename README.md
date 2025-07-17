@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
+**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Levi Ackerman ___</b>*
 
 -----
 
