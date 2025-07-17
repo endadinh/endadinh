@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
