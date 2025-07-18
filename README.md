@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
+**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Beverly Sills ___</b>*
 
 -----
 
