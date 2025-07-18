@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don’t desire, but they’re inevitable, we have to face them. It’s what being human is all about. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Jet Black ___</b>*
 
 -----
 
