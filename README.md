@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Milly Thompson ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
