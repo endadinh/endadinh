@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
+**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
