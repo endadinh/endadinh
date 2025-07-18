@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
