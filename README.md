@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
