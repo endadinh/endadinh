@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
