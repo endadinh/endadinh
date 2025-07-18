@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Erza Scarlet ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
