@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
