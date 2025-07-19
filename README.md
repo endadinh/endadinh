@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife. "</i></h5>**
+**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
 
-*<b>___ Paine ___</b>*
+*<b>___ Erwin Smith ___</b>*
 
 -----
 
