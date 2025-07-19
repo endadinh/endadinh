@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Paine ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
