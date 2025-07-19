@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
