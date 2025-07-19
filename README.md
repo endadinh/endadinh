@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
