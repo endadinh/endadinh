@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Akame ___</b>*
 
 -----
 
