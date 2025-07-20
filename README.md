@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
