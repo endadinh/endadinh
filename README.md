@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
