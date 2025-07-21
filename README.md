@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
