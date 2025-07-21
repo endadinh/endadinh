@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
