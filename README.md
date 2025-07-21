@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
