@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
+**<h5><i>" The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Jesse Owens ___</b>*
 
 -----
 
