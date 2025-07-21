@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Wayne Gretzky ___</b>*
 
 -----
 
