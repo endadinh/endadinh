@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Erwin Smith ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
