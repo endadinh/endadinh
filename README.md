@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
+**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
 
-*<b>___ Clare ___</b>*
+*<b>___ Erma Bombeck ___</b>*
 
 -----
 
