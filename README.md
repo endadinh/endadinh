@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
