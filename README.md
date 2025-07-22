@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
+**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Fuegoleon Vermillion ___</b>*
 
 -----
 
