@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
+**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
 
-*<b>___ Maka Albarn ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
