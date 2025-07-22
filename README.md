@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Walter Bagehot ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
