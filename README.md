@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Rider ___</b>*
 
 -----
 
