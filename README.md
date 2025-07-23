@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
