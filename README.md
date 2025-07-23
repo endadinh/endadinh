@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
