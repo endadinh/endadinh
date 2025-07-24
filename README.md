@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
