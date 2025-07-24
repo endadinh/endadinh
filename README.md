@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
