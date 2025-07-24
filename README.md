@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Jesus ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
