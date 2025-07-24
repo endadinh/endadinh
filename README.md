@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
