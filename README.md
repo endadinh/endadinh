@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
