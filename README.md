@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
