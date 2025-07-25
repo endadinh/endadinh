@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
+**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
