@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you! "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Son Goku ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
