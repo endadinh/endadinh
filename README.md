@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
