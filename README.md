@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
