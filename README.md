@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
