@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Keiichi Maebara ___</b>*
 
 -----
 
