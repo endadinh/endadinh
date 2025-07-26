@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Buddha ___</b>*
 
 -----
 
