@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
