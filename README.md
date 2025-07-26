@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
+**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
