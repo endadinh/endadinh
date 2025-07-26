@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
