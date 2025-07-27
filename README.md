@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
