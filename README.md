@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
