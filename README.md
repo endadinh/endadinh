@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
