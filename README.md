@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
+**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
 
-*<b>___ Nico Robin ___</b>*
+*<b>___ Nobito ___</b>*
 
 -----
 
