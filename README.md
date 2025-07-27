@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
