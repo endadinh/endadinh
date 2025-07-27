@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" We become what we think about. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Earl Nightingale ___</b>*
 
 -----
 
