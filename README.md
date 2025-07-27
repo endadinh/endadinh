@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Don Quixote Doflamingo ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
