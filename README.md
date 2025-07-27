@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
