@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
