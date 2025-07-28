@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
