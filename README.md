@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
