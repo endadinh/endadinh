@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
+**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
