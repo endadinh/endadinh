@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
