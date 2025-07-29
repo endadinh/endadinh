@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
