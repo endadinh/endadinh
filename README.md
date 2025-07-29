@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
+**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
 
-*<b>___ Ann Landers ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
