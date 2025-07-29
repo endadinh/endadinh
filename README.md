@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
