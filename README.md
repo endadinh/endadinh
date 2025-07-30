@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever. "</i></h5>**
+**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
 
-*<b>___ Hitsugaya Toshiro ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
