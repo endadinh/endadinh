@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
+**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
 
-*<b>___ Jim Rohn ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
