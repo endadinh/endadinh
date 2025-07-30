@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Simon ___</b>*
 
 -----
 
