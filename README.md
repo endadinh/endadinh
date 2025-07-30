@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
