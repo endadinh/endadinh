@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
+**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Kagome ___</b>*
 
 -----
 
