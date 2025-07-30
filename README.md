@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
