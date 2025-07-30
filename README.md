@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
+**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
 
-*<b>___ Keiichi Maebara ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
