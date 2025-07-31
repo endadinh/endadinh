@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
