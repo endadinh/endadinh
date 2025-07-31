@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An unexamined life is not worth living. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
