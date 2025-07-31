@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
+**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
 
-*<b>___ Simon ___</b>*
+*<b>___ Rock Lee ___</b>*
 
 -----
 
