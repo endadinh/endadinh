@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" Dream big and dare to fail. "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Norman Vaughan ___</b>*
 
 -----
 
