@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
+**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
 
-*<b>___ George Addair ___</b>*
+*<b>___ Alucard ___</b>*
 
 -----
 
