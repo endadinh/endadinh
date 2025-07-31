@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Roronoa Zoro ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
