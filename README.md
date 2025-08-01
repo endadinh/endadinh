@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
