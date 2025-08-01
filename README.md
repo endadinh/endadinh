@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
