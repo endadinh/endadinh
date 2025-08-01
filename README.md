@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end. "</i></h5>**
+**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Ymir ___</b>*
 
 -----
 
