@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Gilgamesh ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
