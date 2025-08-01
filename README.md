@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
+**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
 
-*<b>___ Erza Scarlet ___</b>*
+*<b>___ Rosa Parks ___</b>*
 
 -----
 
