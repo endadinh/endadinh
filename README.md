@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
