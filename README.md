@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
