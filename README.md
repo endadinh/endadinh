@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Rosa Parks ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
