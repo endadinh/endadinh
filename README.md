@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
