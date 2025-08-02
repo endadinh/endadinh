@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
