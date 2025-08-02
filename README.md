@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Julis Alexia Van Riessfeld ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
