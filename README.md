@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
