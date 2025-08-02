@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
