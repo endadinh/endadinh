@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Canaan ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
