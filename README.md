@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Julis Alexia Van Riessfeld ___</b>*
 
 -----
 
