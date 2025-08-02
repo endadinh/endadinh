@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
