@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
