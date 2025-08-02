@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
