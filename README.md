@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Himura Kenshin ___</b>*
 
 -----
 
