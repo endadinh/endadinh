@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
