@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
+**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
