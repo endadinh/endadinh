@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
+**<h5><i>" The two most important days in your life are the day you are born and the day you find out why. "</i></h5>**
 
-*<b>___ Nico Robin ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
