@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
