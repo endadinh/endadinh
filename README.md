@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Keima Katsuragi ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
