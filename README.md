@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
