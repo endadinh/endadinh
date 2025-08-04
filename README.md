@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
 
-*<b>___ Armin Arlelt ___</b>*
+*<b>___ Nico Robin ___</b>*
 
 -----
 
