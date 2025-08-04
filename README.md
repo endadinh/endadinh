@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Walter Bagehot ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
