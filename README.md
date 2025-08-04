@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
