@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Renton Thurston ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
