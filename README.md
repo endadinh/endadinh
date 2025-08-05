@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
