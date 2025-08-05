@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
