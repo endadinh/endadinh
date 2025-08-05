@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
