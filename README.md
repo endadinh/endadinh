@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Jesus ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
