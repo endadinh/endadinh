@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Ichigo Kurosaki ___</b>*
 
 -----
 
