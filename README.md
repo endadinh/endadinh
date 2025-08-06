@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
