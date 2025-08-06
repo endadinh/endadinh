@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
