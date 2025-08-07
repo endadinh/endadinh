@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
+**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
 
-*<b>___ Shiroe ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
