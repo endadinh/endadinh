@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Renton Thurston ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
