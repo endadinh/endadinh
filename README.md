@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
