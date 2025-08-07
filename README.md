@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
