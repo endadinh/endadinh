@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
