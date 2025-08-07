@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Gildarts Clive ___</b>*
 
 -----
 
