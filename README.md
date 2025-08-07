@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Gildarts Clive ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
