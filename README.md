@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ Satsuki Kiryuuin ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
