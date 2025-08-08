@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light. "</i></h5>**
+**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
