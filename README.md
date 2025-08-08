@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
