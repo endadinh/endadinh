@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Ichigo Kurosaki ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
