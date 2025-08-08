@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
