@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Grimsley ___</b>*
 
 -----
 
