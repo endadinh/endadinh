@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
