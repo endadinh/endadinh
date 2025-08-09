@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
