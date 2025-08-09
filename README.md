@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
