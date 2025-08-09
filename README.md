@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Yato ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
