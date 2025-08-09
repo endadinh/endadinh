@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
