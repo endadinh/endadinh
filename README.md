@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Miche Zacharius ___</b>*
 
 -----
 
