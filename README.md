@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Maka Albarn ___</b>*
 
 -----
 
