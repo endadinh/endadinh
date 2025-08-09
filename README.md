@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
