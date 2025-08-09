@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
