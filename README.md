@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
+**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
 
-*<b>___ Walter Bagehot ___</b>*
+*<b>___ Miss Kobayashi ___</b>*
 
 -----
 
