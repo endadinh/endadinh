@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
