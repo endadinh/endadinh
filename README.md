@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
+**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
 
-*<b>___ Mavis Vermillion ___</b>*
+*<b>___ Matsumoto Rangiku ___</b>*
 
 -----
 
