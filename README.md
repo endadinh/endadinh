@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
+**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Yato ___</b>*
 
 -----
 
