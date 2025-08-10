@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
