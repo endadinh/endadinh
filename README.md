@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Miss Kobayashi ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
