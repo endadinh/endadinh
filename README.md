@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
+**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
 
-*<b>___ George Addair ___</b>*
+*<b>___ Mae Jemison ___</b>*
 
 -----
 
