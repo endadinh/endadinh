@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
