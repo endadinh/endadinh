@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
