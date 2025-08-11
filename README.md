@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An unexamined life is not worth living. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
