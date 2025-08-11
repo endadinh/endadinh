@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Satsuki Kiryuuin ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
