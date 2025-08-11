@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
