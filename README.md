@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
+**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
 
-*<b>___ Wayne Gretzky ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
