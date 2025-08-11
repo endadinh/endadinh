@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Armin Arlelt ___</b>*
 
 -----
 
