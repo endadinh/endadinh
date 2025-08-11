@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Bill Cosby ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
