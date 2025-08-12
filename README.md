@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
+**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Matsumoto Rangiku ___</b>*
 
 -----
 
