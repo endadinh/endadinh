@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
+**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
 
-*<b>___ Bill Cosby ___</b>*
+*<b>___ Mae Jemison ___</b>*
 
 -----
 
