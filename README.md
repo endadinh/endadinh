@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
