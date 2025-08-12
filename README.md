@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
