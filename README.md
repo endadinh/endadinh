@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
