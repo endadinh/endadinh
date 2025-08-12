@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Erza Scarlet ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
