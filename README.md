@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
