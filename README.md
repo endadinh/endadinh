@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
