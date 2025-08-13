@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
