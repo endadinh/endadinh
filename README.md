@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
