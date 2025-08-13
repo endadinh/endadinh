@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Himura Kenshin ___</b>*
 
 -----
 
