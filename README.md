@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Fuegoleon Vermillion ___</b>*
 
 -----
 
