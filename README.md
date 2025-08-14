@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
