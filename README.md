@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Simon ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
