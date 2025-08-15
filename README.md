@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
