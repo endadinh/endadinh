@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
