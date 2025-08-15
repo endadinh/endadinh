@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Abigail Van Buren ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
