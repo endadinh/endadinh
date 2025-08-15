@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ –Audrey Hepburn ___</b>*
 
 -----
 
