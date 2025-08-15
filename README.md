@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
