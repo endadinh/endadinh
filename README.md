@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
