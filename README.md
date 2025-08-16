@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
