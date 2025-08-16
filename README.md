@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
