@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
+**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
 
-*<b>___ Ichigo Kurosaki ___</b>*
+*<b>___ Gilgamesh ___</b>*
 
 -----
 
