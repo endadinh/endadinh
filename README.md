@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
