@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
