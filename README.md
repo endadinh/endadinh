@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ Hange Zoë ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
