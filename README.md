@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ George Addair ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
