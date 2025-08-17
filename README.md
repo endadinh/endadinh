@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
+**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Touko Aozaki ___</b>*
 
 -----
 
