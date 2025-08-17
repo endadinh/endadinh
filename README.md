@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
