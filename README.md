@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Roger Staubach ___</b>*
 
 -----
 
