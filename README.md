@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
+**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
 
-*<b>___ Maimonides ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
