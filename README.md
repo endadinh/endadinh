@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
+**<h5><i>" When I was 5 years old, my mother always told me that happiness was the key to life.  When I went to school, they asked me what I wanted to be when I grew up.  I wrote down ‘happy’.  They told me I didn’t understand the assignment, and I told them they didn’t understand life. "</i></h5>**
 
-*<b>___ Erwin Smith ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
