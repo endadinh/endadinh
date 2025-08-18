@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
