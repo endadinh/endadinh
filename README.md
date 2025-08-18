@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
