@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Don Quixote Doflamingo ___</b>*
 
 -----
 
