@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Bob Dylan ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
