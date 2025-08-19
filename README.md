@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Rosa Parks ___</b>*
 
 -----
 
