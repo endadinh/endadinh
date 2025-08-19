@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
