@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
+**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
 
-*<b>___ Maimonides ___</b>*
+*<b>___ Clare ___</b>*
 
 -----
 
