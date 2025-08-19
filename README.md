@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
