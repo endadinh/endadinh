@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
