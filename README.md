@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
