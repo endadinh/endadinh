@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Yuuji Kazami ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
