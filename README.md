@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Akame ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
