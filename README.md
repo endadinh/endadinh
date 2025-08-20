@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
