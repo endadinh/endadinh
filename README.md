@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
