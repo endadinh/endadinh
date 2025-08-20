@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
+**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
 
-*<b>___ Akame ___</b>*
+*<b>___ Rider ___</b>*
 
 -----
 
