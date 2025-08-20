@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
