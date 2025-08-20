@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
