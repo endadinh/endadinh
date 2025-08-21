@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
