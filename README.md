@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
