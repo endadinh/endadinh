@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Nagato ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
