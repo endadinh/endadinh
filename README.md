@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
