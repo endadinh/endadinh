@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
