@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Abigail Van Buren ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
