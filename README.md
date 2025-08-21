@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
