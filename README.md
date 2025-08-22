@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
