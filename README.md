@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
