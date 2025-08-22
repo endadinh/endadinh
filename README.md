@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Akame ___</b>*
 
 -----
 
