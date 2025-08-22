@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" We become what we think about. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Earl Nightingale ___</b>*
 
 -----
 
