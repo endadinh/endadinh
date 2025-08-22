@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
