@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Milly Thompson ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
