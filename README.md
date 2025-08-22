@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Rosa Parks ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
