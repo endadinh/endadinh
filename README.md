@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
