@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
