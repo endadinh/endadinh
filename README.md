@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
