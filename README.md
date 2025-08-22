@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
