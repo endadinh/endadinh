@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
