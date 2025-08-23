@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
