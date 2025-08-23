@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
