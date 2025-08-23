@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
+**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Nobito ___</b>*
 
 -----
 
