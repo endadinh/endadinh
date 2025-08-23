@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
+**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
 
-*<b>___ Alibaba Saluja ___</b>*
+*<b>___ Mae Jemison ___</b>*
 
 -----
 
