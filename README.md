@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
