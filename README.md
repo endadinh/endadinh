@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
