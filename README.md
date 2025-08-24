@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Ymir ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
