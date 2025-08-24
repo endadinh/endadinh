@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
