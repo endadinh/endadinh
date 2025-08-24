@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
