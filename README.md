@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Grimsley ___</b>*
 
 -----
 
