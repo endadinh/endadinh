@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
+**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Shoyo Hinata ___</b>*
 
 -----
 
