@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
+**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
