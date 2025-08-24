@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Bill Cosby ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
