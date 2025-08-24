@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
