@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Don Quixote Doflamingo ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
