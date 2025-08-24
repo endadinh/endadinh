@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
