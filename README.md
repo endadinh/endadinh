@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Walter Bagehot ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
