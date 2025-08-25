@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
