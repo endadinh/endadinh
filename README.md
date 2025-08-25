@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Bill Cosby ___</b>*
 
 -----
 
