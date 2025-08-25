@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
