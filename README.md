@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
+**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
 
-*<b>___ Nico Robin ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
