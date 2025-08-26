@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
