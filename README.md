@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
