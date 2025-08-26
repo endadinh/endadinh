@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Jesus ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
