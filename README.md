@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
+**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
 
-*<b>___ Japanese Proverb ___</b>*
+*<b>___ Sheryl Sandberg ___</b>*
 
 -----
 
