@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
