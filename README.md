@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
+**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Deneil Young ___</b>*
 
 -----
 
