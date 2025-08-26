@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
