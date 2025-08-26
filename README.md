@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
