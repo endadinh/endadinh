@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
