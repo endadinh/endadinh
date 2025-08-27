@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
+**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
 
-*<b>___ Lao Tzu ___</b>*
+*<b>___ Deneil Young ___</b>*
 
 -----
 
