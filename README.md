@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
