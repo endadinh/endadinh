@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Erica Jong ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
