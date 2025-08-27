@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
+**<h5><i>" When I let go of what I am, I become what I might be. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Lao Tzu ___</b>*
 
 -----
 
