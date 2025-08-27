@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
