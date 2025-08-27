@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
+**<h5><i>" We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever. "</i></h5>**
 
-*<b>___ Alucard ___</b>*
+*<b>___ Hitsugaya Toshiro ___</b>*
 
 -----
 
