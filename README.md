@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
