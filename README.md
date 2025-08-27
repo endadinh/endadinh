@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
