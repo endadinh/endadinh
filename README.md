@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
