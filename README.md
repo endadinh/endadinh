@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
