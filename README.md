@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
