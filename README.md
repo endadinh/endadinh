@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
+**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Vincent Van Gogh ___</b>*
 
 -----
 
