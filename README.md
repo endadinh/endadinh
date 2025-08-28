@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
