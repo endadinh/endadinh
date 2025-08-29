@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Roronoa Zoro ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
