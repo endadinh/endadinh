@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
