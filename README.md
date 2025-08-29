@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Kunio Yaobi ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
