@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
