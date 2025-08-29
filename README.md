@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Clare ___</b>*
 
 -----
 
