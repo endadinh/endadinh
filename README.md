@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Simon ___</b>*
 
 -----
 
