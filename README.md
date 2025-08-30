@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
