@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
+**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
 
-*<b>___ Shiroe ___</b>*
+*<b>___ Kagome ___</b>*
 
 -----
 
