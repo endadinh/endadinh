@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
