@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
