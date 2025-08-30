@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
