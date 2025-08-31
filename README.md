@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
