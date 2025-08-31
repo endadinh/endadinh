@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
+**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Kunio Yaobi ___</b>*
 
 -----
 
