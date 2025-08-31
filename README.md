@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
