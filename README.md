@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Vince Lombardi ___</b>*
 
 -----
 
