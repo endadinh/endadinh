@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
