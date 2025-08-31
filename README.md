@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Erica Jong ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
