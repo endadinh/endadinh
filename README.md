@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
