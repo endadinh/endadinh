@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
