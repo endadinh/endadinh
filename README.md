@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
