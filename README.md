@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
