@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
