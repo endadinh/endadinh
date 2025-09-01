@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
+**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Mae Jemison ___</b>*
 
 -----
 
