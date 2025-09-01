@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Les Brown ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
