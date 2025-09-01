@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
