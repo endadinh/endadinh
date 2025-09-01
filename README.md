@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Maka Albarn ___</b>*
 
 -----
 
