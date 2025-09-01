@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
