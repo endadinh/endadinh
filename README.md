@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
