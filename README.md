@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Les Brown ___</b>*
 
 -----
 
