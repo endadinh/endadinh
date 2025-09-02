@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
+**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
 
-*<b>___ Matsumoto Rangiku ___</b>*
+*<b>___ Keima Katsuragi ___</b>*
 
 -----
 
