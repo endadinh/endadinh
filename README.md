@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
