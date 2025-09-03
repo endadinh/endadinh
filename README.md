@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
 
-*<b>___ Izuku Midoriya ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
