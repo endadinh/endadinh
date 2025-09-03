@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
