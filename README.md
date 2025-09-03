@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
