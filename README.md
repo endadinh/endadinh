@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Maka Albarn ___</b>*
 
 -----
 
