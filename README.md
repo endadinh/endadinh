@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You become what you believe. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
