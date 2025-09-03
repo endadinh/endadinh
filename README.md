@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
