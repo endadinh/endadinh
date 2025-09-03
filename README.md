@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
