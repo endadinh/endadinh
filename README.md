@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
