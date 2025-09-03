@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Nagato ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
