@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
+**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
