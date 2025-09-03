@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
