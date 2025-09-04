@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Shintar Midorima ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
