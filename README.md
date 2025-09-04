@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
