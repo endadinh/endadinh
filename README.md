@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Kagome ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
