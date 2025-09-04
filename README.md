@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
