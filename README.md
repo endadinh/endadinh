@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" Everything has beauty, but not everyone can see. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
