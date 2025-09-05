@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
