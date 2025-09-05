@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
