@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life. "</i></h5>**
+**<h5><i>" I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you! "</i></h5>**
 
-*<b>___ Mion Sonozaki ___</b>*
+*<b>___ Son Goku ___</b>*
 
 -----
 
