@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
