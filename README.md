@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Alibaba Saluja ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
