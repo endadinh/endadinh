@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
+**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
 
-*<b>___ Alibaba Saluja ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
