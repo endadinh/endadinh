@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Maimonides ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
