@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
