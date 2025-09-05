@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
