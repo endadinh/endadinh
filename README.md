@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Yuuji Kazami ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
