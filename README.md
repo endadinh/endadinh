@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
