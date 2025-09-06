@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
