@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" An unexamined life is not worth living. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
