@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
