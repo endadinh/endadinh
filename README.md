@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
