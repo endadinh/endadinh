@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
+**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
 
-*<b>___ Kenny Ackerman ___</b>*
+*<b>___ Yuuji Kazami ___</b>*
 
 -----
 
