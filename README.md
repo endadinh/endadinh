@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
