@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
