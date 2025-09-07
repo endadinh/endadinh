@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
