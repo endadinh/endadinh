@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
