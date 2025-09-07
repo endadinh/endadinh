@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Simon ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
