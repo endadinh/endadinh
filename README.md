@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
+**<h5><i>" You become what you believe. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
