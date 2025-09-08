@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
+**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
 
-*<b>___ Japanese Proverb ___</b>*
+*<b>___ Shoyo Hinata ___</b>*
 
 -----
 
