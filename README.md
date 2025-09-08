@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
