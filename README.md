@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Yuuji Kazami ___</b>*
 
 -----
 
