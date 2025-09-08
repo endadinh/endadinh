@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
