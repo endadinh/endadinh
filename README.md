@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
