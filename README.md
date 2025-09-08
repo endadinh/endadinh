@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
