@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Renton Thurston ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
