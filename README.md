@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Yuuji Kazami ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
