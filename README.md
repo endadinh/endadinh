@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Ichigo Kurosaki ___</b>*
 
 -----
 
