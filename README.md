@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
