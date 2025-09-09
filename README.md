@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
