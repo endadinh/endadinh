@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Julis Alexia Van Riessfeld ___</b>*
 
 -----
 
