@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light. "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Plato ___</b>*
 
 -----
 
