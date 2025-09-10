@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt? "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Yuuji Kazami ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
