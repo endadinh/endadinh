@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you! "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Son Goku ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
