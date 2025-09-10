@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Hange Zoë ___</b>*
 
 -----
 
