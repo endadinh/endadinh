@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
