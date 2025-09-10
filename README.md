@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Armin Arlelt ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
