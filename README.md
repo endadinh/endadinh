@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
