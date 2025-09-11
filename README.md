@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Gilgamesh ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
