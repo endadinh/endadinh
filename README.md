@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Anais Nin ___</b>*
 
 -----
 
