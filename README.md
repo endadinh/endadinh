@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Canaan ___</b>*
 
 -----
 
