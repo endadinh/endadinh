@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
+**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
 
-*<b>___ Shiroe ___</b>*
+*<b>___ Norman Vincent Peale ___</b>*
 
 -----
 
