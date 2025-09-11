@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
