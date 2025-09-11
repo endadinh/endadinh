@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
