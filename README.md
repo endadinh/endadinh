@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
