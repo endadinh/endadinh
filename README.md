@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
+**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
 
-*<b>___ Might Guy ___</b>*
+*<b>___ Keiichi Maebara ___</b>*
 
 -----
 
