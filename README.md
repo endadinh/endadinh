@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Keiichi Maebara ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
