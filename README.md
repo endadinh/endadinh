@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Religion, ideology, resources, land, spite, love or just because… No matter how pathetic the reason, it’s enough to start a war. War will never cease to exist… reasons can be thought up after the fact… Human nature pursues strife. "</i></h5>**
+**<h5><i>" Anything can happen. No one ever thinks it will until it does. What will happen, happens. That’s how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it. "</i></h5>**
 
-*<b>___ Paine ___</b>*
+*<b>___ Kyousuke Natsume ___</b>*
 
 -----
 
