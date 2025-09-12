@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Bill Cosby ___</b>*
 
 -----
 
