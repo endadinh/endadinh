@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
