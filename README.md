@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
