@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Rider ___</b>*
 
 -----
 
