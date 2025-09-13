@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
