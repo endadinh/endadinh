@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Izuku Midoriya ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
