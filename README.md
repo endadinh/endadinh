@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
