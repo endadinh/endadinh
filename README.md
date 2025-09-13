@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
