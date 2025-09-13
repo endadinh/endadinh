@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
