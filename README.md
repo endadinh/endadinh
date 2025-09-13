@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
