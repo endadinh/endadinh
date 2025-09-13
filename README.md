@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
