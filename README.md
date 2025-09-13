@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
+**<h5><i>" Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don’t desire, but they’re inevitable, we have to face them. It’s what being human is all about. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Jet Black ___</b>*
 
 -----
 
