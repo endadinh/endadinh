@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
