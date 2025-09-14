@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Rider ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
