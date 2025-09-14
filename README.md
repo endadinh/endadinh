@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
+**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Rider ___</b>*
 
 -----
 
