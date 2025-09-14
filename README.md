@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
