@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
