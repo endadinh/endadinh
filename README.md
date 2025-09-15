@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
+**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Julis Alexia Van Riessfeld ___</b>*
 
 -----
 
