@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Nico Robin ___</b>*
 
 -----
 
