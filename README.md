@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
