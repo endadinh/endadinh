@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
