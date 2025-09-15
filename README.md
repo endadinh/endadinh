@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
+**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
 
-*<b>___ Nico Robin ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
