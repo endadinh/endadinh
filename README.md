@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
