@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
