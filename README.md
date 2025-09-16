@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ John Lennon ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
