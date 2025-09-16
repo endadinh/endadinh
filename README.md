@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
