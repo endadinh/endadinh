@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
+**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
 
-*<b>___ Bob Dylan ___</b>*
+*<b>___ Renton Thurston ___</b>*
 
 -----
 
