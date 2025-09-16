@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Nobito ___</b>*
 
 -----
 
