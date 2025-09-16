@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
