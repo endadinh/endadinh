@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
