@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
+**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
 
-*<b>___ Johann Wolfgang von Goethe ___</b>*
+*<b>___ Bob Dylan ___</b>*
 
 -----
 
