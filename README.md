@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
