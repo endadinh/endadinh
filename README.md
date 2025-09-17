@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
