@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Alucard ___</b>*
 
 -----
 
