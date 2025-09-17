@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An unexamined life is not worth living. "</i></h5>**
+**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Keiichi Maebara ___</b>*
 
 -----
 
