@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
+**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Hatsu Kominato ___</b>*
 
 -----
 
