@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Mavis Vermillion ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
