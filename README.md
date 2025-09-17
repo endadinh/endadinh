@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Don Quixote Doflamingo ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
