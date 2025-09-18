@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
