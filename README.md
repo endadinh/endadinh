@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
