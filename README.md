@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Armin Arlelt ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
