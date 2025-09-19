@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
