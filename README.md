@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
+**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Rosa Parks ___</b>*
 
 -----
 
