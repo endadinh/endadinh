@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ Kanade Jinguuji ___</b>*
 
 -----
 
