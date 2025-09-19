@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
+**<h5><i>" The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Jesse Owens ___</b>*
 
 -----
 
