@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
