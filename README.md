@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
