@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ –Audrey Hepburn ___</b>*
 
 -----
 
