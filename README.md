@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
+**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
