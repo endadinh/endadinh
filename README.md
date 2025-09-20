@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
+**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
 
-*<b>___ Milly Thompson ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
