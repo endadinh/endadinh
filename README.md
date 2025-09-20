@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Alice Walker ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
