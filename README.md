@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
