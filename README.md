@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
