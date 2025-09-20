@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
