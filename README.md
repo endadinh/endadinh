@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Nobito ___</b>*
 
 -----
 
