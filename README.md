@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
