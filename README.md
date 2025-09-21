@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
