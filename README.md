@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Archer ___</b>*
 
 -----
 
