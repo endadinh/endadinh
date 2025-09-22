@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
+**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
 
-*<b>___ Matsumoto Rangiku ___</b>*
+*<b>___ Miss Kobayashi ___</b>*
 
 -----
 
