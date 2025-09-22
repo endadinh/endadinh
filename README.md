@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Mitsuyoshi Anzai ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
