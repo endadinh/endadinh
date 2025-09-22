@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward. "</i></h5>**
+**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Kagome ___</b>*
 
 -----
 
