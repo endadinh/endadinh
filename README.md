@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
