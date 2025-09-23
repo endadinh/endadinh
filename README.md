@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
