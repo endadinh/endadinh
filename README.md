@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
 
-*<b>___ Saber ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
