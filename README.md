@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
+**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
 
-*<b>___ Woody Allen ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
