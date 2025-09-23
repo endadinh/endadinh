@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
