@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
