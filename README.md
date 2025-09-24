@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
