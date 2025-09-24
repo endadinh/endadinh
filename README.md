@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
