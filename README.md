@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
