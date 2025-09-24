@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
+**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
 
-*<b>___ Christopher Columbus ___</b>*
+*<b>___ Sheryl Sandberg ___</b>*
 
 -----
 
