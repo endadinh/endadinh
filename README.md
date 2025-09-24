@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
+**<h5><i>" Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward. "</i></h5>**
 
-*<b>___ Gildarts Clive ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
