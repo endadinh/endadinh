@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Yuuya Mochizuki ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
