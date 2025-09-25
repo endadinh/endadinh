@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Levi Ackerman ___</b>*
 
 -----
 
