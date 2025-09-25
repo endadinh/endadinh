@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
+**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___  Ancient Indian Proverb ___</b>*
 
 -----
 
