@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
