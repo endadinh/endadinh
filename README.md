@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
