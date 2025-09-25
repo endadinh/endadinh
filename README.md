@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
