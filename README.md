@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You become what you believe. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
