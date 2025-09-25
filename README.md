@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
