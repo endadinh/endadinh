@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An unexamined life is not worth living. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Socrates ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
