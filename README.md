@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Erza Scarlet ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
