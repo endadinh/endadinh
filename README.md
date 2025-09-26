@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Ichigo Kurosaki ___</b>*
 
 -----
 
