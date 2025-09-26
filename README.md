@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
