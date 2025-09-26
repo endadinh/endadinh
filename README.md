@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
