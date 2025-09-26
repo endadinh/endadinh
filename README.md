@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Armin Arlelt ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
