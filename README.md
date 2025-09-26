@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
