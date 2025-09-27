@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
+**<h5><i>" Life is what happens to you while you’re busy making other plans. "</i></h5>**
 
-*<b>___ Akame ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
