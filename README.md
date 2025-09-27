@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
+**<h5><i>" “A lesson without pain is meaningless. That’s because no one can gain without sacrificing something. But by enduring that pain and overcoming it, he shall obtain a powerful, unmatched heart. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Edward Elric  ___</b>*
 
 -----
 
