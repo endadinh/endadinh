@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Princess Lenessia ___</b>*
 
 -----
 
