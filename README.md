@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
