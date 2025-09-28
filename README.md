@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
