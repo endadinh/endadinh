@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
