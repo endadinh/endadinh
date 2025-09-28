@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
+**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
 
-*<b>___ Canaan ___</b>*
+*<b>___ Erica Jong ___</b>*
 
 -----
 
