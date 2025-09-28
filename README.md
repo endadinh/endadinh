@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Clare ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
