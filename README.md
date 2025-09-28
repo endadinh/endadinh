@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
