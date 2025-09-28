@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
+**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
 
-*<b>___ Ann Landers ___</b>*
+*<b>___ Clare ___</b>*
 
 -----
 
