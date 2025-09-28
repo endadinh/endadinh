@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
