@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Sir Claus Moser ___</b>*
 
 -----
 
