@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
+**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Hatsu Kominato ___</b>*
 
 -----
 
