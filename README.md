@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
