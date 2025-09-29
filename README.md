@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
