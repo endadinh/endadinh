@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Akame ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
