@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Maka Albarn ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
