@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Hitsugaya Toshiro ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
