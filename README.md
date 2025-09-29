@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
+**<h5><i>" Do not think about other things, there is only one thing you can do. So master that one thing. Do not forget. What you must imagine is always that you, yourself, are the strongest. You do not need outside enemies. For you, the one you have to fight is none other than your own image. "</i></h5>**
 
-*<b>___ Hange Zoë ___</b>*
+*<b>___ Archer ___</b>*
 
 -----
 
