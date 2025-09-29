@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Vincent van Gogh ___</b>*
 
 -----
 
