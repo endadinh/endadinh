@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
