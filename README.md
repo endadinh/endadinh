@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
