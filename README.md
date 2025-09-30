@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The battles that count aren’t the ones for gold medals. The struggles within yourself–the invisible battles inside all of us–that’s where it’s at. "</i></h5>**
+**<h5><i>" You should never give up on life, no matter how you feel. No matter how badly you want to give up. "</i></h5>**
 
-*<b>___ Jesse Owens ___</b>*
+*<b>___ Canaan ___</b>*
 
 -----
 
