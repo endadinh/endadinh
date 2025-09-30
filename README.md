@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
+**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
 
-*<b>___ Wayne Gretzky ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
