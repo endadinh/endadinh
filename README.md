@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Rock Lee ___</b>*
 
 -----
 
