@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
