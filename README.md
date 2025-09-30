@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
+**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
 
-*<b>___ Ymir ___</b>*
+*<b>___ Nico Robin ___</b>*
 
 -----
 
