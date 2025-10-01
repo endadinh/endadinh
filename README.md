@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
