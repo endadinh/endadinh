@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Miss Kobayashi ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
