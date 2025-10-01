@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
+**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
 
-*<b>___ Erica Jong ___</b>*
+*<b>___ Kanade Jinguuji ___</b>*
 
 -----
 
