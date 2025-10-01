@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Mikasa ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
