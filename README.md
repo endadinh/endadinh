@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
