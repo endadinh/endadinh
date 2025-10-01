@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Fuegoleon Vermillion ___</b>*
 
 -----
 
