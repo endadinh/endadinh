@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best revenge is massive success. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Frank Sinatra ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
