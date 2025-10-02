@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Keiichi Maebara ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
