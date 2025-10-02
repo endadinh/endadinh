@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
