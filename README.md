@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Bob Dylan ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
