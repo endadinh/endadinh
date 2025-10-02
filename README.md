@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
+**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
 
-*<b>___ Napoleon Hill ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
