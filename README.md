@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
