@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
