@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
