@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
+**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
