@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
