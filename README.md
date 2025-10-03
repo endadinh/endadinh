@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
