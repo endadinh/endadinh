@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Yato ___</b>*
 
 -----
 
