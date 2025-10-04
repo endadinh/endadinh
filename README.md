@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
