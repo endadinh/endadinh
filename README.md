@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
+**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
 
-*<b>___ Junichirou Kagami ___</b>*
+*<b>___ Marie Curie ___</b>*
 
 -----
 
