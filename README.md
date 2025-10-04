@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Seishuu Handa ___</b>*
 
 -----
 
