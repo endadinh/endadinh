@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
