@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
