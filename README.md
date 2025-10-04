@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
+**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
