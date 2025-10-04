@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
