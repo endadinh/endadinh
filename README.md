@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t fall if you don’t climb.  But there’s no joy in living your whole life on the ground. "</i></h5>**
+**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Keima Katsuragi ___</b>*
 
 -----
 
