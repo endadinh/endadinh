@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
