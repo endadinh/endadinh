@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
