@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Ichigo Kurosaki ___</b>*
 
 -----
 
