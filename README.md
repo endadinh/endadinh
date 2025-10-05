@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Miss Kobayashi ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
