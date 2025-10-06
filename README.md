@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
