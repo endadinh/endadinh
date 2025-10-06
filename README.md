@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light. "</i></h5>**
+**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Ymir ___</b>*
 
 -----
 
