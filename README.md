@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Shintar Midorima ___</b>*
 
 -----
 
