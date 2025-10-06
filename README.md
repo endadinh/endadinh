@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Satsuki Kiryuuin ___</b>*
 
 -----
 
