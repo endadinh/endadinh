@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
+**<h5><i>" The future belongs to those who believe in the beauty of their dreams. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
