@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
