@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
+**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
 
-*<b>___ Roronoa Zoro ___</b>*
+*<b>___ Sheryl Sandberg ___</b>*
 
 -----
 
