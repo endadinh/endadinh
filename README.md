@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
