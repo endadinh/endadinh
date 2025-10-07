@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
