@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
