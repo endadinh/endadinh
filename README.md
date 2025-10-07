@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Deneil Young ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
