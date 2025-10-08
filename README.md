@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" “A lesson without pain is meaningless. That’s because no one can gain without sacrificing something. But by enduring that pain and overcoming it, he shall obtain a powerful, unmatched heart. "</i></h5>**
+**<h5><i>" Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life. "</i></h5>**
 
-*<b>___ Edward Elric  ___</b>*
+*<b>___ Mion Sonozaki ___</b>*
 
 -----
 
