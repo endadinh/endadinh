@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
