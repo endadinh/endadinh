@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
