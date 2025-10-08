@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
+**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
 
-*<b>___ Miss Kobayashi ___</b>*
+*<b>___ Keima Katsuragi ___</b>*
 
 -----
 
