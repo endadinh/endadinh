@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ Allen Walker ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
