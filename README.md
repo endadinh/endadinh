@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Alucard ___</b>*
 
 -----
 
