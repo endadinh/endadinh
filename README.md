@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Buddha ___</b>*
 
 -----
 
