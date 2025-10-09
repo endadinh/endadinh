@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
