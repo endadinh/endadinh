@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
