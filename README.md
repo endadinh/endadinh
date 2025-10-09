@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
+**<h5><i>" If you begin to regret, you’ll dull your future decisions and let others make your choices for you. All that’s left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision. "</i></h5>**
 
-*<b>___ Sebastian Michaelis ___</b>*
+*<b>___ Erwin Smith ___</b>*
 
 -----
 
