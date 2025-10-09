@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Kunio Yaobi ___</b>*
 
 -----
 
