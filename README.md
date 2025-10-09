@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
