@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
