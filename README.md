@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
