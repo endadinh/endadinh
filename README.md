@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___  Ancient Indian Proverb ___</b>*
 
 -----
 
