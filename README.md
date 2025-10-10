@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Keima Katsuragi ___</b>*
 
 -----
 
