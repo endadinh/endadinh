@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Seiya Kanie ___</b>*
 
 -----
 
