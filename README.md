@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
