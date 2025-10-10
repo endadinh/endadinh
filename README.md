@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
