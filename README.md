@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
