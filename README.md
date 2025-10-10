@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
+**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
 
-*<b>___ Saber ___</b>*
+*<b>___ Gildarts Clive ___</b>*
 
 -----
 
