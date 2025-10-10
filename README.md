@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I would rather die of passion than of boredom. "</i></h5>**
+**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
 
-*<b>___ Vincent van Gogh ___</b>*
+*<b>___ Keiichi Maebara ___</b>*
 
 -----
 
