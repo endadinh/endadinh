@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
+**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
 
-*<b>___ Gilgamesh ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
