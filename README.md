@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
