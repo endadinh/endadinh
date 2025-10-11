@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" Dream big and dare to fail. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Norman Vaughan ___</b>*
 
 -----
 
