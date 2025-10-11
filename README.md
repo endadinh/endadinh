@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Miche Zacharius ___</b>*
 
 -----
 
