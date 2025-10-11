@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
+**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Gilgamesh ___</b>*
 
 -----
 
