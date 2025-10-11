@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
+**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
 
-*<b>___ Touko Aozaki ___</b>*
+*<b>___ Renton Thurston ___</b>*
 
 -----
 
