@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
