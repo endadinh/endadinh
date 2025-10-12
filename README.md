@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
