@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
