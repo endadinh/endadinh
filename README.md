@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Walter Bagehot ___</b>*
 
 -----
 
