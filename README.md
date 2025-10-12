@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Armin Arlelt ___</b>*
 
 -----
 
