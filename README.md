@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Plato ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
