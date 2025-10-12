@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
