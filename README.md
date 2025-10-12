@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
