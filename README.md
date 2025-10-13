@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
