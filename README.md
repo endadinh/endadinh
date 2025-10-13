@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Vision is not what your eyes see, but an image that your brain comprehends. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Touko Aozaki ___</b>*
 
 -----
 
