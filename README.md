@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Nagato ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
