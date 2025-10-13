@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
