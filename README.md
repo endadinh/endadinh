@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If There Are Humans Who Can Bring About Change They re Those Who Are Capable Of Abandoning Everything People Who When Required To Surpass Even Monsters Are Capable Of Tossing Aside Their Very Humanity "</i></h5>**
+**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Pablo Picasso ___</b>*
 
 -----
 
