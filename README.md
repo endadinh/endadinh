@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___  Ancient Indian Proverb ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
