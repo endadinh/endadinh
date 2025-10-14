@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
+**<h5><i>" Everything has beauty, but not everyone can see. "</i></h5>**
 
-*<b>___ Kunio Yaobi ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
