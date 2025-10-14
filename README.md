@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
