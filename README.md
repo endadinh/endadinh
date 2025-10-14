@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
