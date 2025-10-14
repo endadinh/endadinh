@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
