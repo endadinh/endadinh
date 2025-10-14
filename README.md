@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
