@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
