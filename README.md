@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
