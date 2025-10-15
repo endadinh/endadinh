@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Deneil Young ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
