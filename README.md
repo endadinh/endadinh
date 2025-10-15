@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" You can never cross the ocean until you have the courage to lose sight of the shore. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Christopher Columbus ___</b>*
 
 -----
 
