@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Simplicity is the easiest path to true beauty. "</i></h5>**
+**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
 
-*<b>___ Seishuu Handa ___</b>*
+*<b>___ Walter Bagehot ___</b>*
 
 -----
 
