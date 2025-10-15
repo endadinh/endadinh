@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Shintar Midorima ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
