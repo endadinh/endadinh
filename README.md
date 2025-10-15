@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
+**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
 
-*<b>___ Walter Bagehot ___</b>*
+*<b>___ Mavis Vermillion ___</b>*
 
 -----
 
