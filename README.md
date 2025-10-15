@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
