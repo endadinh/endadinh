@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
