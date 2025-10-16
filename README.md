@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" The greatest pleasure in life is doing what people say you cannot do. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Walter Bagehot ___</b>*
 
 -----
 
