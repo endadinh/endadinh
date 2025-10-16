@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
