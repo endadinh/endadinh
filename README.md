@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Alucard ___</b>*
 
 -----
 
