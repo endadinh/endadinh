@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
