@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
