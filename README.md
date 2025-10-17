@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
