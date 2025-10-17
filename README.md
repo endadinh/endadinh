@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
