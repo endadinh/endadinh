@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
+**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
