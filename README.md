@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
