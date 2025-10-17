@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Unknown ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
