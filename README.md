@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
+**<h5><i>" If There Are Humans Who Can Bring About Change They re Those Who Are Capable Of Abandoning Everything People Who When Required To Surpass Even Monsters Are Capable Of Tossing Aside Their Very Humanity "</i></h5>**
 
-*<b>___ Kagome ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
