@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Sebastian Michaelis ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
