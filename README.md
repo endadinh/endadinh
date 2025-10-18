@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
