@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
