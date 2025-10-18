@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
