@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
+**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Matsumoto Rangiku ___</b>*
 
 -----
 
