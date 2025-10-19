@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To know sorrow is not terrifying. What is terrifying is to know you can’t go back to happiness you could have. "</i></h5>**
+**<h5><i>" We are all like fireworks: we climb, we shine and always go our separate ways and become further apart. But even when that time comes, let’s not disappear like a firework and continue to shine.. forever. "</i></h5>**
 
-*<b>___ Matsumoto Rangiku ___</b>*
+*<b>___ Hitsugaya Toshiro ___</b>*
 
 -----
 
