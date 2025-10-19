@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Les Brown ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
