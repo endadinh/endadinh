@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Archer ___</b>*
 
 -----
 
