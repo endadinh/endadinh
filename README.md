@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
+**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Latin Proverb ___</b>*
 
 -----
 
