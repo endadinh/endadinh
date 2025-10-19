@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
