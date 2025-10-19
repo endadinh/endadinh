@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
