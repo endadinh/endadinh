@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Gloria Steinem ___</b>*
 
 -----
 
