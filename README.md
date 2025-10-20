@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Julis Alexia Van Riessfeld ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
