@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
