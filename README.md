@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
