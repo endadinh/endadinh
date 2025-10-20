@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
+**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
 
-*<b>___ Keima Katsuragi ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
