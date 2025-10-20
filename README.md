@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
