@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
+**<h5><i>" If you look at what you have in life, you’ll always have more. If you look at what you don’t have in life, you’ll never have enough. "</i></h5>**
 
-*<b>___ Rider ___</b>*
+*<b>___ Oprah Winfrey ___</b>*
 
 -----
 
