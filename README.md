@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
