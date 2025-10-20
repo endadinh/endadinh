@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
