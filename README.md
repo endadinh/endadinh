@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
