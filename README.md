@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Mikasa ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
