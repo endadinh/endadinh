@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
+**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Juuzou Suzuya ___</b>*
 
 -----
 
