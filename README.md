@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
