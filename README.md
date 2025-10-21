@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
+**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
