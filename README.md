@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We become what we think about. "</i></h5>**
+**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
 
-*<b>___ Earl Nightingale ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
