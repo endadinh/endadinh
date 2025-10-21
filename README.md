@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s your place in the world; it’s your life. Go on and do all you can with it, and make it the life you want to live. "</i></h5>**
+**<h5><i>" You re Gonna Care What Other People Think And Be Someone You re Not Your Whole Life You re Fine As You Are So Talk In Your Own Words "</i></h5>**
 
-*<b>___ Mae Jemison ___</b>*
+*<b>___ Ymir ___</b>*
 
 -----
 
