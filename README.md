@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
+**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Leonardo da Vinci ___</b>*
 
 -----
 
