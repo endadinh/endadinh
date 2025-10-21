@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Ronald Reagan ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
