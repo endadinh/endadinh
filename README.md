@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Bob Dylan ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
