@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
