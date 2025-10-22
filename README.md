@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Jiraiya ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
