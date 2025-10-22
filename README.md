@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Japanese Proverb ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
