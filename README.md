@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
