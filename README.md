@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
