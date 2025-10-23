@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When I stand before God at the end of my life, I would hope that I would not have a single bit of talent left and could say, I used everything you gave me. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Erma Bombeck ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
