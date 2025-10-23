@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
