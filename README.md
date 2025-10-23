@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You miss 100% of the shots you don’t take. "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Wayne Gretzky ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
