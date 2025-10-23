@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have learned over the years that when one’s mind is made up, this diminishes fear. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Rosa Parks ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
