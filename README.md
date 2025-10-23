@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I want you to be happy. I want you to laugh a lot. I don’t know what exactly I’ll be able to do for you, but I’ll always be by your side. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Kagome ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
