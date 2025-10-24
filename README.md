@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If they adjust to me I have to adjust in turn Whoever stops adjusting won t be able to continue forward "</i></h5>**
+**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ George Eliot ___</b>*
 
 -----
 
