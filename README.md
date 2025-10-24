@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" Dream big and dare to fail. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Norman Vaughan ___</b>*
 
 -----
 
