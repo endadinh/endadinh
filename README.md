@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
+**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
