@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
