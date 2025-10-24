@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
