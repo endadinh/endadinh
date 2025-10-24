@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
