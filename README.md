@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
+**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
