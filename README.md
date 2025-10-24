@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
+**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Seiya Kanie ___</b>*
 
 -----
 
