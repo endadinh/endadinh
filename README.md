@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
+**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
 
-*<b>___ Robert Frost ___</b>*
+*<b>___ Grimsley ___</b>*
 
 -----
 
