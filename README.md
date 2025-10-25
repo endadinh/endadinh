@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
