@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
+**<h5><i>" An unexamined life is not worth living. "</i></h5>**
 
-*<b>___ Nagato ___</b>*
+*<b>___ Socrates ___</b>*
 
 -----
 
