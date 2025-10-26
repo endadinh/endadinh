@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
+**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
 
-*<b>___ Babe Ruth ___</b>*
+*<b>___ Seiya Kanie ___</b>*
 
 -----
 
