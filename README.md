@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
