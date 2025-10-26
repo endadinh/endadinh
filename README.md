@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Amelia Earhart ___</b>*
 
 -----
 
