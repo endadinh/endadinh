@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Tanaka Saeko ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
