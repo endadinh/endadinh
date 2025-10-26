@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The ticket to the future is always open. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Vash The Stampede ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
