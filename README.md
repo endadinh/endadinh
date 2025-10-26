@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" Whatever the mind of man can conceive and believe, it can achieve. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Napoleon Hill ___</b>*
 
 -----
 
