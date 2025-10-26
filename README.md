@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Miss Kobayashi ___</b>*
 
 -----
 
