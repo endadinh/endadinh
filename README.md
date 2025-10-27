@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
