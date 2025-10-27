@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
