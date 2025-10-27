@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
