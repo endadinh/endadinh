@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___  Albert Einstein ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
