@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Keima Katsuragi ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
