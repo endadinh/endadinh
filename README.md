@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end. "</i></h5>**
+**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
 
-*<b>___ Clare ___</b>*
+*<b>___ Sebastian Michaelis ___</b>*
 
 -----
 
