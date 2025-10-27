@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ George Addair ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
