@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
