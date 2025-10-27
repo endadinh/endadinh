@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" Everything you’ve ever wanted is on the other side of fear. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ George Addair ___</b>*
 
 -----
 
