@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Les Brown ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
