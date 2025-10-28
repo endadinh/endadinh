@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Yuu Nishinoya ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
