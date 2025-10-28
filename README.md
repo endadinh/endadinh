@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
+**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
 
-*<b>___ Mitsuyoshi Anzai ___</b>*
+*<b>___ Akame ___</b>*
 
 -----
 
