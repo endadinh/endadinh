@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" Life s a bore if you don t challenge yourself "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Yuu Nishinoya ___</b>*
 
 -----
 
