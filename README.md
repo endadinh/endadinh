@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. "</i></h5>**
+**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
 
-*<b>___ Gilgamesh ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
