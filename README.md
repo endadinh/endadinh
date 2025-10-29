@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
+**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Hatsu Kominato ___</b>*
 
 -----
 
