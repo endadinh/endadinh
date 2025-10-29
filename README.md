@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am the hope of the universe. I am the answer to all living things that cry out for peace. I am the protector of the innocent. I am the light in the darkness. I am the truth. Ally to good! Nightmare to you! "</i></h5>**
+**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
 
-*<b>___ Son Goku ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
