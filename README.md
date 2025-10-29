@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
