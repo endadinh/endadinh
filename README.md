@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Anne Frank ___</b>*
 
 -----
 
