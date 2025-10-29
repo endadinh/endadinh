@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Deneil Young ___</b>*
 
 -----
 
