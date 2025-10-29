@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Mikasa ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
