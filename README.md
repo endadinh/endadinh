@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
+**<h5><i>" The most common way people give up their power is by thinking they don’t have any. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Alice Walker ___</b>*
 
 -----
 
