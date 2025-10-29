@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Gildarts Clive ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
