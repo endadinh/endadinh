@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Roy Mustang ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
