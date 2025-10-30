@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Roger Staubach ___</b>*
 
 -----
 
