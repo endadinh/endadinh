@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
+**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
 
-*<b>___ Might Guy ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
