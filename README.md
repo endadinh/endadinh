@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
+**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
 
-*<b>___ Nagato ___</b>*
+*<b>___ Levi Ackerman ___</b>*
 
 -----
 
