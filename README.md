@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
+**<h5><i>" The world isn’t perfect. But it’s there for us, doing the best it can….that’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
