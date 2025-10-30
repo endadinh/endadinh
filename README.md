@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
+**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
 
-*<b>___ Alucard ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
