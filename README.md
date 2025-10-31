@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
