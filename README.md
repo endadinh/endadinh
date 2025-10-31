@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
