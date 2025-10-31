@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
+**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Roger Staubach ___</b>*
 
 -----
 
