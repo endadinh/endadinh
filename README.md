@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
