@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. Instead, have the courage to change it the way you want it to be. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
