@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
