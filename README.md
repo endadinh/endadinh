@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___ Kenshin Himura ___</b>*
 
 -----
 
