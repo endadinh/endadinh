@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
