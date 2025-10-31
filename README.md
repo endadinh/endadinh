@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" A person who never made a mistake never tried anything new. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___  Albert Einstein ___</b>*
 
 -----
 
