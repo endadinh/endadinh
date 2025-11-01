@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
 
-*<b>___ Arthur Ashe ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
