@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
