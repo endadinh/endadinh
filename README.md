@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" It is not what you do for your children, but what you have taught them to do for themselves, that will make them successful human beings. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Ann Landers ___</b>*
 
 -----
 
