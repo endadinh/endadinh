@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
+**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover. "</i></h5>**
 
-*<b>___ Maimonides ___</b>*
+*<b>___ Mark Twain ___</b>*
 
 -----
 
