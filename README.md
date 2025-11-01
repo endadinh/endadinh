@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover. "</i></h5>**
+**<h5><i>" Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
