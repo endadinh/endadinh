@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" The moment you think of giving up, think of the reason why you held on so long. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Natsu Dragneel ___</b>*
 
 -----
 
