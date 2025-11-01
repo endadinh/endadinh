@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
+**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
 
-*<b>___ Martin Luther King Jr. ___</b>*
+*<b>___ Levi Ackerman ___</b>*
 
 -----
 
