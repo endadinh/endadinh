@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You become what you believe. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Oprah Winfrey ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
