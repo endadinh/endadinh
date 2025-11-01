@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
