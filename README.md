@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could you of tomorrow beat you today? Instead of giving in, move forward. "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
