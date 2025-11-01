@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" When you give up, that’s when the game ends. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Mitsuyoshi Anzai ___</b>*
 
 -----
 
