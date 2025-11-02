@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dreaming, after all, is a form of planning. "</i></h5>**
+**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
 
-*<b>___ Gloria Steinem ___</b>*
+*<b>___  Ancient Indian Proverb ___</b>*
 
 -----
 
