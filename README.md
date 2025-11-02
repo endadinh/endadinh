@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Latin Proverb ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
