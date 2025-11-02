@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___  Ancient Indian Proverb ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
