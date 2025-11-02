@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
