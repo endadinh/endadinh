@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
+**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
