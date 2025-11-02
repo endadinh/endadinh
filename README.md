@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Giving up kills people. When people reject giving up… they finally win the right to transcend humanity. "</i></h5>**
+**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
 
-*<b>___ Alucard ___</b>*
+*<b>___ Tony Robbins ___</b>*
 
 -----
 
