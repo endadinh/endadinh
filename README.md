@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Grimsley ___</b>*
 
 -----
 
