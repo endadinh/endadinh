@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
+**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
 
-*<b>___ Renton Thurston ___</b>*
+*<b>___ Fuegoleon Vermillion ___</b>*
 
 -----
 
