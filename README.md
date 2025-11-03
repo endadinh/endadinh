@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" I Don t Like The Terms Good Person or Bad Person It Is Impossible To Be Entirely Good To Everyone To Some You Are A Good Person While To Others You Are A Bad Person "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
