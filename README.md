@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It is never too late to be what you might have been. "</i></h5>**
+**<h5><i>" If you don’t like your destiny, don’t accept it. "</i></h5>**
 
-*<b>___ George Eliot ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
