@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Vincent Van Gogh ___</b>*
 
 -----
 
