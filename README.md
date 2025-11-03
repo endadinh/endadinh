@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every child is an artist.  The problem is how to remain an artist once he grows up. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Pablo Picasso ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
