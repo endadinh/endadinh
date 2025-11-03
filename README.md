@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
+**<h5><i>" Sometimes I do feel like I’m a failure. Like there’s no hope for me. But even so, I’m not gonna give up. Ever! "</i></h5>**
 
-*<b>___ Deneil Young ___</b>*
+*<b>___ Izuku Midoriya ___</b>*
 
 -----
 
