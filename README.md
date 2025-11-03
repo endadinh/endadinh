@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
+**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Booker T. Washington ___</b>*
 
 -----
 
