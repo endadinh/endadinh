@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Winning isn’t everything, but wanting to win is. "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Vince Lombardi ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
