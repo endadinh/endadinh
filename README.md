@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you just submit yourself to fate, then that’s the end of it. "</i></h5>**
+**<h5><i>" We can’t help everyone, but everyone can help someone. "</i></h5>**
 
-*<b>___ Keiichi Maebara ___</b>*
+*<b>___ Ronald Reagan ___</b>*
 
 -----
 
