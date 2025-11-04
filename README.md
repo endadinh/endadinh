@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
+**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
 
-*<b>___ Jesus ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
