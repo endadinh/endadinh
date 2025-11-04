@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" First, have a definite, clear practical ideal; a goal, an objective. Second, have the necessary means to achieve your ends; wisdom, money, materials, and methods. Third, adjust all your means to that end. "</i></h5>**
+**<h5><i>" When you hit the point of no return, that’s the moment it truly becomes a journey. If you can still turn back, it’s not really a journey. "</i></h5>**
 
-*<b>___ Aristotle ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
