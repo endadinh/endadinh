@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Strive not to be a success, but rather to be of value. "</i></h5>**
+**<h5><i>" Ask and it will be given to you; search, and you will find; knock and the door will be opened for you. "</i></h5>**
 
-*<b>___ Albert Einstein ___</b>*
+*<b>___ Jesus ___</b>*
 
 -----
 
