@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
+**<h5><i>" Don’t beg for things. Do it yourself, or else you won’t get anything. "</i></h5>**
 
-*<b>___ Buddha ___</b>*
+*<b>___ Renton Thurston ___</b>*
 
 -----
 
