@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Alibaba Saluja ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
