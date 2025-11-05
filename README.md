@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t find a reason to fight, then you shouldn’t be fighting. "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Akame ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
