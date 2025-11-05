@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
