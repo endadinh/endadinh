@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
+**<h5><i>" Every strike brings me closer to the next home run. "</i></h5>**
 
-*<b>___ Shoyo Hinata ___</b>*
+*<b>___ Babe Ruth ___</b>*
 
 -----
 
