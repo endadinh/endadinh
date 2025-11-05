@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
