@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Shoyo Hinata ___</b>*
 
 -----
 
