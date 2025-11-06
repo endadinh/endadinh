@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
