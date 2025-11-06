@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
