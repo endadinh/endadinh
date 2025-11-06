@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
