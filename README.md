@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being weak means that there is room to grow "</i></h5>**
+**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
 
-*<b>___ Ittetsu Takeda ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
