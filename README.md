@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
+**<h5><i>" Being weak means that there is room to grow "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Ittetsu Takeda ___</b>*
 
 -----
 
