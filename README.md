@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
