@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Japanese Proverb ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
