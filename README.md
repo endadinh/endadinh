@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
+**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
 
-*<b>___ Mikasa ___</b>*
+*<b>___ Charles Swindoll ___</b>*
 
 -----
 
