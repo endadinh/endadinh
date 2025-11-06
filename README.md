@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No matter how hard or impossible it is, never lose sight of your goal. "</i></h5>**
+**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Rock Lee ___</b>*
 
 -----
 
