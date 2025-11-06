@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
