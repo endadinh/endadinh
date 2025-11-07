@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails.  Explore, Dream, Discover. "</i></h5>**
+**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
 
-*<b>___ Mark Twain ___</b>*
+*<b>___ Winston Churchill ___</b>*
 
 -----
 
