@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" I didn’t fail the test. I just found 100 ways to do it wrong. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Benjamin Franklin ___</b>*
 
 -----
 
