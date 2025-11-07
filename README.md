@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We don’t have to know what tomorrow holds! That’s why we can live for everything we’re worth today! "</i></h5>**
+**<h5><i>" A person grows up when he’s able to overcome hardships. Protection is important, but there are some things that a person must learn on his own. "</i></h5>**
 
-*<b>___ Natsu Dragneel ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
