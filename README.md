@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
