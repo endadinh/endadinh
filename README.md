@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
