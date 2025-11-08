@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can die anytime, but living takes true courage. "</i></h5>**
+**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
