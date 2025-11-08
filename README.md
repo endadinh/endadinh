@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Hatred and Sorrow are power. They are yours to control. All you have to do is to turn them into strength and use that strength to move forward. "</i></h5>**
+**<h5><i>" Just like games, no matter how well you have things lined up in your life, there’s always something to keep you on your toes. "</i></h5>**
 
-*<b>___ Sebastian Michaelis ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
