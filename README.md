@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
