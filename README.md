@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
 
-*<b>___ Armin Arlelt ___</b>*
+*<b>___ Beverly Sills ___</b>*
 
 -----
 
