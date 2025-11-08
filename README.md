@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Being the best decoy ever is as cool as being the ace "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
