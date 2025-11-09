@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
+**<h5><i>" Too many of us are not living our dreams because we are living our fears. "</i></h5>**
 
-*<b>___ Mavis Vermillion ___</b>*
+*<b>___ Les Brown ___</b>*
 
 -----
 
