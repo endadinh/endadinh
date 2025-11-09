@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
+**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
 
-*<b>___ Keima Katsuragi ___</b>*
+*<b>___ Mavis Vermillion ___</b>*
 
 -----
 
