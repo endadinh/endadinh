@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
+**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
