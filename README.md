@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Reject common sense to make the impossible possible. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Simon ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
