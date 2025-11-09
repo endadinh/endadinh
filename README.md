@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember that not getting what you want is sometimes a wonderful stroke of luck. "</i></h5>**
+**<h5><i>" Success usually comes to those who are too busy to be looking for it. "</i></h5>**
 
-*<b>___ Dalai Lama ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
