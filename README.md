@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Success is not final, failure is not fatal: It is the courage to continue that counts. "</i></h5>**
+**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
 
-*<b>___ Winston Churchill ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
