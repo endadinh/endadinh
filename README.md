@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
