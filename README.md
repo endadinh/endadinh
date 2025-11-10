@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
