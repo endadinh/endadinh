@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
