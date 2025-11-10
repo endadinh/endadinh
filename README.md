@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
