@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained. "</i></h5>**
+**<h5><i>" Today might be the chance to grasp the chance to let your talent bloom "</i></h5>**
 
-*<b>___ Marie Curie ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
