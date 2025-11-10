@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The most difficult thing is the decision to act, the rest is merely tenacity. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
 
-*<b>___ Amelia Earhart ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
