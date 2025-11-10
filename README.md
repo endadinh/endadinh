@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ll leave tomorrow’s problems to tomorrow’s me. "</i></h5>**
+**<h5><i>" In the middle of every difficulty lies opportunity. "</i></h5>**
 
-*<b>___ Saitama ___</b>*
+*<b>___ Albert Einstein ___</b>*
 
 -----
 
