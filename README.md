@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
+**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
 
-*<b>___ Bill Cosby ___</b>*
+*<b>___ Kenny Ackerman ___</b>*
 
 -----
 
