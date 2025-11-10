@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Everyone Had To Be Drunk On Somethin To Keep Pushing On Everyone Was A Slave To Somethin "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Kenny Ackerman ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
