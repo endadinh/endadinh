@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life. "</i></h5>**
+**<h5><i>" When I was 5 years old, my mother always told me that happiness was the key to life.  When I went to school, they asked me what I wanted to be when I grew up.  I wrote down ‘happy’.  They told me I didn’t understand the assignment, and I told them they didn’t understand life. "</i></h5>**
 
-*<b>___ Mion Sonozaki ___</b>*
+*<b>___ John Lennon ___</b>*
 
 -----
 
