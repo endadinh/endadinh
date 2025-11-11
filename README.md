@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Jamie Paolinetti ___</b>*
 
 -----
 
