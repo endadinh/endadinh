@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Don Quixote Doflamingo ___</b>*
 
 -----
 
