@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Why should I apologize for being a monster? Has anyone ever apologized for turning me into one? "</i></h5>**
+**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
 
-*<b>___ Juuzou Suzuya ___</b>*
+*<b>___ Grandma Moses ___</b>*
 
 -----
 
