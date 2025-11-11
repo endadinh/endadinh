@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You’ll only realize that you truly love someone if they already caused you enormous pain. Your enemies can never hurt you the way your loved ones can. It’s the people close to your heart that can give you the most piercing wound. Love is a double-edged sword, it can heal the wound faster or it can sink the blade even deeper. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Himura Kenshin ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
