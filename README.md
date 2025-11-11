@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" The mind is everything. What you think you become. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Buddha ___</b>*
 
 -----
 
