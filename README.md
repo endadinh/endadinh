@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
+**<h5><i>" Teach thy tongue to say, “I do not know,” and thous shalt progress. "</i></h5>**
 
-*<b>___ Itachi Uchiha ___</b>*
+*<b>___ Maimonides ___</b>*
 
 -----
 
