@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Those who stand at the top determine what’s wrong and what’s right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice! "</i></h5>**
+**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
 
-*<b>___ Don Quixote Doflamingo ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
