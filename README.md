@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
