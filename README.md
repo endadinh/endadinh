@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" People’s lives don’t end when they die, it ends when they lose faith. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ Itachi Uchiha ___</b>*
 
 -----
 
