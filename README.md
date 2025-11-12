@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Either write something worth reading or do something worth writing. "</i></h5>**
+**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
 
-*<b>___ Benjamin Franklin ___</b>*
+*<b>___ Ralph Waldo Emerson ___</b>*
 
 -----
 
