@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" There is only one way to avoid criticism: do nothing, say nothing, and be nothing. "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Aristotle ___</b>*
 
 -----
 
