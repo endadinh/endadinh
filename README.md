@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
+**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
 
-*<b>___  Ancient Indian Proverb ___</b>*
+*<b>___ Princess Lenessia ___</b>*
 
 -----
 
