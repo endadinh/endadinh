@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is 10% what happens to me and 90% of how I react to it. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Charles Swindoll ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
