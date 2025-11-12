@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
+**<h5><i>" Believe you can and you're halfway there. "</i></h5>**
 
-*<b>___ Florence Nightingale ___</b>*
+*<b>___ Theodore Roosevelt ___</b>*
 
 -----
 
