@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is what we make it, always has been, always will be. "</i></h5>**
+**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
 
-*<b>___ Grandma Moses ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
