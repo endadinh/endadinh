@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you hear a voice within you say “you cannot paint,” then by all means paint and that voice will be silenced. "</i></h5>**
+**<h5><i>" There are some flowers you only see when you take detours "</i></h5>**
 
-*<b>___ Vincent Van Gogh ___</b>*
+*<b>___ Tanaka Saeko ___</b>*
 
 -----
 
