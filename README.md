@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
+**<h5><i>" There are no regrets. If one can be proud of one’s life, one should not wish for another chance. "</i></h5>**
 
-*<b>___ Henry David Thoreau ___</b>*
+*<b>___ Saber ___</b>*
 
 -----
 
