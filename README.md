@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Satsuki Kiryuuin ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
