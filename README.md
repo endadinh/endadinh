@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
