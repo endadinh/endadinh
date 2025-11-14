@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Henry Ford ___</b>*
 
 -----
 
