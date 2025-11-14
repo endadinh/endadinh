@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Miss Kobayashi ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
