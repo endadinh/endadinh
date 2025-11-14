@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Yuuya Mochizuki ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
