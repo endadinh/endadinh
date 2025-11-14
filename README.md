@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Zig Ziglar ___</b>*
 
 -----
 
