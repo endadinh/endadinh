@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Limitations live only in our minds.  But if we use our imaginations, our possibilities become limitless. "</i></h5>**
+**<h5><i>" There’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Jamie Paolinetti ___</b>*
+*<b>___ Shintar Midorima ___</b>*
 
 -----
 
