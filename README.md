@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
+**<h5><i>" Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one’s heart. "</i></h5>**
 
-*<b>___ Maka Albarn ___</b>*
+*<b>___ Mavis Vermillion ___</b>*
 
 -----
 
