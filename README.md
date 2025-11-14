@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you want to lift yourself up, lift up someone else. "</i></h5>**
+**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Yato ___</b>*
 
 -----
 
