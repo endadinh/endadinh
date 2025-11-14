@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you do what you’ve always done, you’ll get what you’ve always gotten. "</i></h5>**
+**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
 
-*<b>___ Tony Robbins ___</b>*
+*<b>___ Stephen Covey ___</b>*
 
 -----
 
