@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
+**<h5><i>" Don’t be upset because of what you can’t do. Do what you do best, live as carefree and optimistically as you can, because some people aren’t able to do that. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Keima Katsuragi ___</b>*
 
 -----
 
