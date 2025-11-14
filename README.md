@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Miss Kobayashi ___</b>*
 
 -----
 
