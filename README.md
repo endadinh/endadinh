@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I’ve learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel. "</i></h5>**
+**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Nico Yazawa ___</b>*
 
 -----
 
