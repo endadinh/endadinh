@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
