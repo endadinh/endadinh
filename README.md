@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
+**<h5><i>" The world’s not perfect, but it’s there for us trying the best it can. That’s what makes it so damn beautiful. "</i></h5>**
 
-*<b>___ Satsuki Kiryuuin ___</b>*
+*<b>___ Roy Mustang ___</b>*
 
 -----
 
