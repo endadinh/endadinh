@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
+**<h5><i>" A truly rich man is one whose children run into his arms when his hands are empty. "</i></h5>**
 
-*<b>___ Tooru Oikawa ___</b>*
+*<b>___ Unknown ___</b>*
 
 -----
 
