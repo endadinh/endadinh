@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
