@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Either you run the day, or the day runs you. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Jim Rohn ___</b>*
 
 -----
 
