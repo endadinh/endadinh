@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" We become what we think about. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Earl Nightingale ___</b>*
 
 -----
 
