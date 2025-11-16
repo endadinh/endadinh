@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
