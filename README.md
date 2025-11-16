@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
+**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
 
-*<b>___ Helen Keller ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
