@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Leonardo da Vinci ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
