@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
+**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
 
-*<b>___ Shiroe ___</b>*
+*<b>___ Might Guy ___</b>*
 
 -----
 
