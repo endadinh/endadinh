@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is not measured by the number of breaths we take, but by the moments that take our breath away. "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Maya Angelou ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
