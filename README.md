@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Dream big and dare to fail. "</i></h5>**
+**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
 
-*<b>___ Norman Vaughan ___</b>*
+*<b>___ Erica Jong ___</b>*
 
 -----
 
