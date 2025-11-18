@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
+**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Levi Ackerman ___</b>*
 
 -----
 
