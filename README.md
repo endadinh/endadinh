@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
