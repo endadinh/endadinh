@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" Go confidently in the direction of your dreams.  Live the life you have imagined. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Henry David Thoreau ___</b>*
 
 -----
 
