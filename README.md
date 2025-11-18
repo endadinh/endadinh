@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" It Doesn t Matter How Strong The Opposition Is It Doesn t Matter How Fearsome The World Is It Doesn t Matter How Cruel The World Is Fight "</i></h5>**
+**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Erica Jong ___</b>*
 
 -----
 
