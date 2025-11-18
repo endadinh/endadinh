@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Sometimes, people are just mean. Don’t fight mean with mean. Hold your head high. "</i></h5>**
+**<h5><i>" You can’t win a game by doing nothing. And if someone else wins it for you then you haven’t accomplished anything. Life is the same way. "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Junichirou Kagami ___</b>*
 
 -----
 
