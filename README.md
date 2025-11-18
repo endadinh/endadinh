@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
+**<h5><i>" This World Is Cruel And It s Also Very Beautiful "</i></h5>**
 
-*<b>___ Milly Thompson ___</b>*
+*<b>___ Mikasa ___</b>*
 
 -----
 
