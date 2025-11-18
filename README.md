@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Life is like a tube of toothpaste. When you’ve used all the toothpaste down to the last squeeze, that’s when you’ve really lived. Live with all your might, and struggle as long as you have life. "</i></h5>**
+**<h5><i>" When you lose sight of your path, listen for the destination in your heart. "</i></h5>**
 
-*<b>___ Mion Sonozaki ___</b>*
+*<b>___ Allen Walker ___</b>*
 
 -----
 
