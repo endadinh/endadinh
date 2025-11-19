@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can. "</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
