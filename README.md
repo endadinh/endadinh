@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" You can fly even higher "</i></h5>**
+**<h5><i>" It doesn’t do any good to pretend you can’t see what’s going on. "</i></h5>**
 
-*<b>___ Tobio Kageyama ___</b>*
+*<b>___ Yuuya Mochizuki ___</b>*
 
 -----
 
