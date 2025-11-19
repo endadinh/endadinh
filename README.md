@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The only person you are destined to become is the person you decide to be. "</i></h5>**
+**<h5><i>" We must balance conspicuous consumption with conscious capitalism. "</i></h5>**
 
-*<b>___ Ralph Waldo Emerson ___</b>*
+*<b>___ Kevin Kruse ___</b>*
 
 -----
 
