@@ -29,9 +29,9 @@
 
 -----
 
-**<h5><i>" Forgetting is like a wound. The wound may heal, but it has already left a scar. "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
