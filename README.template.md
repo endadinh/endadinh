@@ -15,11 +15,11 @@
 **About Me!**
 - 📫 Contact me via [Endale D](https://t.me/d41d3v).
 
---------
+-----
 
-**<h5><i>" Believe you can and you’re halfway there. "</i></h5>**
+**<h5><i>{__quote}</i></h5>**
 
-*<b>___ Theodore Roosevelt ___</b>*
+*<b>{__character}</b>*
 
 -----
 
