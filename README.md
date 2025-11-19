@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you can dream it, you can achieve it. "</i></h5>**
+**<h5><i>" You can fly even higher "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
