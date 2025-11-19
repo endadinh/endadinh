@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Bob Dylan ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
