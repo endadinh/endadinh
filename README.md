@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" All we can do is live until the day we die. Control what we can…and fly free. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Deneil Young ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
