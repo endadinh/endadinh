@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
+**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Bob Dylan ___</b>*
 
 -----
 
