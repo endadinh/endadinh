@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" How wonderful it is that nobody need wait a single moment before starting to improve the world. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Anne Frank ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
