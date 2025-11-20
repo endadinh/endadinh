@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" Start where you are. Use what you have.  Do what you can. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Arthur Ashe ___</b>*
 
 -----
 
