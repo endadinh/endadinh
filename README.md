@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Fools who don’t respect the past are likely to repeat it. "</i></h5>**
+**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
 
-*<b>___ Nico Robin ___</b>*
+*<b>___ Franklin D. Roosevelt ___</b>*
 
 -----
 
