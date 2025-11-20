@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" Happiness is not something readymade.  It comes from your own actions. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Dalai Lama ___</b>*
 
 -----
 
