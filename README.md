@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Armin Arlert ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
