@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" An excellent leader must be passionate because it’s their duty to keep everyone moving forward. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Nico Yazawa ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
