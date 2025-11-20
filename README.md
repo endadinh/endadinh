@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Steve Jobs ___</b>*
 
 -----
 
