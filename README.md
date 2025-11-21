@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" Whatever you can do, or dream you can, begin it.  Boldness has genius, power and magic in it. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Johann Wolfgang von Goethe ___</b>*
 
 -----
 
