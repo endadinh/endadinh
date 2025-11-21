@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Two roads diverged in a wood, and I—I took the one less traveled by, And that has made all the difference. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Robert Frost ___</b>*
 
 -----
 
