@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" As Long As We Continue To Fight We Are Not Defeated "</i></h5>**
+**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
 
-*<b>___ Miche Zacharius ___</b>*
+*<b>___ Kunio Yaobi ___</b>*
 
 -----
 
