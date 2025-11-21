@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
