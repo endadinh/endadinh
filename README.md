@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The only limit to our realization of tomorrow will be our doubts of today. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Franklin D. Roosevelt ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
