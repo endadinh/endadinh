@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Whether you think you can or you think you can’t, you’re right. "</i></h5>**
+**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
 
-*<b>___ Henry Ford ___</b>*
+*<b>___ Hiroshi Kido ___</b>*
 
 -----
 
