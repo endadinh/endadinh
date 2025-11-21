@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Princess Lenessia ___</b>*
 
 -----
 
