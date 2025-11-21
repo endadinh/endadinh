@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" People often say that motivation doesn’t last. Well, neither does bathing.  That’s why we recommend it daily. "</i></h5>**
+**<h5><i>" If you want your children to turn out well, spend twice as much time with them, and half as much money. "</i></h5>**
 
-*<b>___ Zig Ziglar ___</b>*
+*<b>___ Abigail Van Buren ___</b>*
 
 -----
 
