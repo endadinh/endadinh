@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
+**<h5><i>" If you really want to be strong… Stop caring about what your surrounding thinks of you! "</i></h5>**
 
-*<b>___ Nelson Mandela ___</b>*
+*<b>___ Saitama ___</b>*
 
 -----
 
