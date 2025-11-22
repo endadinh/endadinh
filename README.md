@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Anais Nin ___</b>*
 
 -----
 
