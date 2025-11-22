@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
+**<h5><i>" When one door of happiness closes, another opens, but often we look so long at the closed door that we do not see the one that has been opened for us. "</i></h5>**
 
-*<b>___ Grimsley ___</b>*
+*<b>___ Helen Keller ___</b>*
 
 -----
 
