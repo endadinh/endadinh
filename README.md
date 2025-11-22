@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
+**<h5><i>" If you can’t do something, then don’t. Focus on what you can do. "</i></h5>**
 
-*<b>___ W. Clement Stone ___</b>*
+*<b>___ Shiroe ___</b>*
 
 -----
 
