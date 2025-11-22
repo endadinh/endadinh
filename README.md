@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
+**<h5><i>" If you don’t share someone’s pain, you can never understand them. "</i></h5>**
 
-*<b>___ Tsunade ___</b>*
+*<b>___ Nagato ___</b>*
 
 -----
 
