@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Rider ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
