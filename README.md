@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It is at the moment of death that humanity has value. "</i></h5>**
+**<h5><i>" Definiteness of purpose is the starting point of all achievement. "</i></h5>**
 
-*<b>___ Archer ___</b>*
+*<b>___ W. Clement Stone ___</b>*
 
 -----
 
