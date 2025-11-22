@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Being lonely is more painful then getting hurt. "</i></h5>**
+**<h5><i>" Whatever you do, enjoy it to the fullest. That is the secret of life. "</i></h5>**
 
-*<b>___ Monkey D Luffy ___</b>*
+*<b>___ Rider ___</b>*
 
 -----
 
