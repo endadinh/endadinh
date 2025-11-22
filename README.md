@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" That’s why I can’t make a change. Everything I do is so… Half-assed. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Hiroshi Kido ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
