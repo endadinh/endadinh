@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life shrinks or expands in proportion to one’s courage. "</i></h5>**
+**<h5><i>" If the wind will not serve, take to the oars. "</i></h5>**
 
-*<b>___ Anais Nin ___</b>*
+*<b>___ Latin Proverb ___</b>*
 
 -----
 
