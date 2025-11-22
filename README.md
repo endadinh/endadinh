@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Reiko Mikami ___</b>*
 
 -----
 
