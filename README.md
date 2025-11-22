@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" It’s more important to master the cards you’re holding than to complain about the ones your opponent was dealt. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Grimsley ___</b>*
 
 -----
 
