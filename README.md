@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" People become stronger because they have memories they can’t forget. "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Tsunade ___</b>*
 
 -----
 
