@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Certain things catch your eye, but pursue only those that capture the heart. "</i></h5>**
+**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
 
-*<b>___  Ancient Indian Proverb ___</b>*
+*<b>___ Kunio Yaobi ___</b>*
 
 -----
 
