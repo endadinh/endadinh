@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Change your thoughts and you change your world. "</i></h5>**
+**<h5><i>" The best revenge is massive success. "</i></h5>**
 
-*<b>___ Norman Vincent Peale ___</b>*
+*<b>___ Frank Sinatra ___</b>*
 
 -----
 
