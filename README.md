@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The only way to do great work is to love what you do. "</i></h5>**
+**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Sir Claus Moser ___</b>*
 
 -----
 
