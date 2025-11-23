@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you’re offered a seat on a rocket ship, don’t ask what seat! Just get on. "</i></h5>**
+**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Sheryl Sandberg ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
