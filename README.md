@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" Eighty percent of success is showing up. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Woody Allen ___</b>*
 
 -----
 
