@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Confucius ___</b>*
 
 -----
 
