@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
+**<h5><i>" You can’t use up creativity.  The more you use, the more you have. "</i></h5>**
 
-*<b>___ Fuegoleon Vermillion ___</b>*
+*<b>___ Maya Angelou ___</b>*
 
 -----
 
