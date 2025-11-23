@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" The last ones standing are the victors Only the strongest If you want to be the last one standing become strong "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Tobio Kageyama ___</b>*
 
 -----
 
