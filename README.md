@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ Beverly Sills ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
