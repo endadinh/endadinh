@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Fuegoleon Vermillion ___</b>*
 
 -----
 
