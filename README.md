@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" Fall seven times and stand up eight. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Japanese Proverb ___</b>*
 
 -----
 
