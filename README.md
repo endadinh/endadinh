@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Being weak is nothing to be ashamed of… Staying weak is !! "</i></h5>**
+**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
 
-*<b>___ Fuegoleon Vermillion ___</b>*
+*<b>___ Hange Zoë ___</b>*
 
 -----
 
