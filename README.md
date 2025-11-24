@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
+**<h5><i>" We can’t waste time worrying about the what if’s. "</i></h5>**
 
-*<b>___ Ayn Rand ___</b>*
+*<b>___ Ichigo Kurosaki ___</b>*
 
 -----
 
