@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Princess Lenessia ___</b>*
 
 -----
 
