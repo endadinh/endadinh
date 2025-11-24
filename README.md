@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
+**<h5><i>" Our lives begin to end the day we become silent about things that matter. "</i></h5>**
 
-*<b>___ Teddy Roosevelt ___</b>*
+*<b>___ Martin Luther King Jr. ___</b>*
 
 -----
 
