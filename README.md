@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
+**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
 
-*<b>___ Eleanor Roosevelt ___</b>*
+*<b>___ Haruhi Fujioka ___</b>*
 
 -----
 
