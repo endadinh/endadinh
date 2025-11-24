@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" In order to succeed, your desire for success should be greater than your fear of failure. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ Bill Cosby ___</b>*
 
 -----
 
