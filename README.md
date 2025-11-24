@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Nothing is impossible, the word itself says, “I’m possible!” "</i></h5>**
+**<h5><i>" Every journey begins with a single step. We just have to have patience. "</i></h5>**
 
-*<b>___ –Audrey Hepburn ___</b>*
+*<b>___ Milly Thompson ___</b>*
 
 -----
 
