@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" There are no traffic jams along the extra mile. "</i></h5>**
+**<h5><i>" Do what you can, where you are, with what you have. "</i></h5>**
 
-*<b>___ Roger Staubach ___</b>*
+*<b>___ Teddy Roosevelt ___</b>*
 
 -----
 
