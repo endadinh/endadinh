@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Education costs money.  But then so does ignorance. "</i></h5>**
+**<h5><i>" I attribute my success to this: I never gave or took any excuse. "</i></h5>**
 
-*<b>___ Sir Claus Moser ___</b>*
+*<b>___ Florence Nightingale ___</b>*
 
 -----
 
