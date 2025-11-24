@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Thinking you’re no-good and worthless is the worst thing you can do "</i></h5>**
+**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
 
-*<b>___ Nobito ___</b>*
+*<b>___ Farrah Gray ___</b>*
 
 -----
 
