@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Protecting someone means giving them a place to belong. Giving them a place where they can be happy. "</i></h5>**
+**<h5><i>" It’s not always possible to do what we want to do, but it’s important to believe in something before you actually do it. "</i></h5>**
 
-*<b>___ Princess Lenessia ___</b>*
+*<b>___ Might Guy ___</b>*
 
 -----
 
