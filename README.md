@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Fear is freedom! Subjugation is liberation! Contradiction is the truth! Those are the facts of this world! And you will all surrender to them, you pigs in human clothing! "</i></h5>**
+**<h5><i>" Knowing you’re different is only the beginning. If you accept these differences you’ll be able to get past them and grow even closer. "</i></h5>**
 
-*<b>___ Satsuki Kiryuuin ___</b>*
+*<b>___ Miss Kobayashi ___</b>*
 
 -----
 
