@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Fear is not evil. It tells you what your weakness is. And once you know your weakness, you can become stronger as well as kinder. "</i></h5>**
+**<h5><i>" Remember no one can make you feel inferior without your consent. "</i></h5>**
 
-*<b>___ Gildarts Clive ___</b>*
+*<b>___ Eleanor Roosevelt ___</b>*
 
 -----
 
