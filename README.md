@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Few things can help an individual more than to place responsibility on him, and to let him know that you trust him. "</i></h5>**
+**<h5><i>" Moving on doesn’t mean you forget about things. It just means you have to accept what’s happened and continue living. "</i></h5>**
 
-*<b>___ Booker T. Washington ___</b>*
+*<b>___ Erza Scarlet ___</b>*
 
 -----
 
