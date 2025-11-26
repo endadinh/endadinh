@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" You Understand Don t You One Day Or Another Everyone You Care About Eventually Dies It s Something We Simply Can t Accept It s A Realization That Could Drive You Insane "</i></h5>**
+**<h5><i>" If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don’t need them and their selfish ideas. "</i></h5>**
 
-*<b>___ Hange Zoë ___</b>*
+*<b>___ Alibaba Saluja ___</b>*
 
 -----
 
