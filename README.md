@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" You can’t always hold on to the things that are important. By letting them go we gain something else. "</i></h5>**
+**<h5><i>" You may be disappointed if you fail, but you are doomed if you don’t try. "</i></h5>**
 
-*<b>___ Kunio Yaobi ___</b>*
+*<b>___ Beverly Sills ___</b>*
 
 -----
 
