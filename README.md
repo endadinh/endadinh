@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" I too will obtain everything that I desire. Not because someone asked me to do it, but because I know in my heart that I have something worth fighting for. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Julis Alexia Van Riessfeld ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
