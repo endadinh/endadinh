@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud! "</i></h5>**
+**<h5><i>" You take your life in your own hands, and what happens? A terrible thing, no one to blame. "</i></h5>**
 
-*<b>___ Haruhi Fujioka ___</b>*
+*<b>___ Erica Jong ___</b>*
 
 -----
 
