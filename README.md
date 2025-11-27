@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
+**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
 
-*<b>___ Abraham Lincoln ___</b>*
+*<b>___ Hatsu Kominato ___</b>*
 
 -----
 
