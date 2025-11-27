@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life and death are like light and shadow. They’re both always there. But people don’t like thinking about death, so subconsciously, they always look away from it. "</i></h5>**
+**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
 
-*<b>___ Yato ___</b>*
+*<b>___ Naruto Uzumaki ___</b>*
 
 -----
 
