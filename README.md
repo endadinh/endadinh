@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It’s just pathetic to give up on something before you even give it a shot. "</i></h5>**
+**<h5><i>" It’s not the years in your life that count. It’s the life in your years. "</i></h5>**
 
-*<b>___ Reiko Mikami ___</b>*
+*<b>___ Abraham Lincoln ___</b>*
 
 -----
 
