@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" The best time to plant a tree was 20 years ago. The second best time is now. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Chinese Proverb ___</b>*
 
 -----
 
