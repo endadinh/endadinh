@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" Do you need a reason to not want to lose "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Shoyo Hinata ___</b>*
 
 -----
 
