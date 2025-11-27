@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" No One Knows What The Outcome Will Be So Choose Whatever You ll Regret The Least "</i></h5>**
+**<h5><i>" What’s money? A man is a success if he gets up in the morning and goes to bed at night and in between does what he wants to do. "</i></h5>**
 
-*<b>___ Levi Ackerman ___</b>*
+*<b>___ Bob Dylan ___</b>*
 
 -----
 
