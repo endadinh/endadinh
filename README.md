@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" I refuse to let my fear control me anymore. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Maka Albarn ___</b>*
 
 -----
 
