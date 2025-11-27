@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you’re gonna insist on gambling and then complain when you lose, you had better work on your game. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Hatsu Kominato ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
