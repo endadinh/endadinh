@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" The person who says it cannot be done should not interrupt the person who is doing it. "</i></h5>**
+**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
 
-*<b>___ Chinese Proverb ___</b>*
+*<b>___ Sora ___</b>*
 
 -----
 
