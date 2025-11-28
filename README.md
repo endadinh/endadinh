@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Your time is limited, so don’t waste it living someone else’s life. "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Steve Jobs ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
