@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
+**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
 
-*<b>___ Eren ___</b>*
+*<b>___ Joshua J. Marine ___</b>*
 
 -----
 
