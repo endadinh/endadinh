@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Hinata Miyake ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
