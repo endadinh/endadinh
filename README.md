@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" If you wanna make people dream, you’ve gotta start by believing in that dream yourself! "</i></h5>**
+**<h5><i>" The question isn’t who is going to let me; it’s who is going to stop me. "</i></h5>**
 
-*<b>___ Seiya Kanie ___</b>*
+*<b>___ Ayn Rand ___</b>*
 
 -----
 
