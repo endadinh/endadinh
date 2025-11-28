@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life is not a game of luck. If you wanna win, work hard. "</i></h5>**
+**<h5><i>" To act is not necessarily compassion. True compassion sometimes comes from inaction. "</i></h5>**
 
-*<b>___ Sora ___</b>*
+*<b>___ Hinata Miyake ___</b>*
 
 -----
 
