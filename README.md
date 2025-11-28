@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
+**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
 
-*<b>___ Kanade Jinguuji ___</b>*
+*<b>___ Shintaro Midorima ___</b>*
 
 -----
 
