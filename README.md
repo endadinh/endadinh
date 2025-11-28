@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Whatever you lose, you’ll find it again. But what you throw away you’ll never get back. "</i></h5>**
+**<h5><i>" The greatest glory in living lies not in never falling, but in rising every time we fall. "</i></h5>**
 
-*<b>___ Kenshin Himura ___</b>*
+*<b>___ Nelson Mandela ___</b>*
 
 -----
 
