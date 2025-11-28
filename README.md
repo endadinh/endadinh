@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Don’t give up, there’s no shame in falling down! True shame is to not stand up again! "</i></h5>**
+**<h5><i>" People, who can’t throw something important away, can never hope to change anything. "</i></h5>**
 
-*<b>___ Shintaro Midorima ___</b>*
+*<b>___ Armin Arlert ___</b>*
 
 -----
 
