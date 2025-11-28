@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" I am not a product of my circumstances. I am a product of my decisions. "</i></h5>**
+**<h5><i>" If You Win You Live If You Lose You Die If You Don t Fight You Can t Win "</i></h5>**
 
-*<b>___ Stephen Covey ___</b>*
+*<b>___ Eren ___</b>*
 
 -----
 
