@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
+**<h5><i>" Sometimes it’s necessary to do unnecessary things. "</i></h5>**
 
-*<b>___ Goku ___</b>*
+*<b>___ Kanade Jinguuji ___</b>*
 
 -----
 
