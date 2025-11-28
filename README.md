@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Build your own dreams, or someone else will hire you to build theirs. "</i></h5>**
+**<h5><i>" Power comes in response to a need, not a desire. You have to create that need. "</i></h5>**
 
-*<b>___ Farrah Gray ___</b>*
+*<b>___ Goku ___</b>*
 
 -----
 
