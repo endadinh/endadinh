@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Challenges are what make life interesting and overcoming them is what makes life meaningful. "</i></h5>**
+**<h5><i>" A place where someone still thinks about you is a place you can call home. "</i></h5>**
 
-*<b>___ Joshua J. Marine ___</b>*
+*<b>___ Jiraiya ___</b>*
 
 -----
 
