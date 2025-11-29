@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
+**<h5><i>" The ticket to the future is always open. "</i></h5>**
 
-*<b>___ Albert Schweitzer ___</b>*
+*<b>___ Vash The Stampede ___</b>*
 
 -----
 
