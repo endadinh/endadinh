@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Hard work is worthless for those that don’t believe in themselves. "</i></h5>**
+**<h5><i>" Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. "</i></h5>**
 
-*<b>___ Naruto Uzumaki ___</b>*
+*<b>___ Albert Schweitzer ___</b>*
 
 -----
 
