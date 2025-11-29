@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" Life isn’t about getting and having, it’s about giving and being. "</i></h5>**
+**<h5><i>" If you re gonna hit it hit it until it breaks "</i></h5>**
 
-*<b>___ Kevin Kruse ___</b>*
+*<b>___ Tooru Oikawa ___</b>*
 
 -----
 
