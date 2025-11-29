@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" It does not matter how slowly you go as long as you do not stop. "</i></h5>**
+**<h5><i>" If you don’t take risks, you can’t create a future! "</i></h5>**
 
-*<b>___ Confucius ___</b>*
+*<b>___ Monkey D Luffy ___</b>*
 
 -----
 
