@@ -17,9 +17,9 @@
 
 -----
 
-**<h5><i>" A dropout will beat a genius through hard work. "</i></h5>**
+**<h5><i>" You need to accept the fact that you’re not the best and have all the will to strive to be better than anyone you face. "</i></h5>**
 
-*<b>___ Rock Lee ___</b>*
+*<b>___ Roronoa Zoro ___</b>*
 
 -----
 
