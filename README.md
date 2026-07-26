@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Better the cottage where one is merry than the palace where one weeps."</i></sub><br>
-    <b>— Chinese Proverb</b>
+    <sub><i>"Your gift is something that you can do innately better than anything else."</i></sub><br>
+    <b>— Steve Harvey</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>25/07/2026</sub>
+  <sub>26/07/2026</sub>
 </p>
