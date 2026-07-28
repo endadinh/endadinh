@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Fool me once, shame on you; fool me twice, shame on me."</i></sub><br>
-    <b>— Chinese Proverb</b>
+    <sub><i>"Either write something worth reading or do something worth writing."</i></sub><br>
+    <b>— Benjamin Franklin</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>27/07/2026</sub>
+  <sub>28/07/2026</sub>
 </p>
