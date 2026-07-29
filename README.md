@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Either write something worth reading or do something worth writing."</i></sub><br>
-    <b>— Benjamin Franklin</b>
+    <sub><i>"Go for it now. The future is promised to no one."</i></sub><br>
+    <b>— Wayne Dyer</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>28/07/2026</sub>
+  <sub>29/07/2026</sub>
 </p>
