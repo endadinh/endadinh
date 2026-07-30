@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Go for it now. The future is promised to no one."</i></sub><br>
-    <b>— Wayne Dyer</b>
+    <sub><i>"People who avoid failure also avoid success."</i></sub><br>
+    <b>— Robert Kiyosaki</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>29/07/2026</sub>
+  <sub>30/07/2026</sub>
 </p>
