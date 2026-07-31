@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"People who avoid failure also avoid success."</i></sub><br>
-    <b>— Robert Kiyosaki</b>
+    <sub><i>"You're braver than you believe, and stronger than you seem, and smarter than you think."</i></sub><br>
+    <b>— A.A. Milne</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>30/07/2026</sub>
+  <sub>31/07/2026</sub>
 </p>
