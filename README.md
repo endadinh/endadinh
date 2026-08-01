@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"You're braver than you believe, and stronger than you seem, and smarter than you think."</i></sub><br>
-    <b>— A.A. Milne</b>
+    <sub><i>"The whole world is a series of miracles, but we're so used to them we call them ordinary things."</i></sub><br>
+    <b>— Hans Christian Andersen</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>31/07/2026</sub>
+  <sub>01/08/2026</sub>
 </p>
