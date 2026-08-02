@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"The whole world is a series of miracles, but we're so used to them we call them ordinary things."</i></sub><br>
-    <b>— Hans Christian Andersen</b>
+    <sub><i>"Your mind will make you rich or poor, depending on the use you put to it."</i></sub><br>
+    <b>— Brian Tracy</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>01/08/2026</sub>
+  <sub>02/08/2026</sub>
 </p>
