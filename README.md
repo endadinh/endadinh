@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Your mind will make you rich or poor, depending on the use you put to it."</i></sub><br>
-    <b>— Brian Tracy</b>
+    <sub><i>"Deliberately seek the company of people who influence you to think and act on building the life you desire."</i></sub><br>
+    <b>— Napoleon Hill</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>02/08/2026</sub>
+  <sub>03/08/2026</sub>
 </p>
