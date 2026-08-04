@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Deliberately seek the company of people who influence you to think and act on building the life you desire."</i></sub><br>
-    <b>— Napoleon Hill</b>
+    <sub><i>"The only thing new in the world is the history you do not know."</i></sub><br>
+    <b>— Harry S. Truman</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>03/08/2026</sub>
+  <sub>04/08/2026</sub>
 </p>
