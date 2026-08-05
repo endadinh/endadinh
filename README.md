@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"The only thing new in the world is the history you do not know."</i></sub><br>
-    <b>— Harry S. Truman</b>
+    <sub><i>"Everybody by your side ain't on your side."</i></sub><br>
+    <b>— Steve Harvey</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>04/08/2026</sub>
+  <sub>05/08/2026</sub>
 </p>
