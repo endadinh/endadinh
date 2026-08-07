@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Never take your position for granted and never let any favors you receive go to your head."</i></sub><br>
-    <b>— Robert Greene</b>
+    <sub><i>"Avoiding danger is no safer in the long run than exposure."</i></sub><br>
+    <b>— Helen Keller</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>06/08/2026</sub>
+  <sub>07/08/2026</sub>
 </p>
