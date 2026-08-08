@@ -29,7 +29,7 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Avoiding danger is no safer in the long run than exposure."</i></sub><br>
+    <sub><i>"Life is either a daring adventure, or it is nothing."</i></sub><br>
     <b>— Helen Keller</b>
   </p>
 </div>
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>07/08/2026</sub>
+  <sub>08/08/2026</sub>
 </p>
