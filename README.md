@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Life is either a daring adventure, or it is nothing."</i></sub><br>
-    <b>— Helen Keller</b>
+    <sub><i>"A diamond is a piece of charcoal that handled stress exceptionally well."</i></sub><br>
+    <b>— Unknown</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>08/08/2026</sub>
+  <sub>09/08/2026</sub>
 </p>
