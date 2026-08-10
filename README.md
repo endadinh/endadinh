@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"A diamond is a piece of charcoal that handled stress exceptionally well."</i></sub><br>
-    <b>— Unknown</b>
+    <sub><i>"Because of your smile, you make life more beautiful."</i></sub><br>
+    <b>— Thich Nhat Hanh</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>09/08/2026</sub>
+  <sub>10/08/2026</sub>
 </p>
