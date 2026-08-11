@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Because of your smile, you make life more beautiful."</i></sub><br>
-    <b>— Thich Nhat Hanh</b>
+    <sub><i>"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult."</i></sub><br>
+    <b>— Seneca</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>10/08/2026</sub>
+  <sub>11/08/2026</sub>
 </p>
