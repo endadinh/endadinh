@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult."</i></sub><br>
-    <b>— Seneca</b>
+    <sub><i>"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that."</i></sub><br>
+    <b>— Eckhart Tolle</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>11/08/2026</sub>
+  <sub>12/08/2026</sub>
 </p>
