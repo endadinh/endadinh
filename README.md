@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that."</i></sub><br>
-    <b>— Eckhart Tolle</b>
+    <sub><i>"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."</i></sub><br>
+    <b>— Mark Manson</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>12/08/2026</sub>
+  <sub>13/08/2026</sub>
 </p>
