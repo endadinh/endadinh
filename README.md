@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another."</i></sub><br>
-    <b>— Mark Manson</b>
+    <sub><i>"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."</i></sub><br>
+    <b>— Lily Tomlin</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>13/08/2026</sub>
+  <sub>14/08/2026</sub>
 </p>
