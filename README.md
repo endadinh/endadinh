@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed."</i></sub><br>
-    <b>— Lily Tomlin</b>
+    <sub><i>"You are not what you think you are, You are not what others think you are, You are what you think others think you are."</i></sub><br>
+    <b>— Unknown</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>14/08/2026</sub>
+  <sub>15/08/2026</sub>
 </p>
