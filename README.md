@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"You are not what you think you are, You are not what others think you are, You are what you think others think you are."</i></sub><br>
-    <b>— Unknown</b>
+    <sub><i>"Whatever your heart clings to and confides in, that is really your God."</i></sub><br>
+    <b>— Martin Luther</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>15/08/2026</sub>
+  <sub>16/08/2026</sub>
 </p>
