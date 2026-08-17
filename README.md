@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Whatever your heart clings to and confides in, that is really your God."</i></sub><br>
-    <b>— Martin Luther</b>
+    <sub><i>"Looking after my health today gives me a better hope for tomorrow."</i></sub><br>
+    <b>— Anne Wilson Schaef</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>16/08/2026</sub>
+  <sub>17/08/2026</sub>
 </p>
