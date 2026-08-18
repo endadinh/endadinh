@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Looking after my health today gives me a better hope for tomorrow."</i></sub><br>
-    <b>— Anne Wilson Schaef</b>
+    <sub><i>"What would you do if you weren't afraid?"</i></sub><br>
+    <b>— Spencer Johnson</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>17/08/2026</sub>
+  <sub>18/08/2026</sub>
 </p>
