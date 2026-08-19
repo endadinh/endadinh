@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"What would you do if you weren't afraid?"</i></sub><br>
-    <b>— Spencer Johnson</b>
+    <sub><i>"The only person you should try to be better than is the person you were yesterday."</i></sub><br>
+    <b>— Brian Tracy</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>18/08/2026</sub>
+  <sub>19/08/2026</sub>
 </p>
