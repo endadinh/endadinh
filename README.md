@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality."</i></sub><br>
-    <b>— James Cameron</b>
+    <sub><i>"Wit is educated insolence."</i></sub><br>
+    <b>— Aristotle</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>20/08/2026</sub>
+  <sub>21/08/2026</sub>
 </p>
