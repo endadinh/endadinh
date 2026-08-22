@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Wit is educated insolence."</i></sub><br>
-    <b>— Aristotle</b>
+    <sub><i>"Life is about choice. You can choose to be a victim or anything else you like to be."</i></sub><br>
+    <b>— Celestine Chua</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>21/08/2026</sub>
+  <sub>22/08/2026</sub>
 </p>
