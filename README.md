@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Life is about choice. You can choose to be a victim or anything else you like to be."</i></sub><br>
-    <b>— Celestine Chua</b>
+    <sub><i>"We cannot change anything unless we accept it."</i></sub><br>
+    <b>— Carl Jung</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>22/08/2026</sub>
+  <sub>23/08/2026</sub>
 </p>
