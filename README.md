@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"We cannot change anything unless we accept it."</i></sub><br>
-    <b>— Carl Jung</b>
+    <sub><i>"If fear is too strong, the genius is suppressed."</i></sub><br>
+    <b>— Robert Kiyosaki</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>23/08/2026</sub>
+  <sub>24/08/2026</sub>
 </p>
