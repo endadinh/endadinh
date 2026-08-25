@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"If fear is too strong, the genius is suppressed."</i></sub><br>
-    <b>— Robert Kiyosaki</b>
+    <sub><i>"Make no small plans for they have no power to stir the soul."</i></sub><br>
+    <b>— Niccolo Machiavelli</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>24/08/2026</sub>
+  <sub>25/08/2026</sub>
 </p>
