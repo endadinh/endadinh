@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Make no small plans for they have no power to stir the soul."</i></sub><br>
-    <b>— Niccolo Machiavelli</b>
+    <sub><i>"Reading should be a pleasure, not a chore."</i></sub><br>
+    <b>— Joan Rivers</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>25/08/2026</sub>
+  <sub>26/08/2026</sub>
 </p>
