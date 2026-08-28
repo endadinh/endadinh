@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence."</i></sub><br>
-    <b>— Sydney Smith</b>
+    <sub><i>"The best way to not feel hopeless is to get up and do something."</i></sub><br>
+    <b>— Barack Obama</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>27/08/2026</sub>
+  <sub>28/08/2026</sub>
 </p>
