@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"The best way to not feel hopeless is to get up and do something."</i></sub><br>
-    <b>— Barack Obama</b>
+    <sub><i>"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream."</i></sub><br>
+    <b>— Unknown</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>28/08/2026</sub>
+  <sub>29/08/2026</sub>
 </p>
