@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream."</i></sub><br>
-    <b>— Unknown</b>
+    <sub><i>"A tiny change today brings a dramatically different tomorrow."</i></sub><br>
+    <b>— Richard Bach</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>29/08/2026</sub>
+  <sub>30/08/2026</sub>
 </p>
