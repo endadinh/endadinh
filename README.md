@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"A tiny change today brings a dramatically different tomorrow."</i></sub><br>
-    <b>— Richard Bach</b>
+    <sub><i>"You cannot control the behavior of others, but you can always choose how you respond to it."</i></sub><br>
+    <b>— Roy T. Bennett</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>30/08/2026</sub>
+  <sub>01/09/2026</sub>
 </p>
