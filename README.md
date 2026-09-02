@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"You cannot control the behavior of others, but you can always choose how you respond to it."</i></sub><br>
-    <b>— Roy T. Bennett</b>
+    <sub><i>"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart."</i></sub><br>
+    <b>— St. Jerome</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>01/09/2026</sub>
+  <sub>02/09/2026</sub>
 </p>
