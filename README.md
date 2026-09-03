@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart."</i></sub><br>
-    <b>— St. Jerome</b>
+    <sub><i>"A hero is an ordinary person doing things in an extra ordinary way."</i></sub><br>
+    <b>— Christopher Reeve</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>02/09/2026</sub>
+  <sub>03/09/2026</sub>
 </p>
