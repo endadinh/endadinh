@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"A hero is an ordinary person doing things in an extra ordinary way."</i></sub><br>
-    <b>— Christopher Reeve</b>
+    <sub><i>"The future doesn't belong to the faint-hearted; it belongs to the brave."</i></sub><br>
+    <b>— Ronald Reagan</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>03/09/2026</sub>
+  <sub>04/09/2026</sub>
 </p>
