@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"The future doesn't belong to the faint-hearted; it belongs to the brave."</i></sub><br>
-    <b>— Ronald Reagan</b>
+    <sub><i>"Always turn a negative situation into a positive situation."</i></sub><br>
+    <b>— Michael Jordan</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>04/09/2026</sub>
+  <sub>05/09/2026</sub>
 </p>
