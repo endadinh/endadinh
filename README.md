@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Always turn a negative situation into a positive situation."</i></sub><br>
-    <b>— Michael Jordan</b>
+    <sub><i>"Peace of mind is that mental condition in which you have accepted the worst."</i></sub><br>
+    <b>— Lin Yutang</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>05/09/2026</sub>
+  <sub>06/09/2026</sub>
 </p>
