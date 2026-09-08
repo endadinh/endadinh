@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Winners are not people who never fail, but people who never quit."</i></sub><br>
-    <b>— Arnold Schwarzenegger</b>
+    <sub><i>"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task."</i></sub><br>
+    <b>— William James</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>07/09/2026</sub>
+  <sub>08/09/2026</sub>
 </p>
