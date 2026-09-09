@@ -29,8 +29,8 @@
 <div align="center">
   <img src="https://img.icons8.com/ios-filled/16/737373/quote-left.png" />
   <p>
-    <sub><i>"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task."</i></sub><br>
-    <b>— William James</b>
+    <sub><i>"Difficulties strengthen the mind, as labor does the body."</i></sub><br>
+    <b>— Seneca</b>
   </p>
 </div>
 
@@ -38,5 +38,5 @@
 
 ---
 <p align="right">
-  <sub>08/09/2026</sub>
+  <sub>09/09/2026</sub>
 </p>
